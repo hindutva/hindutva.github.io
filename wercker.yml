@@ -29,7 +29,7 @@ deploy:
     - add-ssh-key:
         keyname: github_key
         host: github.com
-    - lukevivier/gh-pages:
+    - sf-zhou/gh-pages:
         token: $GIT_TOKEN
         basedir: docs
         branch: master
