@@ -1,7 +1,5 @@
 ---
 title: Guru-kula
-unicode_script: devanagari
-emphasis_as_inline_comments: true
 ---
 
 See the [guru page](../../self-cultivation/communal-support/guru/) for notes on the role of a guru in self-cultivation.
