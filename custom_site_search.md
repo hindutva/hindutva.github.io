@@ -1,0 +1,18 @@
+---
+title: जालक्षेत्रमिदमन्विष्यताम्
+---
+<div>
+
+<script>
+    (function() {
+        var cx = '000458843298819253658:zwxourfiize';
+        var gcse = document.createElement('script');
+        gcse.type = 'text/javascript';
+        gcse.async = true;
+        gcse.src = 'https://cse.google.com/cse.js?cx=' + cx;
+        var s = document.getElementsByTagName('script')[0];
+        s.parentNode.insertBefore(gcse, s);
+    })();
+</script>
+<gcse:search></gcse:search>
+</div>
