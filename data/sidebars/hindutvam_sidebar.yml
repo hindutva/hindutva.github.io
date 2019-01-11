@@ -1,0 +1,193 @@
+# This is your sidebar TOC. The sidebar code loops through sections here and provides the appropriate formatting.
+
+# No tabs here!
+
+title: Hindutvam
+contents:
+  - title: Hinduism
+    contents:
+      - title: Intro
+        url: /main/hinduism/introduction.md
+      - title: Religion?
+        url: /main/hinduism/religion.md
+      - title: Benefits
+        url: /main/hinduism/benefits.md
+
+  - title: प्रमाणानि Bases
+    contents:
+      - title: Holy Books
+        contents:
+          - url: dir://main/bases/books/
+      - title: शिष्टः Role-models
+        url: /main/bases/elders.md
+      - title: प्रत्यक्षम् Direct witness
+        url: /main/bases/pratyaxa.md
+      - title: सर्वज्ञता Omniscience
+        url: /main/bases/omniscience.md
+
+  - title: Suchness तत्त्वम्
+    contents:
+      - title: चित् The self
+        url: /main/tattvam/chit.md
+      - title: Connection-web ऋतम्
+        url: /main/tattvam/Rta.md
+      - title: देवाः Deities
+        contents:
+          - url: dir://main/tattvam/deva/
+          - title: Hierarchy
+            contents:
+              - title: Intro
+                url: /main/tattvam/deva/hierarchy/index.md
+              - title: Polycentrism
+                url: /main/tattvam/deva/hierarchy/polycentrism.md
+              - title: Competition
+                url: /main/tattvam/deva/hierarchy/competition.md
+      - title: सृष्टिः Creation and suffering
+        url: /main/tattvam/creation.md
+      - title: पुरुषार्थाः Goals of life
+        url: /main/tattvam/purushaartha.md
+      - title: Science and magic
+        url: /main/tattvam/science-magic.md
+      - title: Sublabeling विचारधारा-स्थानम्
+        url: /main/tattvam/sublabeling.md
+
+  - title: Self-cultivation संस्काराः
+    contents:
+      - title: Introduction
+        url: /main/self-cultivation/introduction.md
+      - title: Rituals
+        url: /main/self-cultivation/rituals.md
+      - title: Mantra and Yantra
+        url: /main/self-cultivation/mantra-yantra.md
+      - title: Communal support
+        contents:
+          - title: Introduction
+            url: /main/self-cultivation/communal-support/introduction.md
+          - title: Exclusivity अधिकार-भेदः
+            url: /main/self-cultivation/communal-support/exclusivity.md
+          - title: Being different
+            url: /main/self-cultivation/communal-support/distinctness.md
+          - title: Guru गुरुः
+            url: /main/self-cultivation/communal-support/guru.md
+      - title: Decoration
+        url: /main/self-cultivation/decoration.md
+      - title: Food आहारः
+        url: /main/self-cultivation/food.md
+      - title: काम्यता Sexual attractiveness
+        url: /main/self-cultivation/sexual-attractiveness.md
+      - title: Presentations
+        url: /main/self-cultivation/presentations.md
+
+  - title: Social cultivation
+    contents:
+      - title: धर्मः dharma
+        contents:
+          - url: dir://main/social-cultivation/dharma
+      - url: dir://main/social-cultivation/
+      - title: Caste, Clan जातिः वर्णः च
+        url: /main/social-cultivation/clan.md
+        contents:
+          - title: Genetics
+            url: /main/social-cultivation/clan/genetics.md
+          - title: Settlement of India
+            url: /main/social-cultivation/clan/india-entry.md
+          - title: varNa theory
+            url: /main/social-cultivation/clan/varna-theory.md
+          - title: varNa practice
+            url: /main/social-cultivation/clan/varna-practice.md
+          - title: vanavAsI-s
+            url: /main/social-cultivation/clan/vanavaasii.md
+          - title: Criticism and Counters
+            url: /main/social-cultivation/clan/criticism.md
+          - title: varNavatI वर्णवती
+            url: /main/social-cultivation/clan/varnavatii.md
+          - title: Modern caste politics
+            url: /main/social-cultivation/clan/modern-caste-politics.md
+          - title: Future
+            url: /main/social-cultivation/clan/future.md
+  - title: अर्थः Resources
+    contents:
+      - title: Economics
+        url: /main/resources/economics.md
+
+
+  - title: Rivals वैरिणः
+    contents:
+      - title: Abraham's disease
+        contents:
+          - title: Intro
+            url: /main/rivals/abe-disease/
+          - title: On Islam मरून्मादः
+            contents:
+              - title: Intro
+                url: /main/rivals/abe-disease/islam/intro.md
+              - title: Subversion as a social constituent
+                url: /main/rivals/abe-disease/islam/constituent-subversion.md
+              - title: War on infiedels
+                url: /main/rivals/abe-disease/islam/kaafir-jihaad.md
+          - url: dir://main/rivals/abe-disease/
+      - title: 0-theism
+        contents:
+        - title: Intro
+          url: /main/rivals/0-theism/
+        - title: Secularism
+          url: /main/rivals/0-theism/secularism.md
+      - title: Idiot Intellectualism
+        contents:
+          - title: Intro
+            url: /main/rivals/iyi/intro.md
+      - title: Academic subversion
+        contents:
+          - title: Charges
+            url: /main/rivals/academia/charges.md
+          - title: Negationism
+            url: /main/rivals/academia/negationism.md
+      - title: Appropriation
+        url: /main/rivals/u-turn.md
+      - title: Dirty rags
+        url: /main/rivals/rags.md
+      - title: Ananda-addictions
+        url: /main/rivals/aananda-addiction.md
+      - title: Class opportunism
+        url: /main/rivals/class-opportunism.md
+
+  - title: Polity राजनीतिः
+    contents:
+      - title: Desiderata काङ्क्षा
+        url: /main/polity/desiderata.md
+      - title: Post-brit rAj (Sick India)
+        contents:
+          - title: Hindus
+            url: /main/polity/sick-india/hindus.md
+          - title: Demographics
+            url: /main/polity/sick-india/demographics.md
+      - title: Geopolitics
+        url: /main/polity/geopolitics.md
+      - title: Hindus Abroad
+        url: /main/polity/hindu-abroad.md
+      - title: परैः सम्बन्धः External relations
+        contents:
+          - title: अभिज्ञानम् Identification
+            url: /main/polity/external-affairs/id.md
+          - title: सहिष्णुता Tolerance
+            url: /main/polity/external-affairs/tolerance.md
+          - title: स्वरक्षणम् Defence
+            url: /main/polity/external-affairs/defence.md
+
+  - title: History इतिहासः
+    contents:
+      - title: Intro परिचयः
+        url: /main/history/intro.md
+      - title: स्थानानि Places
+        url: /main/history/places.md
+      - title: Heroes महानुभावाः
+        url: /main/history/heroes.md
+      - title: Alien heroes
+        url: /main/history/heroes-alien.md
+      - title: Administrative History
+        url: /main/history/administration.md
+      - title: Military history
+        url: /main/history/military.md
+  - url: /paganology/
+  - title: Home
+    url: /

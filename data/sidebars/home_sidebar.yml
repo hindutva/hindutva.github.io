@@ -1,0 +1,10 @@
+# This is your sidebar TOC. The sidebar code loops through sections here and provides the appropriate formatting.
+
+title: Parts
+contents:
+  - title: Hindutvam
+    url: /main/hinduism/introduction/
+  - title: Paganology
+    url: /paganology/introduction/
+  - title: Contributing
+    url: /contributing/

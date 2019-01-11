@@ -1,0 +1,10 @@
+baseURL = "https://hindutva.github.io/"
+languageCode = "en-us"
+title = "hindu-vichArAH हिन्दु-विचाराः"
+theme = "sanskrit-documentation-theme-hugo"
+publishDir = "docs"
+[params]
+  githubEditMePathBase = "https://github.com/hindutva/hindutva.github.io/edit/master/content/"
+  contactLink = "https://github.com/hindutva/hindutva.github.io/issues/new"
+  env = "production"
+  disqusShortcode = "hindu-vichaarah"

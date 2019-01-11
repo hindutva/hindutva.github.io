@@ -1,0 +1,49 @@
+# This is your sidebar TOC. The sidebar code loops through sections here and provides the appropriate formatting.
+
+title: Paganology
+contents:
+  - title: Introduction
+    url: /paganology/introduction.md
+  - title: Steppe
+    url: /paganology/steppe.md
+  - title: North Europe
+    url: /paganology/north-europe.md
+  - title: Persia
+    url: /paganology/persia.md
+  - title: Mediterranian
+    url: /paganology/mediterranian.md
+  - title: Americas
+    url: /paganology/americas.md
+  - title: Africa (non-med)
+    url: /paganology/non-med-africa.md
+  - title: Tibet
+    url: /paganology/tibet.md
+  - title: China
+    contents:
+      - url: dir://paganology/china/
+  - title: Japan
+    contents:
+      - title: Intro
+        url: /paganology/japan/intro.md
+      - title: Spirituality
+        url: /paganology/japan/spirituality.md
+      - title: kokutai National spirit
+        contents:
+          - title: Intro
+            url: /paganology/japan/kokutai/intro.md
+          - title: Assimilation
+            url: /paganology/japan/kokutai/assimilation.md
+          - title: Rejection of Christ
+            url: /paganology/japan/kokutai/reject-christ.md
+      - title: Material gain
+        url: /paganology/japan/material-gain.md
+      - title: India ties
+        url: /paganology/japan/india-ties.md
+      - title: Geopolitics
+        contents:
+          - title: Intro
+            url: /paganology/japan/geopolitics/intro.md
+          - title: Securing the north
+            url: /paganology/japan/geopolitics/secure-north.md
+          - title: Anti-leukosphere
+            url: /paganology/japan/geopolitics/anti-leukosphere.md

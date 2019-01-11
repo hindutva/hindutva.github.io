@@ -1,0 +1,64 @@
+---
+title: Connection-web ऋतम्
+---
+## The web of connections
+
+- Humans are embedded in an intricate, interconnected, interdependent system. There is a continuity between man and nature. Hindu traditions emphasize this interconnected nature, so that a hindu understands this network not just intellectually, but also in the world of feelings.
+- This has been variously presented in the tradition:
+    - Rta (divine order in the universe), whose keeper is varuNa. (gaNesha [here](http://indiafacts.co.in/the-pillars/).)
+        - Rta is thought to be ultimately mathematical in nature. Its ultimate form is algebra (seen in natural laws of science expressed as symbol-relationships) which determines the functioning of the real world. \[[MT16](https://manasataramgini.wordpress.com/2016/10/23/syllable-number-and-rules-in-the-ideal-realm/)\]
+    - Origin myths and "One from many" representations: Representation of various parts of the nature (including various social constructs) as having originated in (and being various parts of) the same primodial person (puruSha). \[puruSha-sUkta, \]
+        - Hindu origin stories espouse either the manifestation of the single underlying spirit in many forms, or a combination of male and female fundamental principles to generate all this diversity.
+        - There are similarly various other personifications (kAvya-puruSha in kAvyamImAMsA, sangIta-puruSha, vAstu-puruSha, loka-puruSha, devasthAna-puruSha, yajna-puruSha).
+    - The motif of yajna
+        - The offering of soma into agni during a yAga is representative of reciprocal connections between the sacrificer (yajamAna) and the deity; between the consumed and the consumer in a cycle of consumption and offering. It is symbolic of all sorts of events: from creation to destruction. This symbolism has been made explicit in several places.
+            - panchAgnihotra-vidyA presented in chAndogya (6th chapter) and bRhadAraNyaka (5th chapter) vividly represent each link in the (cloud > rain > crops > food > digestion > child-birth > death + cremation) cycle as a yajna, with different entities playing the roles of agni, soma, hotR, smoke, embers, sparks, phala.
+            - 5 prANa-s of the human body are thus represented in the 4th prashna of prAshnOpaniShad, aitareya-upaniShad, taittarIya-brAhmaNa ("मानवशरीरे यज्ञोपचारः।"). The digestive fire is called jATarAgni.
+        - The act of yAga-s include cooperative participation from a variety of people, reminding and strengthening social connections.
+    - The notion of brahman
+        - Everything in the universe is said to be brahman by the many followers of the veda-s. brahman is said to be conscious and bliss in some schools of thought (eg: vedAnta).
+            - Consciousness of individual beings is hard to explain scientifically, and so some people have proposed a universal, fundamental aspect of nature (like space and time) as its source \[David Chalmers [YT1](https://www.youtube.com/watch?v=uhRhtFFhNzQ), [TED](http://www.ted.com/talks/david_chalmers_how_do_you_explain_consciousness/transcript?language=en), [IMG](http://i.imgur.com/JLQ4iFT.png)\].
+- One can observe close connection to nature in a variety of Hindu concepts.
+    - Examples
+        - Bird songs, whale songs and sAmans: Neural convergence in animals or imitation? [MT](https://manasataramgini.wordpress.com/2006/02/19/mental-and-neural-convergence/)
+        - The varNa system.
+    - That said, some refinement (saMskRti) is applied to the natural state of affairs (prakRti) to enhance effectiveness and good feeling. saMskRti is not opposite to prakRti - it attempts to capture the beneficial essentials.
+- Japanese analogy:
+    - The ancient Japanese did not strictly divide their world into the material and the spiritual, nor between this world and another perfect realm, but their intuitive spirituality infused all domains. There is an underlying belief of the early Shinto world-view, that is, continuity between man and nature. This concept is also encapsulated by the Japanese word nagare, meaning ‘flow’, and leads to the conception of vital connections between the divine nature of the kami, and by extension the natural world, and humanity (through respectful rituals); between post-mortem souls and the living (such as the ie construct which is an extended sense of family); and between the inner and outer worlds (as found in ideas about pollution and purity). (Paraphrased from [Lucy Wright](http://refractory.unimelb.edu.au/2004/02/03/wonderment-and-awe-the-way-of-the-kami-lucy-wright/))
+
+### karma, heaven and reincarnation  
+
+Reincarnation (punarjanma), heaven, hell and the notion of karma (actions bearing fruit in this or a future life) were important because:
+
+- They helped explain why some people are, in some respects, more fortunate than others.
+- To help motivate good behavior (dharma) due to the karma-vipAka (fruit of karma) theory.
+    - Examples:
+        - The mahAbhArata case of Indradyumna remaining in svarga (heaven) only as long as his great deeds on earth are fondly remembered ([S](https://groups.google.com/forum/#!topic/sadaswada/gNiAAuNzPoI)).
+        - "The Prakarana-pancika of Salikanatha, one of the early works of the Prabhakara Mimansa school, affirms that in such sentences as 'one desirous of heaven should perform the Jyotistoma the rite is simply commended by Vedic passages, which are no more than arthavadas, as a means of securing long-enduring happiness which is free from the taint of all kinds of sorrow and which is present at the mere desire of the enjoyer." \[[PVK](https://archive.org/stream/HistoryOfDharmasastraancientAndMediaevalReligiousAndCivilLawV.4/Kane_A-History-of-Dharmasastra-v4_1953#page/n207/mode/2up)\]
+        - "The Shantiparva expressly states 'The wise do not regard the other world as directly seen by anyone; one has to entertain faith (in the existence of the other world) because otherwise one may run counter to the Vedas.'" \[[PVK](https://archive.org/stream/HistoryOfDharmasastraancientAndMediaevalReligiousAndCivilLawV.4/Kane_A-History-of-Dharmasastra-v4_1953#page/n207/mode/2up)\]
+
+When does the fruit arise?
+
+- Not necessarily in this life \[[TR](https://archive.org/stream/TantraRatnaTupitikaBhashyaParthasarathiMisharaGopinathKavirajVolume2SampoornanadUniversity/Tantra%20Ratna%20Tupitika%20Bhashya%20Parthasarathi%20Mishara%20Gopinath%20Kaviraj%20Volume%202%20Sampoornanad%20University#page/n27/mode/2up), [4,3.28 KB](https://archive.org/stream/in.ernet.dli.2015.368819/2015.368819.Tupuutiikaa#page/n49/mode/2up)\]. shabara disagrees in case of certain vaidika karma-s - \[[GJ](https://archive.org/stream/ShabaraBhasyaTrByGanganathJha/Shabara%20Bhasya%20tr%20by%20Ganganath%20Jha%20Vol%202#page/n125/mode/2up), [4,3.28 W](https://sa.wikisource.org/wiki/%E0%A4%B6%E0%A4%AC%E0%A4%B0%E0%A4%AD%E0%A4%BE%E0%A4%B7%E0%A5%8D%E0%A4%AF%E0%A4%AE%E0%A5%8D_%E0%A5%A7-%E0%A5%AA_%E0%A4%85%E0%A4%A7%E0%A5%8D%E0%A4%AF%E0%A4%BE%E0%A4%AF%E0%A4%BE%E0%A4%83), [SB](https://archive.org/stream/Bibliotheca_Indica_Series/MimansaDarsanaWithSabarabhashya-MahesachandraNyayaratna1889bis#page/n575/mode/2up)\].
+
+#### Heaven and Hell
+
+- Various views of svarga (heaven) and naraka (hell) were in vogue. \[[PVK](https://archive.org/stream/HistoryOfDharmasastraancientAndMediaevalReligiousAndCivilLawV.4/Kane_A-History-of-Dharmasastra-v4_1953#page/n207/mode/2up)\]
+- The sophisticated yet devout sages and scholars were clear that these terms are not to be taken literally.
+    - "Gautama refers to the view of some predecessors of his that naraka is not a place \[[PVK](https://archive.org/stream/HistoryOfDharmasastraancientAndMediaevalReligiousAndCivilLawV.4/Kane_A-History-of-Dharmasastra-v4_1953#page/n197/mode/2up)\], but simply means the loss of the capacity to perform the peculiar actions of one's varNa. There were others who argued in the same strain. ... "
+    - mImAmsaka view: "Sabara ... holds that the primary meaning of the word svarga is joy or delight and not a thing (dravya) which brings joy \[[GJ](https://archive.org/stream/ShabaraBhasyaTrByGanganathJha/Shabara%20Bhasya%20tr%20by%20Ganganath%20Jha%20Vol%202#page/n273/mode/2up), [TT](https://archive.org/stream/tuptikak00kuma#page/82/mode/2up)\]." \[[PVK](https://archive.org/stream/HistoryOfDharmasastraancientAndMediaevalReligiousAndCivilLawV.4/Kane_A-History-of-Dharmasastra-v4_1953#page/n207/mode/2up)\]
+        - This delight was said to be long-lasting, unmixed with sadness and not the same as - say- the momentary animal joy one gains from scratching an itch. \[[TR](https://archive.org/stream/TantraRatnaTupitikaBhashyaParthasarathiMisharaGopinathKavirajVolume2SampoornanadUniversity/Tantra%20Ratna%20Tupitika%20Bhashya%20Parthasarathi%20Mishara%20Gopinath%20Kaviraj%20Volume%202%20Sampoornanad%20University#page/n27/mode/2up)\]
+        - A state of existence after death at an inferred phala-bhUmi (which corresponds to the popular non-mImAmsaka usage of the word svarga, but is still secondary compared to the state of existance) distinguished from the karma-bhUmi was then inferred by kumArIla and prabhAkara-mishra \[[TT](https://archive.org/stream/tuptikak00kuma#page/82/mode/2up), [TR](https://archive.org/stream/TantraRatnaTupitikaBhashyaParthasarathiMisharaGopinathKavirajVolume2SampoornanadUniversity/Tantra%20Ratna%20Tupitika%20Bhashya%20Parthasarathi%20Mishara%20Gopinath%20Kaviraj%20Volume%202%20Sampoornanad%20University#page/n27/mode/2up), [4,3.28 KB](https://archive.org/stream/in.ernet.dli.2015.368819/2015.368819.Tupuutiikaa#page/n49/mode/2up),  [copy2](https://archive.org/stream/tuptikak00kuma#page/36/mode/2up), [6,1.1 KB](https://archive.org/stream/tuptikak00kuma#page/82/mode/2up)\] This is in contrast to commoners referring to a certain place as svarga, where great delight is granted - so the place is primary while state of being is secondary in emphasis.
+        - This particular emphasis on the delightful state of existence rather than a place where such existence - it allows for more easily challenging and dropping this special place altogether. "svarga" can be viewed as a long-lasting satisfaction (of a life well lived!) enjoyed by a soul after completing a dhArmika life - without assuming or speculating anything about the place/ circumstances which allow for such experience after death.
+    - "There is a well-known and oft quoted verse which defines svarga as follows: that happiness which is not mixed up with pain, which is not immediately afterwards overwhelmed ( by pain ) and which is present whenever desired, is denoted by the word svaH (or svarga)." \[[PVK](https://archive.org/stream/HistoryOfDharmasastraancientAndMediaevalReligiousAndCivilLawV.4/Kane_A-History-of-Dharmasastra-v4_1953#page/n207/mode/2up)\]
+    - "The Brahmapurana and the Visnupurana speak in the same strain as Shabara that svarga is what causes happiness to the mind, that naraka is the opposite of it and that meritorious deeds and wicked deeds are designated as svarga and naraka respectively and that svarga and naraka are really states of the mind characterized by happiness and pain respectively." \[[PVK](https://archive.org/stream/HistoryOfDharmasastraancientAndMediaevalReligiousAndCivilLawV.4/Kane_A-History-of-Dharmasastra-v4_1953#page/n207/mode/2up)\]
+
+#### Possible modifications
+
+However, it must be emphasized that the classical understanding of karma and punarjanma is not indispensable to the hindu worldview of the wonderful interconnected universe - or even to the notion of ethically responsible behavior. Indeed, all these concepts can be accepted as a useful, expedient and elegant fictitious framework (../an upAya like the concept of deities explained [here](deva/index/)). Otherwise, they can even given non-supernatural definitions, consequent to what one may call the nava-vaisheShika (modern atomist) metaphysics:
+
+- For example, jIv[Atman](http://en.wikipedia.org/wiki/%C4%80tman_%28Hinduism%29) (The dichotomoy between the jIva-Atman and the body, a difference akin to the one between an algorithm and a computer, is very important in understanding Hindu thought and rituals.) is redefined to be an abstract concept which is equivalent to one's evolving personality.
+- The [sUkShma-sharIr](http://en.wikipedia.org/wiki/Subtle_body)a stands refuted as a vehicle of consciousness from this life to the next, and [punarjanma](http://en.wikipedia.org/wiki/Reincarnation) (reincarnation) is then just happen-stance.
+- [karman](http://en.wikipedia.org/wiki/Karma) is redefined so as to accept stochasticity: so that unrewarded good deeds and unpunished bad deeds exist, its functioning being constrained by material laws, and its lasting effect on the Atman being purely psychological.
+
+Thus, these concepts are rendered unimportant in motivating behavior beyond what other concepts (esp [puruShArtha](http://en.wikipedia.org/wiki/Purushartha)s) already accomplish.
