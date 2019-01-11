@@ -113,7 +113,7 @@ contents:
 
   - title: Rivals वैरिणः
     contents:
-      - title: Abraham's disease
+      - title: "Abe disease"
         contents:
           - title: Intro
             url: /main/rivals/abe-disease/
@@ -155,7 +155,7 @@ contents:
     contents:
       - title: Desiderata काङ्क्षा
         url: /main/polity/desiderata.md
-      - title: Post-brit rAj (Sick India)
+      - title: Post-brit rAj
         contents:
           - title: Hindus
             url: /main/polity/sick-india/hindus.md
@@ -188,6 +188,7 @@ contents:
         url: /main/history/administration.md
       - title: Military history
         url: /main/history/military.md
-  - url: /paganology/
+  - title: Paganology
+    url: /paganology/introduction/
   - title: Home
     url: /
