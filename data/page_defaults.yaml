@@ -1,5 +1,13 @@
 -
   scope:
+    pathPrefix: ""
+  values:
+    layout: "page"
+    comments: true
+    search: true
+    sidebar: home_sidebar
+-
+  scope:
     pathPrefix: "main"
   values:
     layout: "page"
@@ -14,12 +22,3 @@
     comments: true
     search: true
     sidebar: paganology_sidebar
--
-  scope:
-    pathPrefix: ""
-  values:
-    layout: "page"
-    comments: true
-    search: true
-    sidebar: home_sidebar
-
