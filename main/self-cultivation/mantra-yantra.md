@@ -29,7 +29,7 @@ pauṣkara āgama states:
 
 Excerpts from an insightful comment from another thread by shrI[ manISha-paNDita](): 
 
-    "The mantra first creates an image of the deity which is inherently present within the mantra. That image when strong enough to take a life of its own "shields the mind". The image starts finally getting replaced for moments at a time with the actual Devatha. ..... <snip> The more the sadhaka who has managed to attract a certain Devata on occasion... repeats that mantra... the more the Devata starts to descend into the consciousness of the sadhaka. The sadhaka changes and his or her mind and personality slowly start getting replaced with the personality of the Devata in question."
+"The mantra first creates an image of the deity which is inherently present within the mantra. That image when strong enough to take a life of its own "shields the mind". The image starts finally getting replaced for moments at a time with the actual Devatha. ..... <snip> The more the sadhaka who has managed to attract a certain Devata on occasion... repeats that mantra... the more the Devata starts to descend into the consciousness of the sadhaka. The sadhaka changes and his or her mind and personality slowly start getting replaced with the personality of the Devata in question."
 
 Also see notes on Avesha as an end in \[[IF16](http://indiafacts.org/brief-study-possession-hinduism-ii-spiritual-context/)\].
 
