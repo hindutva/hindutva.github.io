@@ -258,7 +258,7 @@ These Urdu Pakistani TV interviews with Pakistani journalist Najam Sethi summari
 
 It pains me that the descendents of abhinavagupta, kalhaNa, bilhaNa, kShemendra, kShemarAja, kayyaTa, bhallaTa, rudraTa etc.. should become such dunces that they are dominated by the likes of motilAl and "paNDit" javAharlAl, and that they should then loose their valley in such sorry fashion.
 
-kashmIri paNDit-s were quite scholarly at the turn of the 20th century (Aurel Stein's collaborators [here](http://www.siraurelstein.org.uk/native.html)). Later, however, traitors and idiots reared their heads with motilaal and javAharlaal. This continues today \[[FB1](https://www.facebook.com/vishvas.vasuki/posts/10153504590697989), [FB_MV](https://www.facebook.com/groups/mvjkl/?fref=ts)\].  
+kashmIri paNDit-s were quite scholarly at the turn of the 20th century (Aurel Stein's collaborators [here](http://www.siraurelstein.org.uk/native.html)). Later, however, traitors and idiots reared their heads with motilaal and javAharlaal. This continues today.  
 
 Of course, being an Hindu, I do not want to let the land of abhinavagupta and kashyapa to relapse into Islamic rule. The ethnic cleansing of the hindu Kashmiri paNDit community is a sad event, it was preceded by a proliferation of madarasa-s. As detailed elsewhere on this page, I would like Article 370 repealed, that kAshmIri paNDits and any hindu-s willing to live there be resettled in kAshmIr with dignity.
 
