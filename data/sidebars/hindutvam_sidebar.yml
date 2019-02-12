@@ -107,10 +107,7 @@ contents:
             url: /main/social-cultivation/clan/future.md
   - title: अर्थः Resources
     contents:
-      - title: Economics
-        url: /main/resources/economics.md
-
-
+      - url: dir://main/resources/
   - title: Rivals वैरिणः
     contents:
       - title: "Abe disease"

@@ -31,7 +31,6 @@ It also addresses the very real fact that most people cannot be truly, lastingly
         - "जायमानो वै ब्राह्मणस्त्रिभिः ऋणवा जायते ब्रह्मचर्येण ऋषिभ्यो यज्ञेन देवेभ्यः प्रजया पितृभ्यः । एष वा अनृणो यः पुत्री यज्वा ब्रह्मचारी वा" इति तैत्तिरीयसंहितायाम्।
         - This acknowledgement of indebtedness is in turn based on the concept of **Rta** (../divine order in the universe), through which interconnectedness of various beings is known and felt. (More [here](../tattvam/Rta/).)
             - So, there is a very pleasant feeling of rising above the self (I, me, my ...) to a higher (social, even cosmic) level of thinking.  
-                
     - Expositions: shatAvadhAnI gaNesha [here](https://www.youtube.com/watch?v=coghS3GbJM8).
 - Social costs and benefits
     - This includes the fact that people made unhappy by our happiness end up wrecking our happiness or at least being indifferent to it.
