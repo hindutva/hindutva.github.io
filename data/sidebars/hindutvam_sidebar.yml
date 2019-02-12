@@ -167,13 +167,7 @@ contents:
         url: /main/polity/hindu-abroad.md
       - title: परैः सम्बन्धः External relations
         contents:
-          - title: अभिज्ञानम् Identification
-            url: /main/polity/external-affairs/id.md
-          - title: सहिष्णुता Tolerance
-            url: /main/polity/external-affairs/tolerance.md
-          - title: स्वरक्षणम् Defence
-            url: /main/polity/external-affairs/defence.md
-
+          - url: dir://main/polity/external-affairs/
   - title: History इतिहासः
     contents:
       - title: Intro परिचयः
