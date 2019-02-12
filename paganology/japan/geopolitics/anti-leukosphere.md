@@ -56,6 +56,6 @@ title: Anti-Leukosphere conflict
         - Vietnamese remain thankful to the Japanese for granting them independence from the French and staying back to fight for it (though commies like Ho Chi Minh were on the opposite side, initially) \[[IMG1](http://i.imgur.com/sT1HcP5.jpg), [VM1](http://www.warbirdforum.com/japviet.htm)\].
         - Taiwanese in general appreciate the Japanese role in their past. \[[EQ11](http://www.taipeitimes.com/News/taiwan/archives/2011/04/16/2003500900)\]
 - Occupation
-    - Subversion through Burakumin Liberation movement/ Theology led by Jiichirō Matsumoto \[[FB](https://www.facebook.com/vishvas.vasuki/posts/10153174729732989)\].
+    - Subversion through Burakumin Liberation movement/ Theology led by Jiichirō Matsumoto.
 - Current opposition to revival of Japan's true spirit and state shiNTo.
     - Opposition from foreign "my shiNTo is better than Japan's backward shiNTo" types, Japanologists, with parallels with Hindu situation: [KV16](https://agnimaan.wordpress.com/2016/05/27/japanese-blood-debt-and-other-hindu-connections/).

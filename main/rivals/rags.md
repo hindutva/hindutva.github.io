@@ -5,7 +5,7 @@ title: Dirty rags
     - [2015list](http://www.opindia.com/2015/10/top-lies-spread-by-indian-media-in-september-2015/?utm_content=buffer4f169&utm_medium=social&utm_source=facebook.com&utm_campaign=buffer).
 - On anti-hindu (especially Indian) media's portrayal of hindu-s as idots.
     - Various rags keep sensationalizing pro-hindu stances by misrepresenting them and drawing false equivalences.
-    - Some have a couple of redeeming features (eg: [here](https://www.facebook.com/vishvas.vasuki/posts/10152793456577989?notif_t=like))- 
+    - Some have a couple of redeeming features- 
         - they are honest about being caricatures.
         - A pro-hindu person that takes it for an attempted demonstration of absurdity can go and point out the misrepresentation.
     - In my (pre-Modi) experience, many news outlets which publish silly anti-hindu pieces don't do that - they disallow all pro-hindu comments; or adapt a more sinister strategy - disallow all intelligent and measured pro-hindu comments while allowing ones with bad grammar and abuses.

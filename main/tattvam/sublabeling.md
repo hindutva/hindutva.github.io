@@ -30,7 +30,7 @@ There is exactly one reality, however there are many mata-s (opinions) and darsh
     - I like aspects of tAntrika bauddha practice (vajrayAna), with its vedic/ purANic influence, rich artistic rituals and emphasis on compassion.
     - Religious humanism: an integration of humanist ethical philosophy with religious rituals and beliefs that center on human needs, interests, and abilities.
         - I admire parts of it, but dislike cases where it deifies humanity (and not the rest of the universe).
-            - On religious atheism, [the Positivist church](https://en.wikipedia.org/wiki/Religion_of_Humanity) and the deification of humanity - [FBSh15](https://www.facebook.com/vishvas.vasuki/posts/10153080324667989?comment_id=10153080590682989&offset=0&total_comments=2&ref=notif&notif_t=feed_comment).
+            - On religious atheism, [the Positivist church](https://en.wikipedia.org/wiki/Religion_of_Humanity) and the deification of humanity.
     - Beyond all, I admire the [AlankArika](https://en.wikipedia.org/wiki/Indian_aesthetics)-s (aestheticians); who reveled in poetry and the arts; and attempted to understand and articulate life as an aesthetic experience. What they believed beyond this, due to their cultural context, in concepts such as brahmAnanda, jagadAnanda, vedAnta etc.., is not relevant to me. (This is a view shared by eminent modern classical aestheticians such as M hiryaNNa and shatAvadhAnI gaNesh.)
 
 All said and done, I only say that "Art can replace religion in this age, one is alive and not a machine as long as one is full of good feelings. Only an artistic mind can be vitally alive".

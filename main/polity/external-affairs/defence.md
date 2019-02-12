@@ -138,7 +138,7 @@ It started with a naval raid sent by kaliif umar companion of muhammad, which wa
 ### Maratha/ Hindu loss to the British
 
 - Discussions -
-    - [SP_FB](https://www.facebook.com/vishvas.vasuki/posts/10153070311757989:0), [MT11](https://manasataramgini.wordpress.com/2011/10/09/yuddha-vyuha-s-mlechcha-s-and-vanija-niti-in-the-last-hindu-empire/), [MT04](https://manasataramgini.wordpress.com/2004/05/13/end-of-the-maharattas-i/)
+    - [MT11](https://manasataramgini.wordpress.com/2011/10/09/yuddha-vyuha-s-mlechcha-s-and-vanija-niti-in-the-last-hindu-empire/), [MT04](https://manasataramgini.wordpress.com/2004/05/13/end-of-the-maharattas-i/)
     - [WP](https://agnimaan.wordpress.com/2015/08/15/reasons-for-maratha-hindu-loss-to-the-british-v0/).
 
 #### Reasons
@@ -168,4 +168,4 @@ It started with a naval raid sent by kaliif umar companion of muhammad, which wa
 #### Non reasons
 
 - Technological differences were not a major factor, neither was military technique.
-    - "The technological difference explanation doesn't wash as far as land armies go, in fact I would say the gap is greater today than it was back then. Yes navally we were surpassed but on land the Marathas could hold their own." [SP_FB](https://www.facebook.com/vishvas.vasuki/posts/10153070311757989:0)
+    - "The technological difference explanation doesn't wash as far as land armies go, in fact I would say the gap is greater today than it was back then. Yes navally we were surpassed but on land the Marathas could hold their own." 

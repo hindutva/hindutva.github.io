@@ -18,4 +18,4 @@ title: India ties
     - Sanskrit influence on japanese alphabet arrangement [pdf](http://files.eric.ed.gov/fulltext/ED043872.pdf).
 - Help towards Indian liberation
     - See Anti-leukosphere conflict details here.
-    - The support of the soma family and disciples towards rAshbehArI bose \[[DO16](http://www.dailyo.in/politics/rashbehari-bose-indian-freedom-struggle-japan-british-raj-tosiko-soma-bose/story/1/10005.html), [FB16](https://www.facebook.com/vishvas.vasuki/posts/10153665697322989)\]
+    - The support of the soma family and disciples towards rAshbehArI bose \[[DO16](http://www.dailyo.in/politics/rashbehari-bose-indian-freedom-struggle-japan-british-raj-tosiko-soma-bose/story/1/10005.html).

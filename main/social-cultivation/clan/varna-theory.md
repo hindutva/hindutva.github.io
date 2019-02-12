@@ -151,9 +151,9 @@ varNa/ jAti = (social role/ hereditary caste) system.
 ### Contrast of privileges.
 
 - The dharma system was framed more in terms of duties than rights or privileges. This fundamental difference should not be forgotten. However, in modern debates, it sometimes becomes necessary to get an accurate picture of privileges that existed in practice.
-- Privileges of a brAhmaNa - [FB15](https://www.facebook.com/vishvas.vasuki/posts/10153146275452989) (PVK).
+- Privileges of a brAhmaNa -
     - Apolology (ie. defence) of brAhmaNa privilege
-        - By P V Kane [B_FB1](https://www.facebook.com/vishvas.vasuki/posts/10153145342532989), [B_FB2](https://www.facebook.com/vishvas.vasuki/posts/10153192489572989).
+        - By P V Kane - insert link.
 - Distinct privileges and disabilities of śūdra-s
     - Incomplete Article here ([GD](https://docs.google.com/document/d/1fGZ76w1Rf3d1RJzSn2Pz5l-GHJTi14XWuTG0yR1XWwI/edit#), ).
     - shUdra and mlecCha access to pAkayajJNa-s and pUrta-s
