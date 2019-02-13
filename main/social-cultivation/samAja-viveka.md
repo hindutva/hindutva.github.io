@@ -49,8 +49,7 @@ emphasis_as_inline_comments: true
 स्वार्थाय राष्ट्र-भेदिनः ।  
 प्रथमोन्मत्तेन प्रेतेन प्राभवत् प्रेतोन्मादः ।
 
-
-![](../../../images/animals/maculinea-parasite-buttefly-with-myrmica-ant.jpg)
+{{< figure src="../../../images/animals/maculinea-parasite-buttefly-with-myrmica-ant.jpg" class="thumbnail">}}
 
 प्रेतोन्मादिताः पाश्चात्या इति म्लेच्छाः ।  
 प्रेतोन्मादो वै म्लेच्छानां व्यक्तित्वस्य स्कम्भः ।  
