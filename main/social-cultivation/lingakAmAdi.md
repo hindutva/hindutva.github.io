@@ -5,7 +5,7 @@ emphasis_as_inline_comments: true
 ---
 
 ## लिङ्गकामादिसूत्राणि
-- मूलम् [इतः](https://manasataramgini.wordpress.com/2019/02/03/li%E1%B9%85ga-kamadi-sutra%E1%B9%87i/)।
+- मानसतरङ्गिणीकृतो मूलम् [इतः](https://manasataramgini.wordpress.com/2019/02/03/li%E1%B9%85ga-kamadi-sutra%E1%B9%87i/)।
 - इहाग्निमता स्वावबोधाय भाषाशोधनैः टिप्पणिनिवेशनैश्च समेधितम्।
 
 अथ लिङ्ग-कामादि-सूत्राणि व्याख्यास्यामः ।  
