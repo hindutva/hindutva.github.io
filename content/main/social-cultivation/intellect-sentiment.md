@@ -1,5 +1,5 @@
 ---
-title: समाजे भौद्धिकता भावनात्मकता - Intellect and sentiment
+title: Intellect, sentiment
 ---
 ## Scholasticism, intellectual and sentimental life.
 
