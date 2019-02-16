@@ -162,6 +162,9 @@ contents:
       - title: परैः सम्बन्धः External relations
         contents:
           - url: dir://main/polity/external-affairs/
+          - title: Tolerance
+            contents:
+              - url: dir://main/polity/external-affairs/tolerance/
   - title: History इतिहासः
     contents:
       - title: Intro परिचयः
