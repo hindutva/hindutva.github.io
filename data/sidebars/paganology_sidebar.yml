@@ -5,7 +5,8 @@ contents:
   - title: Introduction
     url: /paganology/introduction.md
   - title: Steppe
-    url: /paganology/steppe.md
+    content:
+      - url: dir://paganology/steppe/
   - title: North Europe
     url: /paganology/north-europe.md
   - title: Persia
