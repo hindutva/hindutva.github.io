@@ -77,15 +77,17 @@ One classification of statements of veda-s is:
     - Example: Ayurveda in moving from mantra-vyapaashraya to yukti-vyapaashraya ridiculed "people who seek proof for medicines in mantras". (vAgbhaTa 40-86 and 40-88 , [BVP-discussion](https://groups.google.com/d/msg/bvparishat/Z0v53lMq9rY/c8soadfnBgAJ).)
     - "प्रत्यक्षं चानुमानं च शास्त्रं च विविधाऽऽगमम् । त्रयं सुविदितं कार्यं धर्मशुद्धिमभीप्सता ॥ " मनुः [अत्र](https://www.wisdomlib.org/hindu
     ism/book/manusmriti-with-the-commentary-of-medhatithi/d/doc202285.html)
+    
+## Trasncending text
 - Subjugation to the "ultimate reality", and those that supposedly understand and experience it (especially when it comes to mokSha).
     - This is a **double edged sword**, and should be very **carefully** applied (../more [here](../pratyaxa/) and in the [omniscience page](../../omniscience/)).
     - Hindu texts themselves say that they are not the ultimate authority, and that a truly wise person should ultimately \*transcend\* (ie not be bound by) texts and adapt a worldview that is cognizant of the ultimate reality. So, guru-s can come along and abrogate the "holy" texts and the injunctions, adding their own voice to the pre-existing pool of opinions. So, Sanatana dharma is trans-textual in that sense. नमश् शास्त्रनिर्बन्धनिष्कासकेभ्यश् शास्त्रप्रेरितेभ्यः।
-    - Examples:
-        - "न च वचनं वस्तुनः सामर्थ्यजनकम्। ज्ञापकं हि शास्त्रं न कारकमिति स्थितिः" \- इति शङ्करः बृहदारण्यकोपनिषद्-भाष्ये।
-            - बृहदारण्योपनिषद्भाष्यम् [अत्र](http://www.sanskritworld.in/public/assets/book/book_50da9f8c9c725.txt)।
-            -  (गणेशः [अत्र](https://youtu.be/8XOFAAdbh2w?t=1630))।
-        - ऋचो अक्षरे परमे व्योमन् ([wiki](http://sa.wikiquote.org/wiki/%E0%A4%8B%E0%A4%9A%E0%A5%8B_%E0%A4%85%E0%A4%95%E0%A5%8D%E0%A4%B7%E0%A4%B0%E0%A5%87_%E0%A4%AA%E0%A4%B0%E0%A4%AE%E0%A5%87_%E0%A4%B5%E0%A5%8D%E0%A4%AF%E0%A5%8B%E0%A4%AE%E0%A4%A8%E0%A5%8D...)quote, श्वेताश्वतरोपनिषत् ४-८, Rig Veda:1.164.39। सायणभाष्यम् [अत्र](https://archive.org/stream/RgVedaWithSayanasCommentaryPart1/rv_sayanabhasya_part1#page/n1031/mode/1up)। गणेशः [अत्र](https://youtu.be/8XOFAAdbh2w?t=1446)।)
-        - अविज्ञाते परे तत्त्वे शास्त्राधीतिस्तु निष्फला। विज्ञातेऽपि परे तत्त्वे शास्त्राधीतिस्तु निष्फला ॥ 59​​ इति शङ्कराचार्यो विवेकचूडामण्याम्।
-        - "अत्र वेदा अवेदाः।" \- बृहदारण्यकोपनिषत्तः जनकयाज्ञवल्क्यसंवादात् शङ्करेण उद्धृतं वाक्यम् छान्दोग्योपनिषद्भाष्ये ([गणेशः](http://www.tubechop.com/watch/5800561))।
-        - यावानर्थ उदपाने सर्वतः संप्लुतोदके तावान् सर्वेषु वेदेषु ब्राह्मणस्य विजानतः ।BG 2:46।  (For a knower of Brahman, the Supreme Truth, there is as much profit from all the Vedas as there is profit from reservoirs where all around there is an inundation and flood of waters.)
-        - The["knowing indra" text](https://manasataramgini.wordpress.com/2006/12/19/knowing-indra/)from chapter 3 of kaushitaki-upaniShad \[[arch](https://archive.org/stream/in.ernet.dli.2015.487480/2015.487480.Kaushitaki-Brahmanopnishat#page/n85/mode/2up)\].
+- Examples:
+  - "न च वचनं वस्तुनः सामर्थ्यजनकम्। ज्ञापकं हि शास्त्रं न कारकमिति स्थितिः" \- इति शङ्करः बृहदारण्यकोपनिषद्-भाष्ये।
+      - बृहदारण्योपनिषद्भाष्यम् [अत्र](http://www.sanskritworld.in/public/assets/book/book_50da9f8c9c725.txt)।
+      -  (गणेशः [अत्र](https://youtu.be/8XOFAAdbh2w?t=1630))।
+  - ऋचो अक्षरे परमे व्योमन् ([wiki](http://sa.wikiquote.org/wiki/%E0%A4%8B%E0%A4%9A%E0%A5%8B_%E0%A4%85%E0%A4%95%E0%A5%8D%E0%A4%B7%E0%A4%B0%E0%A5%87_%E0%A4%AA%E0%A4%B0%E0%A4%AE%E0%A5%87_%E0%A4%B5%E0%A5%8D%E0%A4%AF%E0%A5%8B%E0%A4%AE%E0%A4%A8%E0%A5%8D...)quote, श्वेताश्वतरोपनिषत् ४-८, Rig Veda:1.164.39। सायणभाष्यम् [अत्र](https://archive.org/stream/RgVedaWithSayanasCommentaryPart1/rv_sayanabhasya_part1#page/n1031/mode/1up)। गणेशः [अत्र](https://youtu.be/8XOFAAdbh2w?t=1446)।)
+  - अविज्ञाते परे तत्त्वे शास्त्राधीतिस्तु निष्फला। विज्ञातेऽपि परे तत्त्वे शास्त्राधीतिस्तु निष्फला ॥ 59​​ इति शङ्कराचार्यो विवेकचूडामण्याम्।
+  - "अत्र वेदा अवेदाः।" \- बृहदारण्यकोपनिषत्तः जनकयाज्ञवल्क्यसंवादात् शङ्करेण उद्धृतं वाक्यम् छान्दोग्योपनिषद्भाष्ये ([गणेशः](http://www.tubechop.com/watch/5800561))।
+  - यावानर्थ उदपाने सर्वतः संप्लुतोदके तावान् सर्वेषु वेदेषु ब्राह्मणस्य विजानतः ।BG 2:46।  (For a knower of Brahman, the Supreme Truth, there is as much profit from all the Vedas as there is profit from reservoirs where all around there is an inundation and flood of waters.)
+  - The["knowing indra" text](https://manasataramgini.wordpress.com/2006/12/19/knowing-indra/)from chapter 3 of kaushitaki-upaniShad \[[arch](https://archive.org/stream/in.ernet.dli.2015.487480/2015.487480.Kaushitaki-Brahmanopnishat#page/n85/mode/2up)\].
