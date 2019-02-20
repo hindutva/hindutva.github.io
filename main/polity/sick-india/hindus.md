@@ -76,24 +76,14 @@ Apart from [general desiderata](../../desiderata/) already mentioned, we would
             - Research shows that setting boundaries promotes peaceful coexistence \[[plos](http://journals.plos.org/plosone/article?id=10.1371/journal.pone.0095660)\] (atleast until there's war to renegotiate the boundaries).
         - More [here](../demographics/).
     - Types of Islamic ideology and behavior incompatible with the hindu ethos should be suppressed with vigilance.
-        - No Islamic preacher who endorses destruction of temples should be allowed into India.
-            - 25k wahabi preachers from Arabia visited India between 2011 and 2014. \[[OI](http://www.oneindia.com/india/ib-vs-wahabi-the-war-against-saudi-funding-1791334.html)\]
-        - Examples:
-            - 2018: Rwanda banned mosques in the capital, Kigali, from using loudspeakers. \[[BBC18](http://www.bbc.com/news/world-africa-43413645)\]
-            - 2015: Chad \[[NW15](http://europe.newsweek.com/chad-bans-burqas-after-boko-haram-suicide-bombings-328927?utm_content=bufferb7c16&utm_medium=social&utm_source=twitter.com&utm_campaign=buffer)\].
-            - 2014: Denmark bans halal slaughter \[[IN](http://www.independent.co.uk/news/world/europe/denmark-bans-halal-and-kosher-slaughter-as-minister-says-animal-rights-come-before-religion-9135580.html)\].
-            - 2014: Europe Face veil summary \[[bbc](http://www.bbc.com/news/world-europe-13038095)\].
-            - 2011: France bans face veils \[[wiki](https://en.wikipedia.org/wiki/French_ban_on_face_covering)\].
-        - Examples of more severe repression:
-            - 2015: Tajikistan Arabic name ban \[[G](http://www.theguardian.com/world/2015/may/08/tajikistan-islam-arabic-names-crackdown)\]. Other measures \[[IMG](http://i.imgur.com/oW5k6sZ.png)\].
-            - China shopkeepers - 2015 alcohol sale, long beard, mosque attendance, fasting \[[WP](http://www.washingtonpost.com/blogs/worldviews/wp/2015/05/05/china-orders-muslim-shopkeepers-to-sell-alcohol-cigarettes-to-weaken-islam/?postshare=4441430823253623)\].
+      - No Islamic preacher who endorses destruction of temples should be allowed into India.
+          - 25k wahabi preachers from Arabia visited India between 2011 and 2014. \[[OI](http://www.oneindia.com/india/ib-vs-wahabi-the-war-against-saudi-funding-1791334.html)\]
     - Muslim migrants to India must be granted citizenship - only if they convert to hindu-s.
         - Immigrants to Germany did this to claim chances of persecution if they return home \[[DA15](http://www.dawn.com/news/1204912/)\].
     - Ban and punish proselytization by Abrahamic religions.
     - Stop special treatment for religious and linguistic minorities. Scrap article 30.
     - Language
         - Transition towards use of Prakrits (at state level) and Sanskrit at national level for adminitration and governance (Carl's [slides](http://www.slideshare.net/sankrant1/language-policy-for-a-new-india-v1)).  
-            
         - Imposition of local language on migrants and consequential regionalism are a huge drain on our human resources \[[MT16](https://twitter.com/blog_supplement/status/748000183108177921)\].
 - Economics.
     - Cut the red tape - make it easier to start and run businesses.
