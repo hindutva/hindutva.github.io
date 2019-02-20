@@ -5,9 +5,6 @@ title:  Former brit rAj and Hindus
 
  ![](http://i.imgur.com/mimKzuP.png)
 
-  
-
-  
 
 Where Indian politics are concerned, as a hindu, I favor ideas from the "center-right". By "right", I mean the Hindu cultural right, not the Abrahamistic right or the "anti-socialist right".  
 
@@ -65,29 +62,29 @@ Apart from [general desiderata](../../desiderata/) already mentioned, we would
     - The Indian government, at long last, was ordered to stop providing [haj subsidies](http://timesofindia.indiatimes.com/india/Muslim-leaders-welcome-Supreme-Courts-decision-to-abolish-Haj-subsidy/articleshow/13052845.cms/?utm_source=facebook&utm_medium=toionFB) to muslim pilgrims.
     - Stop giving easy loans to people just because they are not Hindu-s.
 
-- The major defiled/ destroyed hindu temples may be legally and efficiently restored from the clutches of Islam.
-    - somanAtha-shivAlaya (restored by the great sardAr vallabh bhAi paTel after 1947) and rAma-janma-bhUmI in ayodhyA (Dec 1991) are good starts.
-- Hindu soldiers must be allowed to wear religious symbols. \[[N](http://wwrn.org/articles/13806/?&place=india&section=church-state)\]  
-    
-- On muslim demographics: Relatively higher muslim population growth rate is a threat to our hindu ethos.  
-    
-    - Article 370 which grants special statuses to J&K is scrapped.
-    
-    - Voiding the traty of accession is not such a big deal. If India must renegotiate it, it must strongly consider imposing it not withstanding the protests of the dominant tribes of kAshmIri muslims (as distinguished from rest of J&K population). They consider themselves an unwilling part of the union anyway; and it is not the supposed 'moral superiority' which is keeping India's control over the valley in reality.
-    
-    - Illegal immigration of Muslims from bAngladesh should be stopped.
-        - Research shows that setting boundaries promotes peaceful coexistence \[[plos](http://journals.plos.org/plosone/article?id=10.1371/journal.pone.0095660)\] (atleast until there's war to renegotiate the boundaries).
-    - More [here](../demographics/).
-- Types of Islamic ideology and behavior incompatible with the hindu ethos should be suppressed with vigilance.
-  - No Islamic preacher who endorses destruction of temples should be allowed into India.
-      - 25k wahabi preachers from Arabia visited India between 2011 and 2014. \[[OI](http://www.oneindia.com/india/ib-vs-wahabi-the-war-against-saudi-funding-1791334.html)\]
-- Muslim migrants to India must be granted citizenship - only if they convert to hindu-s.
-    - Immigrants to Germany did this to claim chances of persecution if they return home \[[DA15](http://www.dawn.com/news/1204912/)\].
-- Ban and punish proselytization by Abrahamic religions.
+- Hindu soldiers must be allowed to wear religious symbols. \[[N](http://wwrn.org/articles/13806/?&place=india&section=church-state)\]      
 - Stop special treatment for religious and linguistic minorities. Scrap article 30.
 - Language
     - Transition towards use of Prakrits (at state level) and Sanskrit at national level for adminitration and governance (Carl's [slides](http://www.slideshare.net/sankrant1/language-policy-for-a-new-india-v1)).  
     - Imposition of local language on migrants and consequential regionalism are a huge drain on our human resources \[[MT16](https://twitter.com/blog_supplement/status/748000183108177921)\].
+
+#### Stopping Abrahamisms
+- Generally, our Abrahamistic (mostly muslim) brothers and sisters must be provided urgent help and treatment so as to rid them of their serious and dangerous memetic epidemic (more in the [treatment page](../../../rivals/abe-disease/islam/treatment/)).
+
+More specific steps are outlined below.
+- The major defiled/ destroyed hindu temples may be legally and efficiently restored from the clutches of Islam.
+    - somanAtha-shivAlaya (restored by the great sardAr vallabh bhAi paTel after 1947) and rAma-janma-bhUmI in ayodhyA (Dec 1991) are good starts.
+- On muslim demographics: Relatively higher muslim population growth rate is a threat to our hindu ethos.  
+- Article 370 which grants special statuses to J&K is scrapped.
+    - Voiding the traty of accession is not such a big deal. If India must renegotiate it, it must strongly consider imposing it not withstanding the protests of the dominant tribes of kAshmIri muslims (as distinguished from rest of J&K population). They consider themselves an unwilling part of the union anyway; and it is not the supposed 'moral superiority' which is keeping India's control over the valley in reality.
+    - Illegal immigration of Muslims from bAngladesh should be stopped.
+        - Research shows that setting boundaries promotes peaceful coexistence \[[plos](http://journals.plos.org/plosone/article?id=10.1371/journal.pone.0095660)\] (atleast until there's war to renegotiate the boundaries).
+    - More [here](../demographics/).
+- No Islamic preacher who endorses destruction of temples should be allowed into India.
+    - 25k wahabi preachers from Arabia visited India between 2011 and 2014. \[[OI](http://www.oneindia.com/india/ib-vs-wahabi-the-war-against-saudi-funding-1791334.html)\]
+- Muslim migrants to India must be granted citizenship - only if they convert to hindu-s.
+    - Immigrants to Germany did this to claim chances of persecution if they return home \[[DA15](http://www.dawn.com/news/1204912/)\].
+- Ban and punish proselytization by Abrahamic religions.
 
 #### Economics.
 - Cut the red tape - make it easier to start and run businesses.
@@ -112,44 +109,51 @@ Apart from [general desiderata](../../desiderata/) already mentioned, we would
 
 ### RSS
 
-- RSS Ideology.
-    - The movement’s official ideology is Deendayal Upadhyaya’s Integral Humanism, studied by all RSS members yet conspicuous by its absence from most “expert” studies, apparently because it sounds too innocent, not fitting in the gory enemy-image they were constructing. \[[KE](http://koenraadelst.blogspot.be/2015/02/three-views-of-hindu-activism.html)\]
-    - Some distinctions from Fascism:
-        - RSS’s (as opposed to the BJP’s) internal functioning honours the Leader Principle, it is gerontocratic and more inspired on native Guru worship than on the submission to  autocratic young men of action characteristic of the European interbellum.  \[[KE](http://koenraadelst.blogspot.be/2015/02/three-views-of-hindu-activism.html)\]
-        - He admitted the RSS’s principled opposition to what was the first priority of the fascist movements, viz. the seizing of political power (p.189) underlying this contrast is the fascists’ valuation of the state as crucial actor versus Hindu society’s self-reliance with only a limited role for the state.  \[[KE](http://koenraadelst.blogspot.be/2015/02/three-views-of-hindu-activism.html)\]
-        - Race thought too, in spite of the deceptive occasional appearance of the word “race” (then more general in meaning), failed to become central to Hindu nationalism; on the contrary, he notes that the central concept of Chiti (ca. Volksseele, “national soul”, p.172) logically favoured assimilation.  \[[KE](http://koenraadelst.blogspot.be/2015/02/three-views-of-hindu-activism.html)\]
-- Goals
-    - Standardization and spread of values: यथा पुरा संन्यासिनो देशेऽखिलेऽपि धर्मव्यवस्थाप्रबन्धम् चक्रुः प्रयाणिकाः (<-- इदमसत्यम्। ब्राह्मणैः तथा कृतम्), तथा वयमद्य कुर्मः।
-    - Human Infrastructure for specific missions: यथा पुरा रामानन्दादिसंन्यासिभिर् महाराष्ट्रेषु हनुमन्मन्दिरसंयुक्ता मल्लशालाः प्रारब्धाः शिवराजम् उपचक्रुः, तथैव वयमपि "infrastructure"(आधार)-निर्माणं कुर्मः। 
-    - Seeding mission specific organizations:
-        - उदाहरणानि
-            - संस्कृतभारती
-            - एकलविद्यालय
-            - विश्वहिन्दुपरिषद् 
-            - श्रमिकसङ्ग 
-            - विद्यार्थिपरिषद्
-            - \[vanavAsI-kalyAN-Ashram (incidentally one of those rare organizations actually run by vanvAsI-s rather than 'alien civilizers/ uplifters'), sevA-bhAratI, etc..\]. 
-        - एताः संस्था अस्माभिरेव जनिताः, प्रारम्भे पोषिताः। इदानीमपि न ताः पृथक् संस्था इत्येवास्मद्भावना। अस्मान्विना नैता अभविष्यन् निति ध्वनितम्।
-    - \* यद्यपि समुदायस्तरे जातिस्तरे वा सङ्घटन्ते जनाः, हिन्दुत्वे न तथा सङ्घटन्ते, तत्रास्मत् सम्पर्कहेतुना "हिन्दुत्व"भावना+ऐक्यं च जागर्ति।
-- Modus operandi
-    - shaakhaa (branches and their meetings)
-        - The expectation is that if hindu-s are to cooperate and contribute to society, they must first meet regularly in an extended family-like atmosphere - in a way replacing or supplementing the jAti-specific or joint-family relationships of yore.
-        - No one will tell you what to think (other than indirectly through occasional nAra-s like 'hara hara mahAdeva'/ 'vIra shivAji') - the fundamental purpose is to give Hindu-s structured environment to meet regularly (daily or weekly) in a way which is attractive physically, spiritually and (to some extant) intellectually. It involves playing sports, doing yoga, singing songs and discussion. Of course, there is passion and devotion involved - but that simply comes from the fact that hindus have never separated the spiritual (in the sense of being in awe of nature) from mundane/ secular pursuits.
-    - Guru Golwalkar’s formulation of the “secret” , here on p.98: “There are only two secrets of our work – First is that there is no secret. And second is, Kabaddi.” This is a native group sport requiring organization: “So much power was generated by this kabaddi, power that saved lives, honour and wealth of lacs of people during partition (...) Did we organize conferences or publicize our views? We only played kabaddi.”
-- History of RSS:
-    - The RSS was founded in 1925 and its thinking has hardly evolved since then. Its “nationalism” is coloured by its genesis within an anti-colonial struggle as well as by then-popular European notions of a monolithic nation-state. It still glorifies Guru Golwalkar who died back in 1973, and has not produced any original ideologues ever since. \[[KE](http://centreright.in/2014/08/the-modi-governments-hindu-agenda/#.U_Ndlj2x3Ua)\]
-    - The allegation that the RSS remained aloof from the freedom movement, however, is  answered with the detail about RSS volunteers’ participation in the Quit India agitation of 1942 (p.233-239) \[[KE](http://centreright.in/2014/08/the-modi-governments-hindu-agenda/#.U_Ndlj2x3Ua)\]
-- Effectiveness of RSS:
-    - Protecting native traditions
-        - The common volunteers often do sterling work. Thus, the Gathering of the Elders is a beautiful example of international bridge-building with other pre-Christian communities, achieved by an overseas RSS office-bearer, Prof. Yashwant Pathak. A delegation from Arunachal Pradesh testified to me how a handful of RSS men had generated self-organization and mobilization for survival to the natives against the offensive of the Christian missionaries, and thus stopped conversions. \[[KE](http://koenraadelst.blogspot.be/2015/02/three-views-of-hindu-activism.html)\]
-        - A well-known journalist testified how in his district of Kanyakumari, the nervousness and fear of the Hindu community due to Christian aggression evaporated once the RSS became active there.  \[[KE](http://koenraadelst.blogspot.be/2015/02/three-views-of-hindu-activism.html)\]
-    - Protecting Indian lives
-        - Older people have told me about the good work and even self-sacrifice by RSS workers to save Partition victims or to defend Srinagar airport until the Indian troops arrived. As this book documents, RSS volunteers have gone out of their way to save Sikhs during the 1984 Congress-engineered pogrom against them (p.177-179).  \[[KE](http://koenraadelst.blogspot.be/2015/02/three-views-of-hindu-activism.html)\]
-    - Leadership problems
-        - My meetings with RSS foot soldiers have mainly been positive. On the other hand, as SR Goel had observed, “the higher you go, the bigger the duffer you meet”. \[[KE](http://koenraadelst.blogspot.be/2015/02/three-views-of-hindu-activism.html)\]
-        - The cluelessness and inactivity on the Hindu front by the BJP ministers of the erstwhile Vajpayee and present Modi governments show the limited (or even reverse) effectiveness of the much-flaunted RSS grooming. \[[KE](http://koenraadelst.blogspot.be/2015/02/three-views-of-hindu-activism.html)\]
-    - (Non)Reaction to slander
-        - RSS comes across as an extremely slow learner, mostly taking the slander lying down and never developing a counter-strategy or acquiring the resources to turn the tables. \[[KE](http://centreright.in/2014/08/the-modi-governments-hindu-agenda/#.U_Ndlj2x3Ua)\]
+#### RSS Ideology.
+
+- The movement’s official ideology is Deendayal Upadhyaya’s Integral Humanism, studied by all RSS members yet conspicuous by its absence from most “expert” studies, apparently because it sounds too innocent, not fitting in the gory enemy-image they were constructing. \[[KE](http://koenraadelst.blogspot.be/2015/02/three-views-of-hindu-activism.html)\]
+- Some distinctions from Fascism:
+    - RSS’s (as opposed to the BJP’s) internal functioning honours the Leader Principle, it is gerontocratic and more inspired on native Guru worship than on the submission to  autocratic young men of action characteristic of the European interbellum.  \[[KE](http://koenraadelst.blogspot.be/2015/02/three-views-of-hindu-activism.html)\]
+    - He admitted the RSS’s principled opposition to what was the first priority of the fascist movements, viz. the seizing of political power (p.189) underlying this contrast is the fascists’ valuation of the state as crucial actor versus Hindu society’s self-reliance with only a limited role for the state.  \[[KE](http://koenraadelst.blogspot.be/2015/02/three-views-of-hindu-activism.html)\]
+    - Race thought too, in spite of the deceptive occasional appearance of the word “race” (then more general in meaning), failed to become central to Hindu nationalism; on the contrary, he notes that the central concept of Chiti (ca. Volksseele, “national soul”, p.172) logically favoured assimilation.  \[[KE](http://koenraadelst.blogspot.be/2015/02/three-views-of-hindu-activism.html)\]
+
+#### Goals
+
+- Standardization and spread of values: यथा पुरा संन्यासिनो देशेऽखिलेऽपि धर्मव्यवस्थाप्रबन्धम् चक्रुः प्रयाणिकाः (<-- इदमसत्यम्। ब्राह्मणैः तथा कृतम्), तथा वयमद्य कुर्मः।
+- Human Infrastructure for specific missions: यथा पुरा रामानन्दादिसंन्यासिभिर् महाराष्ट्रेषु हनुमन्मन्दिरसंयुक्ता मल्लशालाः प्रारब्धाः शिवराजम् उपचक्रुः, तथैव वयमपि "infrastructure"(आधार)-निर्माणं कुर्मः। 
+- Seeding mission specific organizations:
+    - उदाहरणानि
+        - संस्कृतभारती
+        - एकलविद्यालय
+        - विश्वहिन्दुपरिषद् 
+        - श्रमिकसङ्ग 
+        - विद्यार्थिपरिषद्
+        - \[vanavAsI-kalyAN-Ashram (incidentally one of those rare organizations actually run by vanvAsI-s rather than 'alien civilizers/ uplifters'), sevA-bhAratI, etc..\]. 
+    - एताः संस्था अस्माभिरेव जनिताः, प्रारम्भे पोषिताः। इदानीमपि न ताः पृथक् संस्था इत्येवास्मद्भावना। अस्मान्विना नैता अभविष्यन् निति ध्वनितम्।
+- \* यद्यपि समुदायस्तरे जातिस्तरे वा सङ्घटन्ते जनाः, हिन्दुत्वे न तथा सङ्घटन्ते, तत्रास्मत् सम्पर्कहेतुना "हिन्दुत्व"भावना+ऐक्यं च जागर्ति।
+
+#### Modus operandi
+
+- shaakhaa (branches and their meetings)
+    - The expectation is that if hindu-s are to cooperate and contribute to society, they must first meet regularly in an extended family-like atmosphere - in a way replacing or supplementing the jAti-specific or joint-family relationships of yore.
+    - No one will tell you what to think (other than indirectly through occasional nAra-s like 'hara hara mahAdeva'/ 'vIra shivAji') - the fundamental purpose is to give Hindu-s structured environment to meet regularly (daily or weekly) in a way which is attractive physically, spiritually and (to some extant) intellectually. It involves playing sports, doing yoga, singing songs and discussion. Of course, there is passion and devotion involved - but that simply comes from the fact that hindus have never separated the spiritual (in the sense of being in awe of nature) from mundane/ secular pursuits.
+- Guru Golwalkar’s formulation of the “secret” , here on p.98: “There are only two secrets of our work – First is that there is no secret. And second is, Kabaddi.” This is a native group sport requiring organization: “So much power was generated by this kabaddi, power that saved lives, honour and wealth of lacs of people during partition (...) Did we organize conferences or publicize our views? We only played kabaddi.”
+
+#### History of RSS:
+- The RSS was founded in 1925 and its thinking has hardly evolved since then. Its “nationalism” is coloured by its genesis within an anti-colonial struggle as well as by then-popular European notions of a monolithic nation-state. It still glorifies Guru Golwalkar who died back in 1973, and has not produced any original ideologues ever since. \[[KE](http://centreright.in/2014/08/the-modi-governments-hindu-agenda/#.U_Ndlj2x3Ua)\]
+- The allegation that the RSS remained aloof from the freedom movement, however, is  answered with the detail about RSS volunteers’ participation in the Quit India agitation of 1942 (p.233-239) \[[KE](http://centreright.in/2014/08/the-modi-governments-hindu-agenda/#.U_Ndlj2x3Ua)\]
+
+#### Effectiveness of RSS:
+- Protecting native traditions
+    - The common volunteers often do sterling work. Thus, the Gathering of the Elders is a beautiful example of international bridge-building with other pre-Christian communities, achieved by an overseas RSS office-bearer, Prof. Yashwant Pathak. A delegation from Arunachal Pradesh testified to me how a handful of RSS men had generated self-organization and mobilization for survival to the natives against the offensive of the Christian missionaries, and thus stopped conversions. \[[KE](http://koenraadelst.blogspot.be/2015/02/three-views-of-hindu-activism.html)\]
+    - A well-known journalist testified how in his district of Kanyakumari, the nervousness and fear of the Hindu community due to Christian aggression evaporated once the RSS became active there.  \[[KE](http://koenraadelst.blogspot.be/2015/02/three-views-of-hindu-activism.html)\]
+- Protecting Indian lives
+    - Older people have told me about the good work and even self-sacrifice by RSS workers to save Partition victims or to defend Srinagar airport until the Indian troops arrived. As this book documents, RSS volunteers have gone out of their way to save Sikhs during the 1984 Congress-engineered pogrom against them (p.177-179).  \[[KE](http://koenraadelst.blogspot.be/2015/02/three-views-of-hindu-activism.html)\]
+- Leadership problems
+    - My meetings with RSS foot soldiers have mainly been positive. On the other hand, as SR Goel had observed, “the higher you go, the bigger the duffer you meet”. \[[KE](http://koenraadelst.blogspot.be/2015/02/three-views-of-hindu-activism.html)\]
+    - The cluelessness and inactivity on the Hindu front by the BJP ministers of the erstwhile Vajpayee and present Modi governments show the limited (or even reverse) effectiveness of the much-flaunted RSS grooming. \[[KE](http://koenraadelst.blogspot.be/2015/02/three-views-of-hindu-activism.html)\]
+- (Non)Reaction to slander
+    - RSS comes across as an extremely slow learner, mostly taking the slander lying down and never developing a counter-strategy or acquiring the resources to turn the tables. \[[KE](http://centreright.in/2014/08/the-modi-governments-hindu-agenda/#.U_Ndlj2x3Ua)\]
 
 ### BJP.
 
