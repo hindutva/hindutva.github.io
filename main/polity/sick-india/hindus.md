@@ -12,89 +12,92 @@ title:  Former brit rAj and Hindus
 Where Indian politics are concerned, as a hindu, I favor ideas from the "center-right". By "right", I mean the Hindu cultural right, not the Abrahamistic right or the "anti-socialist right".  
 
 ### Problem assessment
-
-- Internal to hindu-s
-    - Bottom-heavy human resource
-        - Average IQ of 85-94. \[[TW17](https://twitter.com/blog_supplement/status/916514822430355457)\]
-            - Comparison:
-                - [![](https://i.imgur.com/iyN032v.jpg)](https://i.imgur.com/iyN032v.jpg)
-        - "This leads to dilution of the high performers so they never cross the threshold for intensive sustained knowledge production over long periods. 2nd their efforts are ahead of their time or out of place for rest of population cannot really resonate with their innovations."
-        - "The low-end might also work against the advances of the highend & can easily be exploited as cannon fodder by the enemies."
-    - Inadequate cultural education and successful subversion by enemies
-        - Self vs non-self discrimination
-    - Self-imposed dumbocracy
-    - Excess diversity in the wrong areas i.e. areas where diversity contributes to loss rather than gain in robustness. \[[MT](https://manasataramgini.wordpress.com/2017/05/16/some-biological-analogies-for-certain-sociopolitical-issues/)\]
-        - Eg. Scripts, regionalism.
-    - Population and resource stress
-- External to hindu-s
-    - Abrahamist subversion, tending towards eventual domination, in India
-        - Faster abrahamist demographic growth.
-    - Foreign threats: China, TSP, TSB, West.
 - References
     - [TW17](https://twitter.com/blog_supplement/status/911092142046560256)
+
+#### Internal to hindu-s
+- Bottom-heavy human resource
+    - Average IQ of 85-94. \[[TW17](https://twitter.com/blog_supplement/status/916514822430355457)\]
+        - Comparison:
+            - [![](https://i.imgur.com/iyN032v.jpg)](https://i.imgur.com/iyN032v.jpg)
+    - "This leads to dilution of the high performers so they never cross the threshold for intensive sustained knowledge production over long periods. 2nd their efforts are ahead of their time or out of place for rest of population cannot really resonate with their innovations."
+    - "The low-end might also work against the advances of the highend & can easily be exploited as cannon fodder by the enemies."
+- Inadequate cultural education and successful subversion by enemies
+    - Self vs non-self discrimination
+- Self-imposed dumbocracy
+- Excess diversity in the wrong areas i.e. areas where diversity contributes to loss rather than gain in robustness. \[[MT](https://manasataramgini.wordpress.com/2017/05/16/some-biological-analogies-for-certain-sociopolitical-issues/)\]
+    - Eg. Scripts, regionalism.
+- Population and resource stress
+
+#### External to hindu-s
+- Abrahamist subversion, tending towards eventual domination, in India
+    - Faster abrahamist demographic growth.
+- Foreign threats: China, TSP, TSB, West.
 
 ### Desiderata: India  
 
 Apart from [general desiderata](../../desiderata/) already mentioned, we would like the Indian state to change so that 
 
-- Environment protection.  
-    - See economics list below for mass transit etc..
-    - Reduce lead in water. \[[L](http://www.lead.org.au/lanv10n1/lanv10n1-5.html), [IMG](http://i.imgur.com/BcGI2HK.png)\]
 - Understand and counteract the severe limitations of the dumbocratic system.
-    - As JA [says](https://www.youtube.com/watch?v=L_CJW4hew6o): "Democracy involves following the will of the majority. But a democracy cannot be healthy if a certain community stays the majority for ever. It should keep changing." Well - that's the fate awaiting hindus due to the fertility rate gap wrt muslims. Should "healthy" dumbocracy crumble, which way should it fall? Think on it.
 - National security and Territorial integrity of the hindu homeland.
     - Not withstanding earlier fragmentation, there is greater strength in unity. The idea of what constituted the Aryavarta is quite ancient \[ See [here](../../external-affairs/id/)\].
 - Efficient law enforcement.
     - Raise the number of policemen (at least) to UN recommended standards.
-- Cultural ethos matters.
-    - India should be a civilizational state, not a nation state (as expressed [here](http://www.indusresearch.org/Making-Sense-Indian-Civilizational-State.aspx)).
-        - "Hinduism is to Bharat what water is to the human body: the foundation of our ancient heritage and the true source of our longevity." OGS16
-        - "What we need are leaders who constantly and consistently prioritize the safety and security of Hindus without compromise." \[OGS16\]
-        - A well-functioning hindu government cannot possibly not be informed/ visibly imbued by the hindu ethos (as in the case of most mahArAja-s of yore). Similar to state shinto in japAn (which is finally seeing strong revival after decades of post-war suppression), state hinduism will conspicuously hold hindu state ceremonies.
-        - Israel example [here](http://www.haaretz.com/news/national/1.628365). Burma's "protection of race and religion" laws here.
-    - Stop favoring non-hindu/ anti-hindu religions, and unnecessarily controlling hindu affairs.  
-        
-        - Indian government is stopped from interfering in the affairs of any specific religion, as long as it does not threaten national security. Specifically it should stop managing Hindu temples and cede their control to a body analogous to the gurdvAra-prabandhak-committee or the waqf board.
-            - Karnataka has spent a mere 1/5 of the money it earned due to its management of hindu temples/ institutions for upkeep/ donation. The rest was assigned to Muslim and Christian institutions ([ES](http://www.esamskriti.com/essay-chapters/Why-must-temple-collections-be-controlled-by-the-Indian-Government-1.aspx)).
-        - Various cases of double standards by Indian courts should be curbed.
-            - jalli kaTTu, dahi haNDi limitations vs ashura ([TW16](https://twitter.com/SirZaidHamid/status/786456228989919233)).
-        - This 2012 rioting bill with special treatment against the "majority" should be trashed.
-        - The Indian government, at long last, was ordered to stop providing [haj subsidies](http://timesofindia.indiatimes.com/india/Muslim-leaders-welcome-Supreme-Courts-decision-to-abolish-Haj-subsidy/articleshow/13052845.cms/?utm_source=facebook&utm_medium=toionFB) to muslim pilgrims.
-            
-        - Stop giving easy loans to people just because they are not Hindu-s.
-    - The major defiled/ destroyed hindu temples may be legally and efficiently restored from the clutches of Islam.
-        - somanAtha-shivAlaya (restored by the great sardAr vallabh bhAi paTel after 1947) and rAma-janma-bhUmI in ayodhyA (Dec 1991) are good starts.
-    - Hindu soldiers must be allowed to wear religious symbols. \[[N](http://wwrn.org/articles/13806/?&place=india&section=church-state)\]  
-        
-    - On muslim demographics: Relatively higher muslim population growth rate is a threat to our hindu ethos.  
-        
-        - Article 370 which grants special statuses to J&K is scrapped.
-        
-        - Voiding the traty of accession is not such a big deal. If India must renegotiate it, it must strongly consider imposing it not withstanding the protests of the dominant tribes of kAshmIri muslims (as distinguished from rest of J&K population). They consider themselves an unwilling part of the union anyway; and it is not the supposed 'moral superiority' which is keeping India's control over the valley in reality.
-        
-        - Illegal immigration of Muslims from bAngladesh should be stopped.
-            - Research shows that setting boundaries promotes peaceful coexistence \[[plos](http://journals.plos.org/plosone/article?id=10.1371/journal.pone.0095660)\] (atleast until there's war to renegotiate the boundaries).
-        - More [here](../demographics/).
-    - Types of Islamic ideology and behavior incompatible with the hindu ethos should be suppressed with vigilance.
-      - No Islamic preacher who endorses destruction of temples should be allowed into India.
-          - 25k wahabi preachers from Arabia visited India between 2011 and 2014. \[[OI](http://www.oneindia.com/india/ib-vs-wahabi-the-war-against-saudi-funding-1791334.html)\]
-    - Muslim migrants to India must be granted citizenship - only if they convert to hindu-s.
-        - Immigrants to Germany did this to claim chances of persecution if they return home \[[DA15](http://www.dawn.com/news/1204912/)\].
-    - Ban and punish proselytization by Abrahamic religions.
-    - Stop special treatment for religious and linguistic minorities. Scrap article 30.
-    - Language
-        - Transition towards use of Prakrits (at state level) and Sanskrit at national level for adminitration and governance (Carl's [slides](http://www.slideshare.net/sankrant1/language-policy-for-a-new-india-v1)).  
-        - Imposition of local language on migrants and consequential regionalism are a huge drain on our human resources \[[MT16](https://twitter.com/blog_supplement/status/748000183108177921)\].
-- Economics.
-    - Cut the red tape - make it easier to start and run businesses.
-    - Develop excellent mass transit, reduce oil and lithium import. \[[SP17](https://www.facebook.com/shatruntapa/posts/1765092310192078)\]
-- International politics.
+
+#### Environment protection.  
+- See economics list below for mass transit etc..
+- Reduce lead in water. \[[L](http://www.lead.org.au/lanv10n1/lanv10n1-5.html), [IMG](http://i.imgur.com/BcGI2HK.png)\]
+
+#### Cultural ethos
+
+- India should be a civilizational state, not a nation state (as expressed [here](http://www.indusresearch.org/Making-Sense-Indian-Civilizational-State.aspx)).
+    - "Hinduism is to Bharat what water is to the human body: the foundation of our ancient heritage and the true source of our longevity." OGS16
+    - "What we need are leaders who constantly and consistently prioritize the safety and security of Hindus without compromise." \[OGS16\]
+    - A well-functioning hindu government cannot possibly not be informed/ visibly imbued by the hindu ethos (as in the case of most mahArAja-s of yore). Similar to state shinto in japAn (which is finally seeing strong revival after decades of post-war suppression), state hinduism will conspicuously hold hindu state ceremonies.
+    - Israel example [here](http://www.haaretz.com/news/national/1.628365). Burma's "protection of race and religion" laws here.
+
+- Stop favoring non-hindu/ anti-hindu religions, and unnecessarily controlling hindu affairs.  
+    - Indian government is stopped from interfering in the affairs of any specific religion, as long as it does not threaten national security. Specifically it should stop managing Hindu temples and cede their control to a body analogous to the gurdvAra-prabandhak-committee or the waqf board.
+        - Karnataka has spent a mere 1/5 of the money it earned due to its management of hindu temples/ institutions for upkeep/ donation. The rest was assigned to Muslim and Christian institutions ([ES](http://www.esamskriti.com/essay-chapters/Why-must-temple-collections-be-controlled-by-the-Indian-Government-1.aspx)).
+    - Various cases of double standards by Indian courts should be curbed.
+        - jalli kaTTu, dahi haNDi limitations vs ashura ([TW16](https://twitter.com/SirZaidHamid/status/786456228989919233)).
+    - This 2012 rioting bill with special treatment against the "majority" should be trashed.
+    - The Indian government, at long last, was ordered to stop providing [haj subsidies](http://timesofindia.indiatimes.com/india/Muslim-leaders-welcome-Supreme-Courts-decision-to-abolish-Haj-subsidy/articleshow/13052845.cms/?utm_source=facebook&utm_medium=toionFB) to muslim pilgrims.
+    - Stop giving easy loans to people just because they are not Hindu-s.
+
+- The major defiled/ destroyed hindu temples may be legally and efficiently restored from the clutches of Islam.
+    - somanAtha-shivAlaya (restored by the great sardAr vallabh bhAi paTel after 1947) and rAma-janma-bhUmI in ayodhyA (Dec 1991) are good starts.
+- Hindu soldiers must be allowed to wear religious symbols. \[[N](http://wwrn.org/articles/13806/?&place=india&section=church-state)\]  
     
-    - India should aggressively pursue its national interests.
-        - It should aggressively counter the intolerant anti-hindu ideology of militant Islam everywhere in the world.  
-            
-    - It should vigorously defend its borders from encroachments by its neighbors. Eg: China, Pakistan.
-    - It should support pagans worldwide from the intolerant monotheisms and state suppression.
+- On muslim demographics: Relatively higher muslim population growth rate is a threat to our hindu ethos.  
+    
+    - Article 370 which grants special statuses to J&K is scrapped.
+    
+    - Voiding the traty of accession is not such a big deal. If India must renegotiate it, it must strongly consider imposing it not withstanding the protests of the dominant tribes of kAshmIri muslims (as distinguished from rest of J&K population). They consider themselves an unwilling part of the union anyway; and it is not the supposed 'moral superiority' which is keeping India's control over the valley in reality.
+    
+    - Illegal immigration of Muslims from bAngladesh should be stopped.
+        - Research shows that setting boundaries promotes peaceful coexistence \[[plos](http://journals.plos.org/plosone/article?id=10.1371/journal.pone.0095660)\] (atleast until there's war to renegotiate the boundaries).
+    - More [here](../demographics/).
+- Types of Islamic ideology and behavior incompatible with the hindu ethos should be suppressed with vigilance.
+  - No Islamic preacher who endorses destruction of temples should be allowed into India.
+      - 25k wahabi preachers from Arabia visited India between 2011 and 2014. \[[OI](http://www.oneindia.com/india/ib-vs-wahabi-the-war-against-saudi-funding-1791334.html)\]
+- Muslim migrants to India must be granted citizenship - only if they convert to hindu-s.
+    - Immigrants to Germany did this to claim chances of persecution if they return home \[[DA15](http://www.dawn.com/news/1204912/)\].
+- Ban and punish proselytization by Abrahamic religions.
+- Stop special treatment for religious and linguistic minorities. Scrap article 30.
+- Language
+    - Transition towards use of Prakrits (at state level) and Sanskrit at national level for adminitration and governance (Carl's [slides](http://www.slideshare.net/sankrant1/language-policy-for-a-new-india-v1)).  
+    - Imposition of local language on migrants and consequential regionalism are a huge drain on our human resources \[[MT16](https://twitter.com/blog_supplement/status/748000183108177921)\].
+
+#### Economics.
+- Cut the red tape - make it easier to start and run businesses.
+- Develop excellent mass transit, reduce oil and lithium import. \[[SP17](https://www.facebook.com/shatruntapa/posts/1765092310192078)\]
+
+#### International politics.
+- India should aggressively pursue its national interests.
+    - It should aggressively counter the intolerant anti-hindu ideology of militant Islam everywhere in the world.  
+- It should vigorously defend its borders from encroachments by its neighbors. Eg: China, Pakistan.
+- It should support pagans worldwide from the intolerant monotheisms and state suppression.
     
 
 ## On Hindu politics
