@@ -113,12 +113,7 @@ contents:
             url: /main/rivals/abe-disease/
           - title: On Islam मरून्मादः
             contents:
-              - title: Intro
-                url: /main/rivals/abe-disease/islam/intro.md
-              - title: Subversion as a social constituent
-                url: /main/rivals/abe-disease/islam/constituent-subversion.md
-              - title: War on infiedels
-                url: /main/rivals/abe-disease/islam/kaafir-jihaad.md
+              - url: dir://main/rivals/abe-disease/islam/
           - url: dir://main/rivals/abe-disease/
       - title: 0-theism
         contents:
