@@ -38,52 +38,60 @@ A summary from @parikramah:
 - 4\. But also in a state of Dar-ul-Harb, via other soft means, making demands for concessions. The Anjem Choudarys live off dole.
 - 5\. After British occupation, Indian Muslim Ashraf complained of the "mulazimana zehniyat" (slave mentality) of 9-5 work culture.
 - 6\. Loss of sinecures and privy purses, having to compete with kuffar as employees for a living - considered "slavish" by Ashraf.
-- 7\. That is "ghanaa" (plenitude) attitude. Next is "faqr" - demands made in "poverty". Both speak from morla high ground.
+- 7\. That is "ghanaa" (plenitude) attitude. Next is "faqr" - demands made in "poverty". Both speak from moral high ground.
 - 8\. Thus, Sufi "faqeers" ("poor") appeal to  conscience, demanding sustenance - from moral high ground. Like Buddhist bhikshus.
 - 9\. Whether in ghanaa or faqr mindset, goal is to live off the Other: "Allah ke naam pe loonga baba" "Allah ke naam pe de de baba"
 - 10\. The Other is non-Muslim, or impure Muslims. Many Sufi tariqats considered other Muslims worldly & kuffar. Yet lived off them.
 
 ### Criminal activity
 
-- "The findings: about 80% of the criminals at the petty-crime level were Muslims, that figure decreasing when it came to white-collar crime. Please note that under the Indian Penal Code, petty crime includes armed robbery, dacoity and attempted murder � all of which carry heinous penalties by Shariat, which was the point in discussion." \[[RED](http://www.rediff.com/news/sep/05varsha.htm) 2005 varShA\]
+- "The findings: about 80% of the criminals at the petty-crime level were Muslims, that figure decreasing when it came to white-collar crime. Please note that under the Indian Penal Code, petty crime includes armed robbery, dacoity and attempted murder - all of which carry heinous penalties by Shariat, which was the point in discussion." \[[RED](http://www.rediff.com/news/sep/05varsha.htm) 2005 varShA\]
 
 ### Military and national Betrayal
 
 - Dominant Islamic thought requires betrayal of ones country to further the interests of Islam.
-- Examples of Military betrayal
-    - Betrayal of two Muslim commanders of Vijayanagara Army at key point in the battle, was the chief cause of the defeat in tAlikoTa. \[\]
-        - Rama Raya was not a Muslim hating figure.
-        - Primary sources :
-            - Federici Caesaro, the Venetian traveller reports on the betrayal of about 80k soldiers led by two captains.
-                - "Father Heras, in Page 211 of his 'Aravidu Dynasty' book, quotes a contemporary European named C. Frederick, 'who heard the account of whole action one year later when he passed through Vijayanagara'. Heras also mentions one Anquetil du Perron, another European of 16th century who wrote "the king \[Ramaraya\] abandoned during the battle by two Muhammadan chiefs, perished."." \[[MH17](http://www.madhvahistory.com/index.php/13-member-articles/accounts-of-empires-kingdoms/39-battle-of-talikota-completes-450-years)\]
-            - Tazkiratul – Muluk written by Rafiuddin Shirazi who wrote a history of his patron kings, the Adil Shahis of Bijapur. (Shirazi travelled from Persia and reached Bijapur in 1560.) makes no mention of them.
-            - Ferishta’s account does not mention them.
-        - Secondary sources:
-            - K A Nilakanta Shastri History of South India pg267
-            - Sitaram Goel [here](http://indiafacts.co.in/remembering-a-karmayogi/).
-            - [Dancing girl](http://books.google.com/books?id=980SAvbmpUkC&pg=PT269&lpg=PT269&dq=vijayanagara+betrayal+ramaraya+talikota&source=bl&ots=vA6xZ0z_oy&sig=PYpk1L1L9Z2hFXzs1_A2R-5behA&hl=en&sa=X&ei=EGTSU_TLJuH8igL78IGQBw&ved=0CEYQ6AEwBQ#v=onepage&q=vijayanagara%20betrayal%20ramaraya%20talikota&f=false).
-            - [Toshkana](http://toshkhana.wordpress.com/2011/10/28/last-of-the-rayas-an-eyewitness-account-of-the-defeat-and-death-of-rama-raya-of-vijaynagara-at-talikota/).
-    - Shah Waliullah of Delhi, a venerated scholar, invited Ahmad Shah Abdali of Afghanistan to attack the Maratha in third battle of Panipat and advised his collaborator Najib al Dawla to launch jehad against Jats. Excerpts:
-        - "…All control of power is with the Hindus because they are the only people who are industrious and adaptable.  Riches and prosperity are theirs, while Muslims have nothing but poverty and misery.  At this juncture you are the only person, who has the initiative, the foresight, the power and capability to defeat the enemy and free the Muslims from the clutches of the infidels.  God forbid if their domination continues, Muslims will even forget Islam and become undistinguishable from the non-Muslims" (Dr. Sayed Riaz Ahmad in his book 'Maulana Maududi and Islamic state' - Lahore People's Publishing House, page 15 - 1976). 
-        - "We beseech you in the name of Prophet to fight a jihad against the infidels of this region… The invasion of Nadir shah, who destroyed the Muslims, left the Marathas and Jats secure and prosperous.  This resulted in the infidels regaining their strength and in the reduction of Muslim leaders of Delhi to mere puppets" ( Shah Wali Allah and his times by Saiyid Athar Abbas Rizvi, page page305).
-    - Sabotage and desertion in the Indian National Army (INA) - [TW15](https://twitter.com/Rjrasva/status/589763559522963456?s=09).
-        - Recruitment to safeguard muslim interests [TW](https://twitter.com/Rjrasva/status/589762467238129664). 
-        - Later ex-INA servicemen were used by pAkistAn in their kAshmIr plunder \[[ChFair](http://i.imgsafe.org/e9b1431594.jpg)\]. "In 1947, Bhimber Tehsil had 35% Hindus + Sikhs. Habibur Rehman, a former aide of Subhas Bose launched a Kabali Jihad on Bhimber."  
-            
-        -   
-            
-    - Sabotage, defection and revolt of Gilgit scouts, frontier Gilgit rAja-s and the Poonchi muslim troops of Narain singh - [TW16](https://twitter.com/maidros78/status/769913255766683649).
-    - Officer Nidal Malik Hasan's shooting spree in a US army base \[[wiki](https://en.wikipedia.org/wiki/Nidal_Malik_Hasan)\].
-- Examples of national betrayal
-    - Sardar Patel (?) asks how the Muslims remaining in India after partition suddenly claim loyalty to India: [https://youtu.be/Cgr-4hQQgBA](https://youtu.be/Cgr-4hQQgBA)
-    - An overwhelming majority of muslims declared their unwillingness to live in a hindu majority democracy and ushered in the partition. Alas, a significant fraction of them stayed back anyway.
-    - > [![](https://i.imgur.com/NxVDpC9.jpg)](https://i.imgur.com/NxVDpC9.jpg)
-        
-    
+
+#### Vijayanagara
+- Betrayal of two Muslim commanders of Vijayanagara Army at key point in the battle, was the chief cause of the defeat in tAlikoTa. \[\]
+- Rama Raya was not a Muslim hating figure.
+- Primary sources :
+    - Federici Caesaro, the Venetian traveller reports on the betrayal of about 80k soldiers led by two captains.
+        - "Father Heras, in Page 211 of his 'Aravidu Dynasty' book, quotes a contemporary European named C. Frederick, 'who heard the account of whole action one year later when he passed through Vijayanagara'. Heras also mentions one Anquetil du Perron, another European of 16th century who wrote "the king \[Ramaraya\] abandoned during the battle by two Muhammadan chiefs, perished."." \[[MH17](http://www.madhvahistory.com/index.php/13-member-articles/accounts-of-empires-kingdoms/39-battle-of-talikota-completes-450-years)\]
+    - Tazkiratul – Muluk written by Rafiuddin Shirazi who wrote a history of his patron kings, the Adil Shahis of Bijapur. (Shirazi travelled from Persia and reached Bijapur in 1560.) makes no mention of them.
+    - Ferishta’s account does not mention them.
+- Secondary sources:
+    - K A Nilakanta Shastri History of South India pg267
+    - Sitaram Goel [here](http://indiafacts.co.in/remembering-a-karmayogi/).
+    - [Dancing girl](http://books.google.com/books?id=980SAvbmpUkC&pg=PT269&lpg=PT269&dq=vijayanagara+betrayal+ramaraya+talikota&source=bl&ots=vA6xZ0z_oy&sig=PYpk1L1L9Z2hFXzs1_A2R-5behA&hl=en&sa=X&ei=EGTSU_TLJuH8igL78IGQBw&ved=0CEYQ6AEwBQ#v=onepage&q=vijayanagara%20betrayal%20ramaraya%20talikota&f=false).
+    - [Toshkana](http://toshkhana.wordpress.com/2011/10/28/last-of-the-rayas-an-eyewitness-account-of-the-defeat-and-death-of-rama-raya-of-vijaynagara-at-talikota/).
+
+#### Abdali invitation
+- Shah Waliullah of Delhi, a venerated scholar, invited Ahmad Shah Abdali of Afghanistan to attack the Maratha in third battle of Panipat and advised his collaborator Najib al Dawla to launch jehad against Jats. Excerpts:
+    - "…All control of power is with the Hindus because they are the only people who are industrious and adaptable.  Riches and prosperity are theirs, while Muslims have nothing but poverty and misery.  At this juncture you are the only person, who has the initiative, the foresight, the power and capability to defeat the enemy and free the Muslims from the clutches of the infidels.  God forbid if their domination continues, Muslims will even forget Islam and become undistinguishable from the non-Muslims" (Dr. Sayed Riaz Ahmad in his book 'Maulana Maududi and Islamic state' - Lahore People's Publishing House, page 15 - 1976). 
+    - "We beseech you in the name of Prophet to fight a jihad against the infidels of this region… The invasion of Nadir shah, who destroyed the Muslims, left the Marathas and Jats secure and prosperous.  This resulted in the infidels regaining their strength and in the reduction of Muslim leaders of Delhi to mere puppets" ( Shah Wali Allah and his times by Saiyid Athar Abbas Rizvi, page page305).
+
+#### INA sabotage and desertion
+- Sabotage and desertion in the Indian National Army (INA) - [TW15](https://twitter.com/Rjrasva/status/589763559522963456?s=09).
+- Recruitment to safeguard muslim interests [TW](https://twitter.com/Rjrasva/status/589762467238129664). 
+- Later ex-INA servicemen were used by pAkistAn in their kAshmIr plunder \[[ChFair](http://i.imgsafe.org/e9b1431594.jpg)\]. "In 1947, Bhimber Tehsil had 35% Hindus + Sikhs. Habibur Rehman, a former aide of Subhas Bose launched a Kabali Jihad on Bhimber."  
+
+#### Gilgit scouts
+- Sabotage, defection and revolt of Gilgit scouts, frontier Gilgit rAja-s and the Poonchi muslim troops of Narain singh - [TW16](https://twitter.com/maidros78/status/769913255766683649).
+- Officer Nidal Malik Hasan's shooting spree in a US army base \[[wiki](https://en.wikipedia.org/wiki/Nidal_Malik_Hasan)\].        
+
+
+#### Pakistan creation and the fifth column
+- An overwhelming majority of muslims declared their unwillingness to live in a hindu majority democracy and ushered in the partition. Alas, a significant fraction of them stayed back anyway to form an inimical fifth column sympathetic to Pakistan.
+  - In the 1946 provincial assembly elections, the Muslim League captured 4.5 million of about 6 million Muslim votes. So, 75% of Indian Muslims voted for the Muslim League and its demand for Pakistan. (One can probably even dig up district-wise statistics. I recall it was 90% of UP, Delhi.) But 75% of Indian muslims in various regions did not go to pAkistan despite voting for it. Though a small "elite" fraction of the adult population were eligible to vote - one can hardly say that this sample was not representative of the rest of the muslim population. 
+  - > [![](../../../../../images/snippets/muslim-seats-1946.jpg)](../../../../../images/snippets/muslim-seats-1946.jpg)
+  - [Indian annual register 1946 v1 p229](https://archive.org/details/in.ernet.dli.2015.45831/page/n243)
+- Sardar Patel (Calcutta maidan 03-Jan-1948) asked how the Muslims remaining in India after partition suddenly claim loyalty to India: [YT1](https://www.youtube.com/watch?v=x1URZmiFsUg)
+
+
+#### Contrast with others
 - Contrast with military betrayals by followers of other belief systems:
     - Buddhist betrayal of their nation is rare and is contrary to buddha's teachings.
 
-  
 
 ### Other Government harrassment of infiedels
 
