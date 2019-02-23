@@ -77,26 +77,8 @@ contents:
           - url: dir://main/social-cultivation/dharma
       - url: dir://main/social-cultivation/
       - title: Caste, Clan जातिः वर्णः च
-        url: /main/social-cultivation/clan.md
         contents:
-          - title: Genetics
-            url: /main/social-cultivation/clan/genetics.md
-          - title: Settlement of India
-            url: /main/social-cultivation/clan/india-entry.md
-          - title: varNa theory
-            url: /main/social-cultivation/clan/varna-theory.md
-          - title: varNa practice
-            url: /main/social-cultivation/clan/varna-practice.md
-          - title: vanavAsI-s
-            url: /main/social-cultivation/clan/vanavaasii.md
-          - title: Criticism and Counters
-            url: /main/social-cultivation/clan/criticism.md
-          - title: varNavatI वर्णवती
-            url: /main/social-cultivation/clan/varnavatii.md
-          - title: Modern caste politics
-            url: /main/social-cultivation/clan/modern-caste-politics.md
-          - title: Future
-            url: /main/social-cultivation/clan/future.md
+          - url: dir://main/social-cultivation/clan/future.md
   - title: अर्थः Resources
     contents:
       - url: dir://main/resources/
