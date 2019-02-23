@@ -2,7 +2,7 @@
 title: Good-muslim con
 ---
 
-[![](../../../../images/islamic-public-execution.jpg)](../../../../images/islamic-public-execution.jpg)
+[![](../../../../images/islamic-public-execution.jpg)](../../../../../images/islamic-public-execution.jpg)
 
 ## Good muslim con
 
