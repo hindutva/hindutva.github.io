@@ -7,7 +7,7 @@ contents:
   - title: Hinduism
     contents:
       - title: Intro
-        url: /main/hinduism/introduction.md
+        url: /main/hinduism/
       - title: Religion?
         url: /main/hinduism/religion.md
       - title: Benefits
@@ -49,7 +49,7 @@ contents:
   - title: Self-cultivation संस्काराः
     contents:
       - title: Introduction
-        url: /main/self-cultivation/introduction.md
+        url: /main/self-cultivation/
       - title: Rituals
         url: /main/self-cultivation/rituals.md
       - title: Mantra and Yantra
@@ -57,7 +57,7 @@ contents:
       - title: Communal support
         contents:
           - title: Introduction
-            url: /main/self-cultivation/communal-support/introduction.md
+            url: /main/self-cultivation/communal-support/
           - title: Exclusivity अधिकार-भेदः
             url: /main/self-cultivation/communal-support/exclusivity.md
           - title: Being different
