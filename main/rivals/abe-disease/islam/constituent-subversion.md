@@ -11,12 +11,6 @@ Muslim society has a pernicious effect on non-muslim (especially polytheistic) s
     - Claims such as "there were no hindu-muslim riots before the British era", or "our temples were destroyed by armies and tyrants alone, none by ordinary rioters" are false. (Eg.[K](http://manasataramgini.wordpress.com/2013/07/22/a-sayyid-kills-a-kashmirian-yogin/),)
     - Many of the "battles" quoted in early islamic history are actually best charactarized as riots, with 10-200 hooligans fighting pagans.
 - The "victim narrative" is applied to generate anger and a pan-islamic response.
-    - This often involves crafting a narrative around events taken out of context.
-        - Eg. Babri masjid demolition, the video of an army killing a mujAhid point-blank in a house it destroyed in a fight.
-    - At other times, it involves outright fakery and lies.
-        - In modern times:
-            - Fake images of Ronghiya persecution in Burma
-                - Fake image of a supposedly ronghiya child suckling at the breast of a dead woman (turns out to be from a nepAlI movie). \[[NepMovFake](http://www.reddit.com/r/1000words/comments/1cwrm1/burman_child_tries_to_drink_from_his_dead_mothers/)[FB2015](https://www.facebook.com/shruti.jagdeesh/posts/10155560799370133)[BBC2015](http://www.bbc.com/news/blogs-trending-32979147)\].
 - Military betrayal (described below).
 
 
@@ -91,6 +85,11 @@ A summary from @parikramah:
 ### Other history
 - Muslim response to Hindu patronage and protection \[[VoD](http://voiceofdharma.org/books/htemples2/ch3.htm)\].
 - Repeated moplah outrages in keraLa 1849-1923. [Tw](https://twitter.com/dasyavevrka/status/629284144023908352/photo/1), [TwImg](http://i.imgur.com/sSZ4d6k.png), [GB](https://books.google.com/books?id=75ZeAAAAcAAJ&pg=PA30&lpg=PA30&dq=%22levied+loans+from+rich+Hindoos%22&source=bl&ots=4TSs_tdQyK&sig=Mavcs1U8ZZPp-lbwEMdFEHrbDw4&hl=sa&sa=X&ved=0CBsQ6AEwAGoVChMItPbWnJCVxwIVWCqICh2SIQqL#v=snippet&q=destroyed&f=false).
+
+- As treacherous neighbors
+    - During the 2014-15 attacks of the Islamic State in Iraq and Syria on Yazidis and Christians:
+        - "Worst killings came from our (Sunni) Muslim neighbors".. (Yazidi [report](http://news.yahoo.com/iraq-yazidis-neighbours-enabled-jihadist-attack-095139064.html), [Vid1](https://twitter.com/Thawra_city/status/871289293146267649), Christian confirmation: [memri1](http://www.memri.org/clip_transcript/en/4414.htm), [memri2](http://www.memri.org/clip/en/0/0/0/0/0/0/4414.htm), ([MEF2015](http://www.meforum.org/5371/why-muslims-bad-neighbors))).
+    - This was also observed during the partition of India (FB15).
 
 ### Contrast with others
 - Contrast with military betrayals by followers of other belief systems:

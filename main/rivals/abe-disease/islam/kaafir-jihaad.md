@@ -2,7 +2,7 @@
 title: War on infiedels
 ---  
 
-### Motivating Concepts
+## Motivating Concepts
 
 - Motivating Terrorism
     - KE: "Thus, when Mohammed Atta, Mohammed Bouyeri and hundreds of other Muslim terrorists declare in their farewell letters/videos that their motive is Islam, we have to believe them. But when they talk about Islam, claiming that their own interpretation is the same as Prophet Mohammed’s, we have to ascertain for ourselves the truth of that claim. And then we find that Prophet Mohammed’s intention was indeed closer to al-Qaeda’s than to that of the Sufis, a movement which invokes Quranic authority but was quite unknown in Mohammed’s day."
@@ -13,26 +13,29 @@ title: War on infiedels
     - "Now that it has taken Dabiq, the Islamic State awaits the arrival of an enemy army there, whose defeat will initiate the countdown to the apocalypse." \[[ISIS1](http://www.theatlantic.com/features/archive/2015/02/what-isis-really-wants/384980/)\]
 - Extra-territorial loyalty.
     - Prominent Indian Muslim leaders speak about Hindus and India: [IF15](http://indiafacts.co.in/prominent-indian-muslim-leaders-speak-about-hindus/).
-- Fostering the victim mentality.
-    - Ronghiya muslims were repressed in Burma. Among lies that circulated included a child suckling on a dead woman - turns out it was from a Nepali movie "Shirish Ko Phool" \[[R](http://www.reddit.com/r/1000words/comments/1cwrm1/burman_child_tries_to_drink_from_his_dead_mothers/)\].
-- As treacherous neighbors
-    - During the 2014-15 attacks of the Islamic State in Iraq and Syria on Yazidis and Christians:
-        - "Worst killings came from our (Sunni) Muslim neighbors".. (Yazidi [report](http://news.yahoo.com/iraq-yazidis-neighbours-enabled-jihadist-attack-095139064.html), [Vid1](https://twitter.com/Thawra_city/status/871289293146267649), Christian confirmation: [memri1](http://www.memri.org/clip_transcript/en/4414.htm), [memri2](http://www.memri.org/clip/en/0/0/0/0/0/0/4414.htm), ([MEF2015](http://www.meforum.org/5371/why-muslims-bad-neighbors))).
-    - This was also observed during the partition of India (FB15).
 
-### Glacial and whirlwind modes
+### Fostering the victim mentality.
+
+#### Techniques
+
+- Omission of the first offense - 
+  - Forgetting Godra train burning in case of gurjarat riots.
+  - Eg. Forgetting the initial destruction of rAm temple in case Babri masjid demolition
+- Fake images of Ronghiya persecution in Burma
+    - Fake image of a supposedly ronghiya child suckling at the breast of a dead woman (turns out to be from a nepAlI movie). \[[NepMovFake](http://www.reddit.com/r/1000words/comments/1cwrm1/burman_child_tries_to_drink_from_his_dead_mothers/)[FB2015](https://www.facebook.com/shruti.jagdeesh/posts/10155560799370133)[BBC2015](http://www.bbc.com/news/blogs-trending-32979147)\].
+
+## Glacial and whirlwind modes
 
 "To use someone’s words marūnmāda can advance both as a glacier and a whirlwind. We can see both strategies simultaneously at play. For example, the Moslem Brotherhood takes the glacial approach whereas the Khilafat under Dr. Abu Bakr takes the whirlwind approach. The same marūnmatta group can shift from one approach to another depending on the opportunities. Moreover, virulent strains of marūnmāda can persist even after a defeat with alternative strategies. For example Abd al-Wahab and Muhammad bin Saud and their successors founded the hellhole of Saudi Arabia by means of whirlwind Jihad campaigns paralleling those of Abu Bakr’s Khilafat of today. Their atrocities in Iraq by described the English observers are no different from those of the current Khilafat or any other Jihad. But the Osman Khilafat saw them as competitors and together with their Egyptian allies crushed the Saud. Then the Saud shifted gears to being quiescent like bacteria expressing the toxins from a toxin-antitoxin system until eventually they had the classic opportunity of a mleccha-marūnmattābhisaṃdhi to ally with the Anglosphere, reestablish their power and regain most of their territory." \[[MT16](https://manasataramgini.wordpress.com/2016/07/09/a-geopolitical-package-july-2016/)\]
 
-### Expulsion
+## Expulsion
 
 - Yazidis forced to flee by ISIS.
 - kAshmIri paNDits forced to flee by local muslims + militants.
     - Anupam Kher 2016 TN [here](https://www.youtube.com/watch?v=nRNo6bqbThI).
 - bengali hindu-s forced to flee bangladesh by local muslims + pAkistani army.
 
-###   
-Genocide
+## Genocide
 
 - "Sultan Tughlak's systematic slaughter of Hindus. It is recorded that in the 12th or 13 century Sultan Firoz Shaw invaded Bengal and offered a reward for every Hindu head, subsequently paying for 180,000 of them. Whenever in his territory the number of Hindus killed in one day totaled 20,000, Sultan Ahmad Shah celebrated with a three-day feast." Durant (1954, p. 461) quoted [here](http://hawaii.edu/powerkills/DBG.CHAP3.HTM).
 - Mass murder of non-compliant Yazidi-s by ISIS (2014). \[[slaughter](http://www.reuters.com/article/2014/08/18/us-iraq-security-yazidis-idUSKBN0GI1QK20140818?feedType=RSS&feedName=worldNews)\]
@@ -41,7 +44,7 @@ Genocide
     - kalAsha:
         - "Most of these people were exterminated in 1895-96 by Mohammedans after the Durand line was drawn. A few 1000 Kalash remained as they fell on the British Indian side of the Durand line. Nuristan (province of light) was then called Kafiristan." - SP.
 
-### Castration, rape and enslavement.
+## Castration, rape and enslavement.
 
 - Ibn Khaldun \[[IMG](http://i.imgsafe.org/63eaa8e442.png)\]  
     
