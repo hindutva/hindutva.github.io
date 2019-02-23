@@ -39,3 +39,12 @@ RoP is a memetic (ie mental) disease of epidemic proportions. It CANNOT coexist 
 - 2014: Europe Face veil summary \[[bbc](http://www.bbc.com/news/world-europe-13038095)\].
 - 2011: France bans face veils \[[wiki](https://en.wikipedia.org/wiki/French_ban_on_face_covering)\].
 - Examples of more severe repression:
+
+## Historical Hindu response
+
+- See [here](../../abe-disease/).
+
+## Military response
+
+- "Biggest defeats of sullas were 1) Mongols 2) Spanish 3) Qing (80% of sullas in empire died when curbing Dungan, Panthay etc)." \[[TW](https://twitter.com/search?src=typd&q=from%3Arjrasva%20dungan)\]
+- Hindu military response see [here](../../../../polity/external-affairs/defence/).
