@@ -4,6 +4,9 @@ title: Intro
 
 TL;DR : Muslim society is undesirable, despite a supposedly tolerant yet silent majority.
 
+## Intro
+Islam is the third major strain of Abraham's disease, where a "bug" in the previous versions (that there can be multiple prophets) was fixed by making Muhammad the final prophet. 
+
 ## Disclaimers and clarifications
 
 - We are not saying that all muslims are bad people - many are sensible enough not follow the example of their prophet or strictures of Qur'an. Yet, we say that Islam is a vile ideological disease, and should be contained for our own sake.
