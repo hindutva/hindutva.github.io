@@ -14,7 +14,7 @@ Details follow.
 ### Outlier nature
 
 - "Good" acts of muslims towards kufr, even when taken at face value (ie not taqiyyah), are notable precisely because they are extraordinary.
-- Islam severely impedes the ability of muslims to sympathize with kufr interests, just as loss of a limb severely impedes the ability of handicapped people to do mountaineering. What is perfectly natural for a normal person is extraordinary for such a person. The extraordinary muslim who is good to kufr interests may be noted with excitement just as the extraordinary handicapped person climbing mount Everest. It is foolish to conclude from such examples that "loss of limb" is no serious impediment to mountaineering.
+- Islam severely impedes the ability of muslims to sympathize with kufr interests, just as loss of a limb severely impedes the ability of handicapped people to do mountaineering. What is perfectly natural for a normal healthy person is extraordinary for such a person. The extraordinary muslim who is good to kufr interests may be noted with excitement just as the extraordinary handicapped person climbing mount Everest. It is foolish to conclude from such examples that "loss of limb" is no serious impediment to mountaineering.
 
 ### Limited potency of the mildly infected
 
