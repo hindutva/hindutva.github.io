@@ -7,27 +7,19 @@ TL;DR : Muslim society is undesirable, despite a supposedly tolerant yet silent
 
 ## Disclaimers and clarifications
 
-- Personal Disclaimer:
-    - I am not saying that all muslims are bad people - many are sensible enough not follow the example of their prophet or strictures of Qur'an. Yet, I say that Islam is a vile ideology.
-    - Please don't presume to psychoanalyze me and read hatred of muslims. On the contrary, I have no problems empathizing with Muslims at a human level. It is by a good accident of birth that I was not born a muslim. I grew up with muslim friends, and have had many polite (sometimes frank) conversations with muslims.
-        - I have received help from and have helped muslims. Further, I understand that Islam is not the only motivator of the good and bad actions of muslims.
+- We are not saying that all muslims are bad people - many are sensible enough not follow the example of their prophet or strictures of Qur'an. Yet, we say that Islam is a vile ideological disease, and should be contained for our own sake.
+- Please don't presume to psychoanalyze me and read hatred of muslims. On the contrary, we have no problems empathizing with Muslims at a human level. It is by a good accident of birth that I was not born a muslim. Many of us grew up with muslim friends, and have had many polite (sometimes frank) conversations with muslims.
+    - We have received help from and have helped muslims. Further, we understand that Islam is not the only motivator of the good and bad actions of muslims.
 - Our judgement of Islam is not restricted to what its liberal or the terrorist extremes do - it includes the entire spectrum (= probability distribution) of behavior observed in Muslims and Muslim societies.
 
 ## Undesirability of Muslim society
 
-- Muslim society has a pernicious effect on non-muslim (../especially polytheistic) societies. These are detailed in a [separate section](constituent-subversion/).
-- A muslim society is, in the long term, bad for the muslim population itself, due to:
-    - Misogyny taking many forms: Forced veil for women, Taharroush rape game, female genital mutiliation.
-    - Opposition to free spirited scientific enquiry in general. Consequently, we have:
-        - Lowering of fitness and IQ of offspring due to obstinate inbreeding (pAkistAni muslims vs bAnglAdeshis and Indians [here](http://www.unz.com/gnxp/the-cost-of-inbreeding-in-terms-of-health/?utm_source=twitterfeed&utm_medium=twitter&utm_campaign=the-cost-of-inbreeding-in-terms-of-health).)
-    - Islam is bloody within and without. So, muslims tend to fight each other to death about what "true islam" is and who is a "heretic".
-    - Opposition to joy of many types, and increase in "victimless crimes" at worst, or a schizophrenic acceptance at best extending to even allowance of child abuse (eg. stringed instruments, homosexuality [here](https://storify.com/Parikramah/history-of-lgbt-flourishing-within-islam), bestiality [here](http://i.imgur.com/4K2jDFq.jpg)).
+- Muslim society has a pernicious effect on non-muslim (especially polytheistic) societies. These are detailed in a [separate section](../constituent-subversion/).
+- Muslim society is bad for muslims themselves, in the long run. More in the [fitness-effect page](../fitness-effect/).
 
 #### Political demography of muslims
 
 [![](http://i.imgur.com/xczglD1.jpg)](http://i.imgur.com/xczglD1.jpg)
-
-  
 
 - In a muslim society, these numerous tolerant muslims tend not to successfully challenge those idiots that stick to their constitution (Quran, Hadith etc..) - as observing Terrorist state of Pakistan, Afghanistan, Iran, Saudi Arabia etc.. (as of 2014) will reveal. Rather, they tend to mostly cooperate (with or without misgivings) in heinous acts. So, it certainly matters what the RoP holy books say.
     - Ridiculous fatwas (judicial opinions of mullah-s/ ulema-s) continue to be issued \[See[Arun Shourie's take](https://www.youtube.com/watch?v=0iVIec5e3_0&feature)\] around the muslim world. Yes, this "high literature" does influence the lives and attitudes of muslims.
@@ -48,22 +40,6 @@ TL;DR : Muslim society is undesirable, despite a supposedly tolerant yet silent
     - UK muslims survey [here](https://www.youtube.com/watch?v=xQcSvBsU-FM).
     - Brigitte Gabriel response [here](http://ozziesaffa.blogspot.com/2014/06/i-bet-she-regrets-asking-her-question.html).
     - Sam Harris's just clarification of the "criticizing Islam/ muslims is over-generalization" trope - [debate video](https://www.youtube.com/watch?v=lAob0bCWpv4#t=13).
-
-#### Analysis of effect on fitness
-
-- Summary by @rjrasva
-    - When Mohammedans r embedded in a population enthralled by limp ideologies liberalism, feminism, objectivism etc. It can actually enhance /1   the fitness of a # of them & their group. **Kufr produces wealth for them to produce kids**, or they may be inspired to acts of jihad like /2   capturing kufr women & produce kids thru them. (Parallel in early christianity - [IMG](http://i.imgur.com/yluN9Ak.png))
-    - Of course they may also be inspired to acts of ghazawat like the London fellow, if he had /3   no kids, then his act would have nullified his fitness though **the meme would have spread itself by inspiring more to become ghazis**.
-    - But /4   **as the kufr population diminishes, the benefits also come down** as less kufr to produce wealth for him to feast on, less kufr women to /5   capture etc.
-    - Eventually the **returns may become -ve after every1 becomes Mohammedan** as they will then turn to slaughtering each other on /6   who the \*true\* Mohammedans r. 
-    - There is also the **pyramid scheme element**, those who enter earlier (e.g. Arabs) get greater benefits. Thus a /7   recent Black African convert will enter as a lowly foot soldier, he won't be getting a train full of bibi's like the arab sheikhs. Recent /8   e.g. is IS using subcontinental recruits for toilet cleaning or tricking them into suicide bombings while giving > status to Arabs. /end
-- "1) **When there is a large uninfected population in the vicinity then infection by khilimoha might benefit the individua**l because it induces him to perform acts of ghazwat that allows him to capture women from the uninfected and increase his fitness by fathering offspring on them. However, as this population decreases then there are diminishing returns for ultimately the sex ratio always tends to 1. A situation much like there being few or no bacteria in their given space of existence that lack the bacteriocin plasmid. No fitness gain, perhaps only loss. But this might trigger warfare within the khilimohita population resulting in deaths that could bring down fitness." \[[MT13](https://manasataramgini.wordpress.com/2013/07/20/khilonmada-charcha/)\]
-- "2) If an uninfected individual voluntarily contracts khilonmAda hoping that it might enhance his fitness, in most cases this was unlikely to be the case. For much of its existence khilonmAda ran as a pyramid scheme. Those who got it first benefit the most and at the expense of those who got in latter. For example, if a guy decided to become **khilonmadita he is most likely to enter as a lowly ajlaf rather than as an ashraf, a sheikh or an amir**. Indeed he was most likely to be cannon fodder who became a shahid with nullified fitness in a Jihad rather than being the recipient of a train of bibi-s to spend his nights enhancing his fitness. This situation is illustrated on multiple occasions in the history of marUnmAda in the subcontinent of jambudvIpa. For example, at the root of the split of the Bahmanid empire in Southern India was the conflict between the Deccani marUnmatta-s and the amirs and sheikhs arriving from the maru and central Asia. Despite having become marUnmatta-s the Deccanis were hardly getting much traction in terms of accruing benefits that might enhance their fitness – these instead went to the big beards arriving from abroad. Closer to our times one could cite the example of how Sajid Mir enhanced his fitness while his infected stooges, the merry Bombay blasters, brought theirs down to zero. Here, their fitness erasure was directly induced by the khilonmAda but their brains being spilled on the streets of Mumbai did not damage khilonmAda in any serious way." \[[MT13](https://manasataramgini.wordpress.com/2013/07/20/khilonmada-charcha/)\]
-- "One could argue that the infection of a group by khilonmada provides a **virtual kin marker**, i.e. makes them feel like an in-group against the background of uninfected individuals who have no specially identity. This situation might be compared to certain mobile genetic elements encoding proteins that allow organisms to distinguish themselves from their conspecifics and act beneficially towards and self-sacrifice for others bearing the same genetic element but not the general background of conspecifics. This could initially enhance the fitness of that group infected by that genetic element as opposed to those which are not. But in this group selection scenario the individual’s fitness is not necessarily raised but those of the group and the khilimoha meme-complex are. This might **help survival of the group in the short term but as everyone in the niche becomes infected then the utility of the meme-complex for the group diminishes or vanishes**. The infection of the Chechens in the Caucasus could be presented as an example of this. The reason it seems to work well for them is that they are surrounded by a large population of the uninfected. The same phenomenon might also be invoked in the case of accommodation of marUnmAda by parameshvara in Malaysia, the eventual conversion of his son late in is life and the events set in motion by it in the far east. In this context one could also bring up the case of the pA~nchanada-uShnIShamoha. This moha emerged as result of part but not whole of the khilimoha infecting the Hindu population of the pa~nchanada. The result was the emergence of a new recombinant memetic virus, the uShnIShamoha that retained the self-propagating tendencies of the original khilimoha. This infection was very mild in terms of fitness reduction, but provided a strong virtual kin marker that allowed the infected group to prevail and spread at the expense of the Hindus of the pa~nchanada also offered protection to the infected against being overrun by the spreading khilimoha. But as its numbers increased its utility as such a virtual kin marker diminished. Nevertheless, it continues to serve this purpose to a degree in new areas colonized by its carriers, such as North America." \[[MT13](https://manasataramgini.wordpress.com/2013/07/20/khilonmada-charcha/)\]
-- \[[MT13](https://manasataramgini.wordpress.com/2013/07/20/khilonmada-charcha/)\] "Would it make sense for individuals from a well-structured heathen society to get infected by the khilimoha? Would it enhance their fitness?"
-    - "There is a romantic view presented by apologists of the khilimoha that it helped emancipate the lower rungs of the social pyramid of heathen societies that were assailed by it. What is not told (in large part because of other modern constructs) is that the old well-structured heathen societies were reasonably well-adapted for their chosen lifestyles. Their pyramidal structure was not in large part a system for exploitation of those at the bottom by those at the top but more of a meritocracy contingent on the genetic foundations of their human resources. Thus, those at the bottom of the hierarchy were often enriched in traits that would preclude high power cognitive performance needed for complex tasks. Given this situation, their conversion to khilimoha would have hardly enhanced their fitness. If anything it might have depressed it by making them shahids for the jaysh al Islam. Moreover, khilonmAda has the quality of **destroying structure within societies it conquests** because it has a rather simple social model." \[[MT13](https://manasataramgini.wordpress.com/2013/07/20/khilonmada-charcha/)\]
-    - "Thus, conversion of individuals form a pagan society to the rAkShasamata results in their being **uprooted from their social scaffold** as well as, to a degree, their **organic connections to the land**. This could result in a reduction of their fitness. For example, the break down of Hindu social structure with the spread of Islam resulted in much lower capability to withstand famine from El Niño oscillations. Thus larger numbers of those who had converted to Islam in the Bahmanid sultanate perished (e.g. the durgAdevI famine)." \[[MT13](https://manasataramgini.wordpress.com/2013/07/20/khilonmada-charcha/)\]
-    - "This possibly explains why **most pagan societies fought the coming of the khilimoha tooth-and-nail** before it was forcibly thrust upon them by military defeat. If not, it seized them during period of social decline and breakdown – again a phenomenon prevalent during the take over of the far east. Finally, given that the rAkShasamata is bloody both within and without (to paraphrase Samuel Huntington) it confers an edge if it surrounded by and confronting memetically weakened competitors. However, if it is the only dominant force then it will **inexorably draw the society to a “basket case”** (think Somalia, Sudan and an Arab world without bhUmitaila) that might have a lower average fitness for an individual than a well ordered heathen society." \[[MT13](https://manasataramgini.wordpress.com/2013/07/20/khilonmada-charcha/)\]
 
 ### Consciousness of demographic projection differences
 
@@ -198,27 +174,6 @@ See [here](../constituent-subversion/).
 - Ambedkar famously [pointed](http://www.ambedkar.org/pakistan/40C.Pakistan%20or%20the%20Partition%20of%20India%20PART%20II.htm) out:
     - As the invasions were accompanied with. destruction of temples and forced conversions, with spoliation of property, with slaughter, enslavement and abasement of men, women and children, what wonder if the memory of these invasions has ever remained green, as a source of pride to the Muslims and as a source of shame to the Hindus ?
     - The only way to make Hindustan homogeneous is to arrange for exchange of population. Until that is done, it must be admitted that even with the creation of Pakistan, the problem of majority vs. minority will remain in Hindustan as before and will continue to produce disharmony in the body politic of Hindustan.
-
-## What can we do?
-
-- Understand the enemy
-    - Understand the relentless nature of the Islamic desire to be to overcome all non-muslims. 
-    - Understand the glacial and whirlwind approaches of Islam. So, Islamo-fascism, like terrorism, is antifragile.
-- Anticipate a long struggle
-    - "Thus, any campaign with marūnmāda is not finished with the killing of this or that marūnmatta. Certainly, their prominent leaders need to be constantly targeted and comprehensively eliminated. But this in itself gets one nowhere closer to victory. Instead any group which wishes to survive marūnmāda needs to prepare itself for an arms-race on an evolutionary scale, like the ceaseless war between bacteria and their viruses which has been going on for more than three billion years." \[[MT16](https://manasataramgini.wordpress.com/2016/07/09/a-geopolitical-package-july-2016/)\]
-    - NN Taleb on how to deal with such - [NNT16](https://twitter.com/nntaleb/status/776691991887347713) [NNT16](http://i.imgur.com/t0fFA6d.jpg). You should not look for mitigation, rather focus on eradication.
-- Support apostasy among muslims.
-    - [Ex muslims of North America](http://www.exmna.org/). UK.
-    - The emotional and physical challenges to being an Ex-Muslim, especially woman - [YT15](https://www.youtube.com/watch?v=aW7wRfuSw0A).
-- Support subversion of Islam into a \*definitely\* more benign ideology.
-    - No half-measures - this necessarily involves questioning and rejecting the authority of the quran and the hadith. One can claim things such as:
-        - Much islamic scripture was composed centuries after muhammad's death. So, they should be rejected. (Eg. Tarek Fatah [here](http://tarekfatah.com/what-is-the-difference-between-a-muslim-and-an-islamist/))
-        - Islam was originally polytheist and tolerant, but was transformed by muslims after muhammad's death.
-- Boldly speak the truth about Islamo-fascism.
-    - Parodies
-        - Islam of rasgolla ([WP15](https://agnimaan.wordpress.com/2015/12/06/welcome-to-the-true-islam/)).
-- Koenraad's recommendations [here](http://koenraadelst.blogspot.com/2014/12/the-gentle-cure-for-intolerance.html).
-- Consider how communism came to be defeated/ diluted. Confrontation by arms. \[Incomplete.\]
 
 ### Apostates:
 
