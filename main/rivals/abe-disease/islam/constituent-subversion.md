@@ -5,7 +5,7 @@ title: Subversion as a constituent
 
 ## Intro
 
-Muslim society has a pernicious effect on non-muslim (especially polytheistic) societies. 
+Muslim society has a pernicious effect on non-muslim (especially polytheistic) societies. This is the cost of the short-term fitness-gain of the muslim pyramid scheme, as described in the [fitness-effect page](../fitness-effect/).
 
 - Even when muslims are in the minority, the riot-manual injunctions of[sura At-Tawba](http://en.wikipedia.org/wiki/At-Tawba)have been realized repeatedly.
     - Claims such as "there were no hindu-muslim riots before the British era", or "our temples were destroyed by armies and tyrants alone, none by ordinary rioters" are false. (Eg.[K](http://manasataramgini.wordpress.com/2013/07/22/a-sayyid-kills-a-kashmirian-yogin/),)
@@ -18,16 +18,17 @@ Muslim society has a pernicious effect on non-muslim (especially polytheistic) s
             - Fake images of Ronghiya persecution in Burma
                 - Fake image of a supposedly ronghiya child suckling at the breast of a dead woman (turns out to be from a nepAlI movie). \[[NepMovFake](http://www.reddit.com/r/1000words/comments/1cwrm1/burman_child_tries_to_drink_from_his_dead_mothers/)[FB2015](https://www.facebook.com/shruti.jagdeesh/posts/10155560799370133)[BBC2015](http://www.bbc.com/news/blogs-trending-32979147)\].
 - Military betrayal (described below).
-- History:
-    - Muslim response to Hindu patronage and protection \[[VoD](http://voiceofdharma.org/books/htemples2/ch3.htm)\].
-    - Repeated moplah outrages in keraLa 1849-1923. [Tw](https://twitter.com/dasyavevrka/status/629284144023908352/photo/1), [TwImg](http://i.imgur.com/sSZ4d6k.png), [GB](https://books.google.com/books?id=75ZeAAAAcAAJ&pg=PA30&lpg=PA30&dq=%22levied+loans+from+rich+Hindoos%22&source=bl&ots=4TSs_tdQyK&sig=Mavcs1U8ZZPp-lbwEMdFEHrbDw4&hl=sa&sa=X&ved=0CBsQ6AEwAGoVChMItPbWnJCVxwIVWCqICh2SIQqL#v=snippet&q=destroyed&f=false).
 
-  
 
 ## Economic damage to society
 
 - Indian economic share went down due to the trauma of Islamic invasion. \[[At16](http://www.theatlantic.com/business/archive/2012/06/the-economic-history-of-the-last-2-000-years-in-1-little-graph/258676/)\]
 - [![](http://i.imgur.com/1ntHuop.png)](http://i.imgur.com/1ntHuop.png)
+
+### Economic punishment
+
+- About a certain Islamic ruler of India: "Muslims were exempted from paying the housetax and taxes on grain and other goods meant for their personal use. Hindus converting to Islam were exempted from specific taxes. Special attention was given to the education of Muslim children. Towards the end of his reign Muslims made up a very large majority of his senior most nobility."
+- "Or consider historian Prof. KS Lal’s works on caste and religion, refuting with primary data the seeming truism, launched by the Communist Party ideologue MN Roy and now omnipresent in the textbooks, that the lowest castes converted en masse to Islam because of its claimed message of equality. Islam mainly won over the urban middle castes (and not because of eguality, a value rejected as ingratitude towards the Dispenser of destinies in the Quran, but because of the privileges vis-à-vis non-Muslims), not the Untouchables. Again, the silent treatment has been the only response the “experts” could muster." \[[KE16](http://www.pragyata.com/mag/academic-bullies-278)\]
 
 ### Parasitic relation to the other
 
@@ -87,22 +88,22 @@ A summary from @parikramah:
   - [Indian annual register 1946 v1 p229](https://archive.org/details/in.ernet.dli.2015.45831/page/n243)
 - Sardar Patel (Calcutta maidan 03-Jan-1948) asked how the Muslims remaining in India after partition suddenly claim loyalty to India: [YT1](https://www.youtube.com/watch?v=x1URZmiFsUg)
 
+### Other history
+- Muslim response to Hindu patronage and protection \[[VoD](http://voiceofdharma.org/books/htemples2/ch3.htm)\].
+- Repeated moplah outrages in keraLa 1849-1923. [Tw](https://twitter.com/dasyavevrka/status/629284144023908352/photo/1), [TwImg](http://i.imgur.com/sSZ4d6k.png), [GB](https://books.google.com/books?id=75ZeAAAAcAAJ&pg=PA30&lpg=PA30&dq=%22levied+loans+from+rich+Hindoos%22&source=bl&ots=4TSs_tdQyK&sig=Mavcs1U8ZZPp-lbwEMdFEHrbDw4&hl=sa&sa=X&ved=0CBsQ6AEwAGoVChMItPbWnJCVxwIVWCqICh2SIQqL#v=snippet&q=destroyed&f=false).
 
 ### Contrast with others
 - Contrast with military betrayals by followers of other belief systems:
     - Buddhist betrayal of their nation is rare and is contrary to buddha's teachings.
 
 
-## Other Government harrassment of infiedels
-
-### Economic punishment
-
-- About a certain Islamic ruler of India: "Muslims were exempted from paying the housetax and taxes on grain and other goods meant for their personal use. Hindus converting to Islam were exempted from specific taxes. Special attention was given to the education of Muslim children. Towards the end of his reign Muslims made up a very large majority of his senior most nobility."
-- "Or consider historian Prof. KS Lal’s works on caste and religion, refuting with primary data the seeming truism, launched by the Communist Party ideologue MN Roy and now omnipresent in the textbooks, that the lowest castes converted en masse to Islam because of its claimed message of equality. Islam mainly won over the urban middle castes (and not because of eguality, a value rejected as ingratitude towards the Dispenser of destinies in the Quran, but because of the privileges vis-à-vis non-Muslims), not the Untouchables. Again, the silent treatment has been the only response the “experts” could muster." \[[KE16](http://www.pragyata.com/mag/academic-bullies-278)\]
-
 ## Inhibiting religious practice.
 
 - chaitanya-mangala, vijaya gupta's poem on Husain Shah summarized [here](http://i.imgur.com/Nktg3CY.png) ([book](http://www.voiceofdharma.org/books/siii/ch10.htm) \- Caveat: Goel [misattributes vijaya-gupta-quote](https://www.google.com/search?tbm=bks&q=The+wicked+mlechhas+pollute+the+religion+of+the+Hindus+every+day&cad=h) to gangAdEvI).
+
+## Consciousness of demographic projection differences
+
+- Erdogan to EU muslims: "make 5 kids" \[[E17](https://www.rt.com/news/381166-erdogan-turks-five-children/)\]  
 
 ## Temple and university destruction.
 
