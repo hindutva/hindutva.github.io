@@ -4,7 +4,7 @@ title: Treatment
 
 ## Broad goals
 
-RoP is a memetic (ie mental) disease of epidemic proportions. It CANNOT coexist with devadharma in the long run- one WILL have to give way to another. Carriers of this memetic disease, ie muslims, should be urgently quarantined and treated with compassionate firmness (as Chinese are doing [NYB_2019](https://www.nybooks.com/articles/2019/02/07/reeducating-xinjiangs-muslims/) ). As part of such efforts, fertility of the disease-ridden population should be severely contrained.
+RoP is a memetic (ie mental) disease of epidemic proportions. It CANNOT coexist with devadharma in the long run- one WILL have to give way to another. Carriers of this memetic disease, ie muslims, should be urgently quarantined and treated with compassionate firmness (as Chinese are doing [NYB_2019](https://www.nybooks.com/articles/2019/02/07/reeducating-xinjiangs-muslims/) ). As part of such efforts, fertility of the disease-ridden population should be severely contrained. The only language that the infected people understand and appreciate is one of solid firmness ([MBS_19](https://www.newsweek.com/saudi-arabia-mohammad-bin-salman-defends-china-concentration-camps-muslims-1340592)).
 
 ### Disease awareness
 - Understand the relentless nature of the Islamic desire to be to overcome all non-muslims. 
