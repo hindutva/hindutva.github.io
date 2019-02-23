@@ -36,12 +36,7 @@ contents:
           - url: dir://main/tattvam/deva/
           - title: Hierarchy
             contents:
-              - title: Intro
-                url: /main/tattvam/deva/hierarchy/index.md
-              - title: Polycentrism
-                url: /main/tattvam/deva/hierarchy/polycentrism.md
-              - title: Competition
-                url: /main/tattvam/deva/hierarchy/competition.md
+              - url: dir://main/tattvam/deva/hierarchy/
       - title: सृष्टिः Creation and suffering
         url: /main/tattvam/creation.md
       - title: पुरुषार्थाः Goals of life
