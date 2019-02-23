@@ -146,10 +146,7 @@ contents:
         url: /main/polity/desiderata.md
       - title: Post-brit rAj
         contents:
-          - title: Hindus
-            url: /main/polity/sick-india/hindus.md
-          - title: Demographics
-            url: /main/polity/sick-india/demographics.md
+          - url: dir://main/polity/sick-india/
       - title: Geopolitics
         url: /main/polity/geopolitics.md
       - title: Hindus Abroad

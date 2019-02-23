@@ -11,7 +11,6 @@ We are in favor of the following (subject to change):
     - Marijuana should be legalized and regulated - just like alcohol, tobacco, red bull and coffee.
         - Marijuana is less harmful than alcohol.
         - The system then has a better shot at preventing/ reducing negative effects.  
-            
     - Gambling and prostitution should be legal and regulated.
         - The system then has a better shot at preventing/ reducing negative effects.
     - Homosexuality is not criminal.
