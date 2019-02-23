@@ -1,5 +1,5 @@
 ---
-title: Books - Authority contests, pedigree and corruption
+title: Pedigree and corruption
 ---
 
 ## Intro
