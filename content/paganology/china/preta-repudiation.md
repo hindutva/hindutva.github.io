@@ -14,5 +14,13 @@ title: Christianity
 ## Boxer reaction
 The Boxer Rebellion, Boxer Uprising or Yihetuan Movement, was a violent anti-foreign, anti-colonial, and anti-Christian uprising that took place in China between 1899 and 1901, towards the end of the Qing dynasty. Chinese officialdom was split between those supporting the Boxers and those favoring conciliation.  The Eight-Nation Alliance, after being initially turned back, brought 20,000 armed troops to China, defeated the Imperial Army, and arrived at Peking on August 14, relieving the siege of the Legations.
 
-## Other Christans
+### Other Christans
 - Sun Yat Sen
+
+## Impact of cultural revolution
+Cultural revolution and communist rule destroyed native Chinese traditions and rituals. So, the vaccum was more easily filled by Christians. Christians find it much easier to fool PRC chinese, Singapore chinese, but not Taiwanese or Chinese in Malaysia.
+
+
+## Taiwanese case
+- Taiwan has turned out to be a "missionary graveyard".
+- In Taiwan, under the KMT dictatorship these attacks on traditional ritual based on economic justifications & Chiang was a methodist himself. But, many of the local elite did not go along. 
