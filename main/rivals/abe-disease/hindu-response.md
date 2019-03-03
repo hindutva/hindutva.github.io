@@ -14,6 +14,14 @@ title: Hindu response
 
 In classical Indian literature "the Muslims, who were not only present in India for many centuries, but were its actual rulers, appear only in vague and marginal references" (HALBFASS 1988: 182); "the Sanskrit tradition has never taken official notice of the existence of Islam" (ERNST 1992: 30); "I would lay stress on this - the religious identity of the Central Asians \[who invaded India\] is not once thematized in Sanskrit sources" (POLLOCK 1993: 286). 
 
+### Fooling oneself
+
+"I have wondered over the years why we Hindus have remained preoccupied with the behaviour patterns of Muslims and Christians and not with the belief systems which create those behaviour patterns. We object to Christian missions, but refuse to discuss Christianity and its god, Jesus. We object to Islamic terrorism, but refuse to have a look at Islam and its prophet, Muhammad. I see no sense or logic in this Hindu habit.
+ 
+ In fact, we go a step further. We appeal to the Christian missionaries in the name of Jesus, and ask them not to do what they have been doing. We appeal to the Muslims in the name of Muhammad, and ask them to stop doing what they have been doing. In the process, we have invented a “real” Jesus and a “true” Christianity. We have also invented a “real” Muhammad and a “true” Islam. The missionary and the mullah smiles at our inventions but goes ahead and makes good use of our soft-headedness. That is why we have failed to solve the “communal problem” all these years. We have never tried to find out why our own people, which both Christians and Muslims are, should become alienated from us when they pass under the spell of Christianity and Islam.
+ 
+ Flattering the bully may become necessary when the bully is powerful and there remains no other way of softening him except by extolling his heroes or his cult. Hindus have experienced such emergencies vis-a-vis both Islam and Christianity. But there is no reason for their continuing with the same psychology. Hindus should not convert an Apad Dharma into Sanatana Dharma."  – [Sita Ram Goel writing in 1994, Preface to Jesus Christ: An Artifice for Aggression, Voice of India, 2001](https://bharatabharati.wordpress.com/2012/02/06/hindus-should-not-convert-an-apad-dharma-into-sanatana-dharma-sita-ram-goel/)
+
 ### Intelligent critiques
 
 A few Hindu-s did understand and produce some very high-quality critiques of Abrahamistic thought. For example, we have a 9th century apostate of Islam, Ahmad ibn Yahya ibn Ishak al-Rawandi, quoting barAhima (or brAhmaNa-s) of al-hind:  
