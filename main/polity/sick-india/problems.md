@@ -43,22 +43,5 @@ The mechanism and effects of this influence has been explored in detail in ["Br
 - Abrahamist subversion, tending towards eventual domination, in India
     - Faster abrahamist demographic growth.
 - Foreign threats: China, TSP, TSB, West.
+- Foreign polities: [subversion](../subversion/).
 
-### Foreign polities: subversion
-
-- A strong self determined India is the natural result of Hindutva coming to power. Naturally, several foreign powers do not like this.
-- US subversion
-    - Mostly follows the same pattern as described by Yuri Bezmenov [YT](https://www.youtube.com/watch?v=5It1zarINv0&feature=youtu.be).
-    - khalistani support.
-- pAkistAn subversion
-    - kAshmIr terrorism
-    - khalistan support.
-- saudi- salaafi subversion
-- Chinese (pseudo communist) subversion
-
-#### Old soviet subversion 
-- Yuri Bezmenov [YT1](https://www.youtube.com/watch?v=5It1zarINv0&feature=youtu.be), [YT2](https://www.youtube.com/watch?v=5gnpCqsXE8g).
-- [1:08:00](http://www.youtube.com/watch?v=5It1zarINv0&t=1h08m00s) begins to describe subversion of a nation. 15% resources on espionage, 85% on ideological subversion or psychological warfare.
-- Stage 1 demoralization: 15-20 yrs - Educate a generation of students. Programmed to think and react in a certain way. Unable to assess true information. (Soviets would eventually mostly mark these eventually-bitter idealists for eventual elimination.)
-- Stage 2 destabilization: 2-5 yrs. Economy, foreign relations, defence.
-- Stage 3: 6 weeks. crisis with violent change of power. Stage 4 normalization: Create impression that situation is under control.
