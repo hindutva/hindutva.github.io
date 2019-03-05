@@ -9,19 +9,34 @@ title: Competition between cults of deities
     - The govardhana incident is a transparent (and in hindsight successful) attempt by the kRShNa cult to supplant the ancient vaidika aindra cult. This we also see in the khANDava forest conflict, and it is in line with other paurANika cult competitions (eps. shiva vs viShNu, as in: narasimha -> sharabha -> gaNDaberuNDa chain).
     - buddhist subversion of hindu deities \[[MT1](https://manasataramgini.wordpress.com/2008/05/25/the-anti-shaiva-rants-of-the-nastika-s/), [MT2](https://manasataramgini.wordpress.com/2009/11/03/lama-taranatha%E2%80%99s-account-of-the-nastika-virupa-the-younger/), [TW1](https://twitter.com/blog_supplement/status/736035929631100928)\].
     - jaina subversion of hindu deities \[[MT1](https://manasataramgini.wordpress.com/2013/05/11/some-anti-astika-stories-of-the-jaina-s/), [MT2](https://manasataramgini.wordpress.com/2009/08/18/nastika-s-before-the-tathagata-and-the-nirgrantha/)\].
-- Indian deity competitions show various successful adaptations, such as:
-    - absorption (eg. Indra is but a small manifestation of kRShNa, is less powerful)
-    - establishment of superior power (rAma defeats paraShurAma, sharabha humbles narasimha but is humbled by gaNDaberuNDa etc..)
-        - This extends to magic contests (atleast in popular imagination) - a gaNDaberuNDa-nRsimha mantra may supersede a sharabha deployment by an enemy.
-        - A few pre-Aryan (and superficially anti-Arya) deities - [HH13](https://musingsofhh.wordpress.com/2011/05/10/rivalry-between-tribal-entities-and-the-mainstream/).
-    - dismissal of rival narratives as ploys to confuse ignoble asura-s or cursed fakers. Eg.
-        - varAha-purANa calling rudra "moha" and generating moha-shAstra-s, and trying to rescue the confused with nihshvAsa-samhitA [WP17](https://agnimaan.wordpress.com/2017/11/03/%E0%A4%B6%E0%A5%88%E0%A4%B5%E0%A4%BE%E0%A4%97%E0%A4%AE%E0%A5%87%E0%A4%B7%E0%A5%81-%E0%A4%B5%E0%A4%B0%E0%A4%BE%E0%A4%B9%E0%A4%AA%E0%A5%81%E0%A4%B0%E0%A4%BE%E0%A4%A3%E0%A4%AE%E0%A5%8D/).
-        - jayadratha the kAshmIra describing bauddha anti-astika tropes as confusion emerging out of a ploy by bRhaspati. \[[TW16](https://twitter.com/blog_supplement/status/777715943317377024)\]
-        - In "lay" circles the shivapurANa posits that viShNu incarnated as tathAgata or arihant to produce fake shAstra-s. \[[TW16](https://twitter.com/blog_supplement/status/777715943317377024)\]
-        - Claims to greater authority through association with honored beings, known from ancient times \[[TW16](../https://twitter.com/blog_supplement/status/777715943317377024)\]. Also see notes on argument from authority and ploys to dismiss those [here](../../bases/books/).
-    - Threatening divine punishment for switching ritual affiliations or weaking group cohesion through leakage : 
-        - nihshvAsa text of shaiva siddhAnta - [TW17](https://twitter.com/GhorAngirasa/status/916258143646224384).
-        - Later found in Tibetan vajrayAna as dorje shugden.
+    
+## Indian adaptations
+Indian deity competitions show various successful adaptations, such as:
+
+- absorption (eg. Indra is but a small manifestation of kRShNa, is less powerful)
+- establishment of superior power (rAma defeats paraShurAma, sharabha humbles narasimha but is humbled by gaNDaberuNDa etc..)
+    - This extends to magic contests (atleast in popular imagination) - a gaNDaberuNDa-nRsimha mantra may supersede a sharabha deployment by an enemy.
+    - A few pre-Aryan (and superficially anti-Arya) deities - [HH13](https://musingsofhh.wordpress.com/2011/05/10/rivalry-between-tribal-entities-and-the-mainstream/).
+- dismissal of rival narratives as ploys to confuse ignoble asura-s or cursed fakers. Eg.
+    - varAha-purANa calling rudra "moha" and generating moha-shAstra-s, and trying to rescue the confused with nihshvAsa-samhitA [WP17](https://agnimaan.wordpress.com/2017/11/03/%E0%A4%B6%E0%A5%88%E0%A4%B5%E0%A4%BE%E0%A4%97%E0%A4%AE%E0%A5%87%E0%A4%B7%E0%A5%81-%E0%A4%B5%E0%A4%B0%E0%A4%BE%E0%A4%B9%E0%A4%AA%E0%A5%81%E0%A4%B0%E0%A4%BE%E0%A4%A3%E0%A4%AE%E0%A5%8D/).
+    - jayadratha the kAshmIra describing bauddha anti-astika tropes as confusion emerging out of a ploy by bRhaspati. \[[TW16](https://twitter.com/blog_supplement/status/777715943317377024)\]
+    - In "lay" circles the shivapurANa posits that viShNu incarnated as tathAgata or arihant to produce fake shAstra-s. \[[TW16](https://twitter.com/blog_supplement/status/777715943317377024)\]
+- Claims to greater authority through association with honored beings, known from ancient times \[[TW16](../https://twitter.com/blog_supplement/status/777715943317377024)\]. Also see notes on argument from authority and ploys to dismiss those [here](../../bases/books/).
+- Threatening divine punishment for switching ritual affiliations or weaking group cohesion through leakage : 
+    - nihshvAsa text of shaiva siddhAnta - [TW17](https://twitter.com/GhorAngirasa/status/916258143646224384).
+    - Later found in Tibetan vajrayAna as dorje shugden.
+- absorption (eg. Indra is but a small manifestation of kRShNa, is less powerful)
+- establishment of superior power (rAma defeats paraShurAma, sharabha humbles narasimha but is humbled by gaNDaberuNDa etc..)
+    - This extends to magic contests (atleast in popular imagination) - a gaNDaberuNDa-nRsimha mantra may supersede a sharabha deployment by an enemy.
+    - A few pre-Aryan (and superficially anti-Arya) deities - [HH13](https://musingsofhh.wordpress.com/2011/05/10/rivalry-between-tribal-entities-and-the-mainstream/).
+- dismissal of rival narratives as ploys to confuse ignoble asura-s or cursed fakers. Eg.
+    - varAha-purANa calling rudra "moha" and generating moha-shAstra-s, and trying to rescue the confused with nihshvAsa-samhitA [WP17](https://agnimaan.wordpress.com/2017/11/03/%E0%A4%B6%E0%A5%88%E0%A4%B5%E0%A4%BE%E0%A4%97%E0%A4%AE%E0%A5%87%E0%A4%B7%E0%A5%81-%E0%A4%B5%E0%A4%B0%E0%A4%BE%E0%A4%B9%E0%A4%AA%E0%A5%81%E0%A4%B0%E0%A4%BE%E0%A4%A3%E0%A4%AE%E0%A5%8D/).
+    - jayadratha the kAshmIra describing bauddha anti-astika tropes as confusion emerging out of a ploy by bRhaspati. \[[TW16](https://twitter.com/blog_supplement/status/777715943317377024)\]
+    - In "lay" circles the shivapurANa posits that viShNu incarnated as tathAgata or arihant to produce fake shAstra-s. \[[TW16](https://twitter.com/blog_supplement/status/777715943317377024)\]
+- Claims to greater authority through association with honored beings, known from ancient times \[[TW16](../https://twitter.com/blog_supplement/status/777715943317377024)\]. Also see notes on argument from authority and ploys to dismiss those [here](../../bases/books/).
+- Threatening divine punishment for switching ritual affiliations or weaking group cohesion through leakage : 
+    - nihshvAsa text of shaiva siddhAnta - [TW17](https://twitter.com/GhorAngirasa/status/916258143646224384).
+    - Later found in Tibetan vajrayAna as dorje shugden.
 
 ## Functional retention
 - Despite new deities taking on old roles, the roles themselves remain fairly conserved.
@@ -45,6 +60,8 @@ title: Competition between cults of deities
     - Likewise, the Chinese Zhou dynasty justified its coup d’état (11th century BCE) against the Shang dynasty by demonizing the Shang as practising human sacrifice. \[[KE16](https://bharatabharati.wordpress.com/2016/03/24/the-sati-strategy-koenraad-elst/)\]
     - The cult of Isis was proscribed in Rome as it was at war with Cleopatra's Egypt. \[Insert link\]
     - Maori forcing Maoriri to defile their ancestor's shrines. \[Insert link\]
+
+## Suppression
 - Suppression of cults as part of pagan consolidation (oft in response to abrahamist threats) and voluntary acculturation.
     - Japanese suppression of Ainu culture.
     - Suppression of local Metei cults by the vaishNavized elite \[[IMG1](http://i.imgur.com/gUXx6iW.png)\].
@@ -53,6 +70,8 @@ title: Competition between cults of deities
     - The harsh reactions to this on the part of more free spirited polytheists, was a successful response. Examples:
         - Roman suppression of Christianity (../Too late) - more [here](../../../paganology/europe/).
         - Thorough Japanese suppression of Christianity in the 17th century \[more [here](../../../../paganology/japan/kokutai/reject-christ/)\].
+
+## Summary
 - The above probably says something about how the Indian ecosystem was different from the middle eastern or other ecosystems -
     - there was the hoary vedic lore one could not afford to diss,
     - the competition happened in the hearts and minds of philosophers well established in their homeland, rather than a population of common ruffians stressed by an exile to Babylon or escape from Egypt.
