@@ -1,12 +1,16 @@
 ---
 title: अभिज्ञानम् Identification
 ---
-  
 
 ## Identification and rejection of nAstika-s (veda-rejectors)
 
 - See veda section in holy books [page](../../../bases/books/index/).
 - "श्रुतिस्तु वेदो विज्ञेयो धर्मशास्त्रं तु वै स्मृतिः । ते सर्वार्थेष्वमीमांस्ये ताभ्यां धर्मो हि निर्बभौ ॥ योऽवमन्येत ते मूले हेतुशास्त्राश्रयाद् द्विजः । स साधुभिर्बहिष्कार्यो नास्तिको वेदनिन्दकः ॥" इति मनुः। तत्र मेधातिथिर् [अत्र](https://www.wisdomlib.org/hinduism/book/manusmriti-with-the-commentary-of-medhatithi/d/doc145584.html)।
+
+### Dealing with commonalities
+Even as hindus identify and reject traditions antagonistic to them, they should deal with commonalities with confidence. It is wrong to forcibly be the direct opposite of those we don't like in every regard. An easy way to do so in case of Abe's disease would be to note the fact that most of their concepts and rituals are copied from their polytheistic predecessors (before they were violently eliminated).
+
+For example, the pAkis object to (and are a bit confused by) our use of the word "shahiid", which they understand as only being applicable to muslims dying for allah ([YT](https://youtu.be/S1QeCEqYE2U?t=42)). A proper response to that objection is of course to turn the table on them and point out that most of the terms and concepts in Islam (including allah) are anyway copied from pre-Islamic arab polytheists.
 
 ### buddha (an avatAra or a veda-nindaka?)
 - "Guatama Buddha was a ‘nastika’ in the traditional sense of the term. The very definition of a ‘nastika’ is ‘nastiko veda-nindakah’ (Manusmriti 2.11)."
@@ -44,7 +48,7 @@ Nationalist/ pro-hindu-cultural sentiment and awareness of the mlechCha (includi
 - Yet, some acceptance of abrahamist form and norm might have been a part of the non-military response (../[see here](../../rivals/abe-disease/abe-disease/). )  
     
 - Also see [secularism here](../../../rivals/0-theism/secularism/).
-- nAtha-sampradAya
-    - " Of the 13 Nath sub-orders, I understand the Rawal or Nagnath order of Punjab consisted of Muslims though it traced its ancestry to Shiva. One book says that the 1891 census listed about 17% of the wandering Yogis as Muslims! The collection of verses named Gorakhbani attributed to Gorakhnath (13th or 14th century) has several verses praising the glory of the Prophet Mohammed."  
-        
-    - "I understand that in 2005 a book was published under the authority of the Yogī Mahāsabhā. "This book, written in Hindi by Yogī Vilāsnāth, secretary to the Mahāsabhā in Haridwar, is entitled Śrī Nāth Rahasya (‘the secrets of Śrī Nāth’) and is a compendium of mantras to be recited during specific rituals. A passage in the last section of the book is entitled Mohammad Bodh, ‘Mohammad’s wisdom'!" A sample of the text: Salutation to the True Name, Salutation to the Guru. Om Guruji! Alhā bismillā (devtā) Ram is Rahim. Om is Mohammad. The head is the mosque, the skull is madār .21 The ear is Sudh Granth (the Qur’an). The eye is the prophet." \[[FB17](https://www.facebook.com/pakshirajan.ananthakrishnan/posts/1819041841455325)\]
+
+### nAtha-sampradAya
+- " Of the 13 Nath sub-orders, I understand the Rawal or Nagnath order of Punjab consisted of Muslims though it traced its ancestry to Shiva. One book says that the 1891 census listed about 17% of the wandering Yogis as Muslims! The collection of verses named Gorakhbani attributed to Gorakhnath (13th or 14th century) has several verses praising the glory of the Prophet Mohammed."  
+- "I understand that in 2005 a book was published under the authority of the Yogī Mahāsabhā. "This book, written in Hindi by Yogī Vilāsnāth, secretary to the Mahāsabhā in Haridwar, is entitled Śrī Nāth Rahasya (‘the secrets of Śrī Nāth’) and is a compendium of mantras to be recited during specific rituals. A passage in the last section of the book is entitled Mohammad Bodh, ‘Mohammad’s wisdom'!" A sample of the text: Salutation to the True Name, Salutation to the Guru. Om Guruji! Alhā bismillā (devtā) Ram is Rahim. Om is Mohammad. The head is the mosque, the skull is madār .21 The ear is Sudh Granth (the Qur’an). The eye is the prophet." \[[FB17](https://www.facebook.com/pakshirajan.ananthakrishnan/posts/1819041841455325)\]
