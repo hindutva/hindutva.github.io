@@ -46,12 +46,6 @@ An individual's life passes through various phases. Important among them were de
 - Widow remarriage / status.
     - UN report about widows left in vArANAsi : [here](https://www.youtube.com/watch?v=_SxPv5aQP0c).
     - shatAvadhAnI gaNesh's view [here](https://www.youtube.com/watch?v=kXustFOkOr4&feature=em-uploademail) paints a sympathetic picture of such women before 1k years.
-    - sati / jIvahara/ jowhar : Ritual suicide of widows (usually at the husband's funeral pyre).
-        - "As per numerous testimonies, most self-immolating widows went into the pyre voluntarily, often overcoming pressure from their relatives or from the authorities not to do it."
-        - "It was confined to the real or would-be warrior castes, though, in keeping with their ethos of pride and passion."
-        - "For Brahmins it was forbidden, a negative judgment going back to this Rg-Vedic verse. ... It is only logical that some rulers in the Brahmin-dominated Maratha confederacy forbid the practice even before the British East India Company Governor Lord William Bentinck (under prodding from Hindu reformer Ram Mohan Roy) abolished it by law in 1829."  
-            
-        - Read Koenraad Elst for more details [here](http://www.hinduhumanrights.info/sati-and-hinduism/), sati-strategy [here](https://bharatabharati.wordpress.com/2016/03/24/the-sati-strategy-koenraad-elst/).
 - Widower status
     - Can remarry
     - vrata-s - to check: \[[IMG](https://imgur.com/MTx97Wm)\]
@@ -59,3 +53,11 @@ An individual's life passes through various phases. Important among them were de
 - Divorce
     - There is an ancient sanskrit word for divorce - a beautiful and very meaningful word. kauTilya uses it - mokSha. It is a simple misconception that there is no provision for divorce among hindu thinkers. \[[A1](http://www.yourarticlelibrary.com/marriage/comprehensive-essay-on-divorce-in-india/4370/)\]
     - नष्टे मृते प्रव्रजिते क्लीबे च पतिते पतौ। पञ्चत्स्वापत्सु नारीणां पतिरन्यो विधीयते।३०।। \[पराशरो [ऽत्र](https://archive.org/stream/ParasharaSmriti/SriParasharaSmrithiPdf#page/n35/mode/2up/search/%E0%A5%A9%E0%A5%A6)\]
+    
+
+### jIvahara
+- sati / jIvahara/ jowhar : Ritual suicide of widows (usually at the husband's funeral pyre).
+- "As per numerous testimonies, most self-immolating widows went into the pyre voluntarily, often overcoming pressure from their relatives or from the authorities not to do it."
+- "It was confined to the real or would-be warrior castes, though, in keeping with their ethos of pride and passion."
+- "For Brahmins it was forbidden, a negative judgment going back to this Rg-Vedic verse. ... It is only logical that some rulers in the Brahmin-dominated Maratha confederacy forbid the practice even before the British East India Company Governor Lord William Bentinck (under prodding from Hindu reformer Ram Mohan Roy) abolished it by law in 1829."  
+- Read Koenraad Elst for more details [here](http://www.hinduhumanrights.info/sati-and-hinduism/), sati-strategy [here](https://bharatabharati.wordpress.com/2016/03/24/the-sati-strategy-koenraad-elst/).
