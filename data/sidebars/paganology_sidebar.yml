@@ -4,7 +4,7 @@ title: Paganology
 contents:
   - url: dir://paganology/
   - title: Steppe
-    content:
+    contents:
       - url: dir://paganology/steppe/
   - title: North Europe
     url: /paganology/north-europe.md

@@ -78,7 +78,7 @@ contents:
       - url: dir://main/social-cultivation/
       - title: Caste, Clan जातिः वर्णः च
         contents:
-          - url: dir://main/social-cultivation/clan/future.md
+          - url: dir://main/social-cultivation/clan/
   - title: अर्थः Resources
     contents:
       - url: dir://main/resources/
@@ -149,6 +149,6 @@ contents:
       - title: Military history
         url: /main/history/military.md
   - title: Paganology
-    url: /paganology/introduction/
+    url: /paganology/
   - title: Home
     url: /
