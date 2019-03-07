@@ -116,7 +116,7 @@ contents:
         url: /main/rivals/class-opportunism.md
       - title: Dirty rags
         contents:
-          url: dir://main/rivals/rags/
+          - url: dir://main/rivals/rags/
   - title: Polity राजनीतिः
     contents:
       - title: Desiderata काङ्क्षा
