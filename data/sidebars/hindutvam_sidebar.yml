@@ -110,13 +110,13 @@ contents:
             url: /main/rivals/academia/negationism.md
       - title: Appropriation
         url: /main/rivals/u-turn.md
-      - title: Dirty rags
-        url: /main/rivals/rags.md
       - title: Ananda-addictions
         url: /main/rivals/aananda-addiction.md
       - title: Class opportunism
         url: /main/rivals/class-opportunism.md
-
+      - title: Dirty rags
+        contents:
+          url: dir://main/rivals/rags/
   - title: Polity राजनीतिः
     contents:
       - title: Desiderata काङ्क्षा

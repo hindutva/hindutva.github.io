@@ -6,6 +6,7 @@ title: Subversion
 
 - A strong self determined India is the natural result of Hindutva coming to power. Naturally, several foreign powers do not like this.
 - Subversion of hinduism by foreign and domestic forces is considered in the [hinduism subversion page](../../../social-cultivation/subversion/).
+- Media connection - see [here](../../../rivals/rags.md).
 
 ## Pyschological operations intro
 
