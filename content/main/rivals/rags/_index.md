@@ -39,16 +39,24 @@ Examples:
   
 - NYT - [NL15](http://www.newslaundry.com/2015/10/03/does-the-new-york-times-have-an-india-problem/).
 
+## Utility
+### Not good for?
+- Facts
+- Assessment of national or hindu mood [A-1903](https://agnimaan.wordpress.com/2019/03/06/comments-on-nyts-after-india-loses-dogfight-to-pakistan/).
+- What powerful people think. They don’t even tell us what people in power in angospheric countries (presidents, diplomats etc..) think.
+  - During the 201903 anti-JEM Indian air strike, BBC and NYT were saying stuff to the effect that Imran Khan won some propaganda battle against Modi ([VJ’s quote](https://twitter.com/VamseeJuluri/status/1101684213714046976)) – even as India attended the Organization of Islamic Countries as the “Guest of Honour”, despite Pakistan’s attempt to disinvite India and refused to include Kashmir in its resolution till Pakistanis forced it in.
+  
+
+### Good for?
+#### Anglospheric perspective
+It is natural for NYT, Newyorker, BBC etc.. to write from the perspective of USA/ leukosphere: “We wanted to use this third world country against China but they are so incompetent, backwards”, “Oh look! Modi is a fascist, muslims are in such a pitiful state” ([Vamsee Juluri’s Newyorker quote](https://twitter.com/VamseeJuluri/status/1103120584274173953) ) etc.. Which is why they are good to gauge the mood of liberal-minded people of mlecCha-deshas – but not much else.
+
 ## Causes
 - Ideological anti-hindu bias - socialist, leftist, islamic, leukospheric etc..
   - Audience expectations.
 - Some of it is due to the mlecCha-s' lack of context combined with undue vehemence - also discussed [here](../academia/charges/).
 - Money - sensationalism sells.
 
-### Anglospheric perspective
-It is natural for NYT, Newyorker, BBC etc.. to write from the perspective of USA/ leukosphere: “We wanted to use this third world country against China but they are so incompetent, backwards”, “Oh look! Modi is a fascist, muslims are in such a pitiful state” ([Vamsee Juluri’s Newyorker quote](https://twitter.com/VamseeJuluri/status/1103120584274173953) ) etc.. Which is why they are good to gauge the mood of liberal-minded people of mlecCha-deshas – but not much else.
-
-They don’t even tell us what people in power in those countries (presidents, diplomats etc..) think. During the 201903 anti-JEM Indian air strike, BBC and NYT were saying stuff to the effect that Imran Khan won some propaganda battle against Modi ([VJ’s quote](https://twitter.com/VamseeJuluri/status/1101684213714046976)) – even as India attended the Organization of Islamic Countries as the “Guest of Honour”, despite Pakistan’s attempt to disinvite India and refused to include Kashmir in its resolution till Pakistanis forced it in.
 
 ### Psy-ops connection
 
