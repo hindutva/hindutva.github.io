@@ -33,7 +33,10 @@ Examples:
 
 ## Problem distribution
 - Opindia publishes periodic fake news reports covering prominent rags from Indian and abroad. See the [examples page](../opindia_fake_news_examples_16_18/).
-- MT's observations: [NT](https://manasataramgini.wordpress.com/2014/10/25/a-geopolitical-segment-the-news-traders/).
+- MT's observations: [MT-2014](https://manasataramgini.wordpress.com/2014/10/25/a-geopolitical-segment-the-news-traders/).
+  - ![](/../anti-India-news-negative-percentage-2014.jpg)
+  - ![](/../anti-India-news-origin-2014.jpg)
+  
 - NYT - [NL15](http://www.newslaundry.com/2015/10/03/does-the-new-york-times-have-an-india-problem/).
 
 ## Causes
