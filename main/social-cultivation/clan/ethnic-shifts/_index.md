@@ -51,4 +51,4 @@ See separate page.
     - Its later fall was due to rise of Islam and rise of of the Viet at the expense of the Champa. The Tai warbands and many others were assimilated by Indics \[[RK16](http://www.unz.com/gnxp/genetics-as-thor-heyerdahls-revenge/)\]. 
 
 ## Islamic invasions
-These seem to have left comparitively little genetic footprints. Partly because they are genetically very similar to the earlier Aryan influx - albeit more admixed with East asian markers.
+These seem to have left comparatively little genetic footprints. Partly because they are genetically very similar to the earlier Aryan influx - albeit more admixed with East asian markers.
