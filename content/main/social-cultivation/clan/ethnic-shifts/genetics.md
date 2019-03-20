@@ -1,9 +1,6 @@
 ---
 title: Genetics
 ---
-  
-
-  
 
 ## Proper pramANa-s
 
