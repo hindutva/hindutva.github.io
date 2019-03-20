@@ -71,15 +71,21 @@ Even though, fundamentally, there is no sacred vs profane distinction in the hin
 
 ## Structure vs feeling tension
 
+- The veda-s emphasize both proper and meticulous performance; and feeling (There is the story of shaMyu who to whom oblations without devotions are said to be diverted [YT](https://youtu.be/eGU65mzEcUs)).
 - "Of course, if we say "just pray from heart", it becomes too open and possibly chaotic. Rules are there to enforce discipline and provide some structure. But, if there are too many rules, the same thing that is intended to provide structure to the ritual can become constricting and suffocating. The suffocation may eliminate all feeling from the ritual. Based on one's desa-kala-patra, one has to find the right balance between rules (Pingala, solar channel) and emotion (Ida, lunar channel). One should follow some rules that provide a structure without suffocating one and allow one to add emotion to the ritual. Then one can make a connection." [NR_FB15](https://www.facebook.com/pvr108/posts/10153156010758284).
-- Examples of "feeling" trumping:
-    - In the veda-s \[[TW17](https://twitter.com/GhorAngirasa/status/853343223342878721)\].
-         - "kavaSa ailUSa who was expelled by the RSis from a sattra on account of his maternal heritage (she was a dAsa woman; I suspect druhyu heritage). Expelled to the desert & suffering from thirst he sees the aponaptrīya sūkta and in the desert, the waters of the sarasvatI run to him."
-        - "The innocent, naive devotee whose silly actions still please the deity: kaNNappa nAyanmAr's spitting water on rudra as ablution to a creative mind, can be said to be prefigured in the story of apālā who chews the soma plant with her teeth to press out the juice for Indra."
-        - "The trope of the devotee who risks everything for his cherished deva: could be said to be prefigured in the story of Rjrashva who, seeing a she-wolf (and recognizing it as the divine animal it was; I.e. Sent by the ashvinau), offered a hundred sheep to satiate it and was blinded by his father as a consequence! However, the ashvinau, pleased with him, gave back his eyes."
-    - In the itihAsa-s and purANa-s
-        - shabari giving rAma berries she tasted for sweetness.
-        - Hunter kaNNappa spitting water on rudra as ablution.
+
+
+### Examples of "feeling" trumping:
+#### In the veda-s 
+\[[TW17](https://twitter.com/GhorAngirasa/status/853343223342878721)\].
+
+- "kavaSa ailUSa who was expelled by the RSis from a sattra on account of his maternal heritage (she was a dAsa woman; I suspect druhyu heritage). Expelled to the desert & suffering from thirst he sees the aponaptrīya sūkta and in the desert, the waters of the sarasvatI run to him."
+- "The innocent, naive devotee whose silly actions still please the deity: kaNNappa nAyanmAr's spitting water on rudra as ablution to a creative mind, can be said to be prefigured in the story of apālā who chews the soma plant with her teeth to press out the juice for Indra."
+- "The trope of the devotee who risks everything for his cherished deva: could be said to be prefigured in the story of Rjrashva who, seeing a she-wolf (and recognizing it as the divine animal it was; I.e. Sent by the ashvinau), offered a hundred sheep to satiate it and was blinded by his father as a consequence! However, the ashvinau, pleased with him, gave back his eyes."
+
+#### In the itihAsa-s and purANa-s
+- shabari giving rAma berries she tasted for sweetness.
+- Hunter kaNNappa spitting water on rudra as ablution.
 
   
 ## Language
