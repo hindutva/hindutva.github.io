@@ -7,9 +7,9 @@ varNa/ jAti = (social role/ hereditary caste) system.
 
 ## Motivation for the varNa construct.
 - मनुः - "सर्वस्यास्य तु सर्गस्य गुप्त्यर्थं स महाद्युतिः । मुखबाहूरुपज्जानां पृथक्कर्माण्यकल्पयत्॥ " ([1.31](https://www.wisdomlib.org/hinduism/book/manusmriti-with-the-commentary-of-medhatithi/d/doc145438.html)), "सर्वस्यास्य तु सर्गस्य गुप्त्यर्थं स महाद्युतिः । मुखबाहूरुपज्जानां पृथक्कर्माण्यकल्पयत् ॥" ([1.87](https://www.wisdomlib.org/hinduism/book/manusmriti-with-the-commentary-of-medhatithi/d/doc145531.html)) 
-- A brAhmaNa varNa fully dedicated to conserving Arya ideals is a great advantage to the memeplex- see vaidika-brAhmaNa-glue part of [this](../india-entry/).
+- A brAhmaNa varNa fully dedicated to conserving Arya ideals is a great advantage to the memeplex- see vaidika-brAhmaNa-glue part of [this](../ethnic-shifts/Arya-consolidation//).
 - Formalization of a natural phenomenon, amalgamation of tribes glued together by the Arya brAhmaNa-s.
-    - Hindu society was an amalgam of many tribes (../jAti-s). The varNa system (centered around the ritualist conservative core described [here](india-entry/)) tried to harmonize them. When new jAti-s were encountered, they could be gracefully integrated into the broader society, while preserving their internal autonomy.
+    - Hindu society was an amalgam of many tribes (../jAti-s). The varNa system (centered around the ritualist conservative core described [here](ethnic-shifts/Arya-consolidation//)) tried to harmonize them. When new jAti-s were encountered, they could be gracefully integrated into the broader society, while preserving their internal autonomy.
     - That this varNa system was an ancient emergent phenomenon - not artificially created - was the opinion of the ancients.
         - This is the import of the puruSha-sUkta, where its emergence from the primeval puruSha is placed in  the verse that describes the emergence of sun and the moon.
         - manu says in the manu-smRti that this division emerged from brahma himself.
@@ -70,7 +70,7 @@ varNa/ jAti = (social role/ hereditary caste) system.
         - The dvija-s had to compulsorily have appropriate saMskAra-s, and pursue study of sacred lore (adhyayana), yajJNa (sacrifice) and dAna (giving).
         - Initially, the professions for livelihood were these:
             - teaching and scholarship in sacred lore, accepting gifts, conducting sacrifices (brAhmaNa-s) 
-                - Later, archaka-posts in certain Agamika temples were reserved for initiated brAhmaNa-s, due to such decision by a deity or a highly revered sage. Rare reservations were made for other communities as well (../see [practice page](india-entry/)). 
+                - Later, archaka-posts in certain Agamika temples were reserved for initiated brAhmaNa-s, due to such decision by a deity or a highly revered sage. Rare reservations were made for other communities as well (see [practice page](../ethnic-shifts/Arya-invasion/)). 
                     - Deities appointing specific lineages
                         - \[sEkkizAr's periyapurANam, mANikkavAcakar - [TW17](https://twitter.com/GhorAngirasa/status/916607415667363840), kAmikAgama  6.6 - 6.9 [TW17](https://twitter.com/GhorAngirasa/status/916811078507618305) \].
                         - The vaikhAnasa samhitas mention that this community was created by Vishnu and not thru brahma. The child is initiated at the foetal stage through viShNu-bali.
@@ -162,7 +162,7 @@ varNa/ jAti = (social role/ hereditary caste) system.
 - Major prohibitions of dvija-s
     - Crossing the seas and visiting/ inhabiting kalinga vanga etc..
         - kANe [v3](https://archive.org/stream/HistoryOfDharmasastraancientAndMediaevalReligiousAndCivilLawV.3/Kane_A-History-of-Dharmasastra-v3_1946#page/n979/mode/2up) and in AryAvarta topic [v2p13](https://archive.org/stream/HistoryOfDharmasastraancientAndMediaevalReligiousAndCivilLawV.2.1/Kane_A-History-of-Dharmasastra-v2-1_1941#page/n69/mode/2up).
-        - Also see ["India entry" page](../india-entry/) for context regarding the fluid definition of AryAvarta.
+        - Also see ["India entry" page](../ethnic-shifts/Arya-consolidation//) for context regarding the fluid definition of AryAvarta.
         - "There is a rule about ocean cross at least starting from an interpolated passage in bodhayana and you see the sentiment in later smritis. But it is not universal hindu practice."
         - "Various brahmanas historically have done it and helped established hindu kingdoms in south east. They've composed mantra manuals of which few fragments survive - eg. khADgArNava fragments from Indonesia."
         - "अस्माकमुदधिपारगतत्वमाकाशमार्गचारिणा वायुयानेनाऽभवन्न तु जलकपोतयानेन समुद्रसंयानेन वा  (कृष्णयजुर्वेदीयतैत्तिरीयशाखाया: बौधायनधर्मसूत्रेषु २.१.२.२. – “समुद्रसंयानम्” – अत्र विवरणव्याख्यानकर्तुः श्रीगोविन्दस्वामिनोऽभिप्राय: समुद्रयानेन/जलपोतयानेन द्वीपावान्तरयात्रायां पर्यवस्यति न त्वाकाशमार्गेण वायुयानेन) ।" इति केचित्।

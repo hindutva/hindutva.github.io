@@ -57,7 +57,7 @@ title: varNa practice
 Hindu legal/ behavioral/ social system is not at all static. \[See [here](../../dharma-fluid/).\] It has adjusted to the abolition of jAti-privileges relatively smoothly.
 
 - Factors in favor of rigidity: Self interest, Standards etc.. are considered in the Motivation section in the theory-page.
-- Social fluidity in the far ancient times is considered [here](../india-entry/).
+- Social fluidity in the far ancient times is considered [here](../ethnic-shifts/Arya-consolidation//).
 - Non examples
     - satyakAma jAbAla - [G17](https://padmavajrablog.wordpress.com/2017/10/06/the-tale-of-satyakama-jabala-as-seen-by-traditionalists/).
 - Related notes
@@ -65,7 +65,7 @@ Hindu legal/ behavioral/ social system is not at all static. \[See [here](../..
 
 ### Early overall ossification of jAti hierarchies and differences.
 
-- varNa classification was ancient and predated Arya entry into India. More notes in the [Aryan entry page](../india-entry/).
+- varNa classification was ancient and predated Arya entry into India. More notes in the [Aryan entry page](../ethnic-shifts/Arya-invasion/).
 - By the time Megasthenes visited, there were already rigid restrictions about intermarriage and avocations. \[[MI](http://www.sdstate.edu/projectsouthasia/upload/Megasthene-Indika.pdf)\]
     - " Such, then, are about the parts into which the body politic in India is divided. No one is allowed to marry out of his own caste, or to exercise any calling or art except his own: for instance, a soldier cannot become a husbandman, or an artizan a philosopher. "
 - Ancient Hindu legal texts, such as the Manu-smRRiti, favored the maintenance of the varNa system - for example, by enjoining the rulers not to let the shUdra-s become too powerful, by fixing higher standards of behavior and harsher punishments for people of higher varNa-s, by emphasizing the need for close cooperation between the brAhmaNa-s and the kShatriya-s. Many Hindu kings were proud of maintaining the varNa-Ashrama-dharma.

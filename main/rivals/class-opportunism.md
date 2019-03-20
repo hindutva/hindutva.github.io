@@ -6,7 +6,7 @@ Even as the dharma tries time-tested arragnements to harmonize various social gr
 
 Their misguided attempts derive from various misunderstandings. In their deeply flawed analysis, they refuse to believe the honest and natural basis for the hindu dharma history - rather preferring to see "evil brAhmaNa manipulation". This is accompanied by a risible claims about history - for example:
 - Dravidians claiming their origin in Lemuria
-- Dravidians being unaware of the Dravidian bloom {[IA in India page](../../social-cultivation/clan/india-entry/)}
+- Dravidians being unaware of the Dravidian bloom {[IA in India page](../../social-cultivation/clan/ethnic-shifts//)}
 - claims to being original inhabitants and insinuating that the few brAhmaNa-s who later arrived ended up "dominating" the social structure against their will
 - denying the deep contributions of hindu thoughtscape (carried by brAhmaNa-s) to the development of their language and culture
 - claiming notable ancient cultural/ religious icons and practices (eg: Buddha, kumAra, gaNesha and Shiva) as belong to their ethnicity.

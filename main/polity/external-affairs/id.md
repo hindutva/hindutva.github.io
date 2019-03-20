@@ -25,7 +25,7 @@ For example, the pAkis object to (and are a bit confused by) our use of the word
 ## AryAvarta and the hindu identity
 
 Nationalist/ pro-hindu-cultural sentiment and awareness of the mlechCha (including muslim) invasion and threat is evident in many places.
-- The notion of a fluid but temorally clear definition of the land of Arya-s (../AryAvarta) is apparent from the dharmashAstra-s. More in the [india-entry page](../../social-cultivation/clan/india-entry/).
+- The notion of a fluid but temorally clear definition of the land of Arya-s (../AryAvarta) is apparent from the dharmashAstra-s. More in the [ethnic-shifts/Arya-consolidation/ page](../../social-cultivation/clan/ethnic-shifts/Arya-consolidation//).
   - As SR Goel says [here](http://www.voiceofdharma.org/books/siii/ch9.htm): "This vast land which Islam has dismembered in due course into the separate states of Afghanistan, Pakistan, Hindustan, and Bangladesh had been a single indivisible whole since times immemorial. Bharatavarsha had been termed by the ancients as the cradle of varNãshrama-dharma, witness to the wheel of the caturyugas, and the kShetra for chakravãrtya, spiritual as well as political. This historical memory and cultural tradition was alive as late as the imperial Guptas. Kalidasa had clothed it in immortal poetry in his far-famed RaghuvaMsa."
 - Pilgrimage routes: "Everyone knows about the dvādaśa jyotirliṅga-s for the śaiva-s, the divyadeśa-s of the śrī vaiṣṇavas or the śaktipīṭha-s of the śākta-s, covering the whole of bhārata or even what we call, akhaṇḍabhārata." \[[GA](https://aryanthought.wordpress.com/2017/01/20/of-invisible-threads-the-veda-and-the-strangest-harikatha-experience/)\]
 - The work of story-tellers:
