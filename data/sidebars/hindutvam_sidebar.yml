@@ -79,6 +79,9 @@ contents:
       - title: Caste, Clan जातिः वर्णः च
         contents:
           - url: dir://main/social-cultivation/clan/
+          - title: Ethnic shifts
+            contents:
+              - url: dir://main/social-cultivation/clan/ethnic-shifts/
   - title: अर्थः Resources
     contents:
       - url: dir://main/resources/
