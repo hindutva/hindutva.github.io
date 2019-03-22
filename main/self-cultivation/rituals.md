@@ -71,7 +71,7 @@ Even though, fundamentally, there is no sacred vs profane distinction in the hin
 
 ## Structure vs feeling tension
 
-- The veda-s emphasize both proper and meticulous performance; and feeling (There is the story of shaMyu who to whom oblations without devotions are said to be diverted [YT](https://youtu.be/eGU65mzEcUs)).
+- The veda-s emphasize both proper and meticulous performance; and feeling (There is the story of shaMyu who to whom fruits of yajJNA are to be diverted, if it is performed without devotional feeling or without respect for prescribed structure).
 - "Of course, if we say "just pray from heart", it becomes too open and possibly chaotic. Rules are there to enforce discipline and provide some structure. But, if there are too many rules, the same thing that is intended to provide structure to the ritual can become constricting and suffocating. The suffocation may eliminate all feeling from the ritual. Based on one's desa-kala-patra, one has to find the right balance between rules (Pingala, solar channel) and emotion (Ida, lunar channel). One should follow some rules that provide a structure without suffocating one and allow one to add emotion to the ritual. Then one can make a connection." [NR_FB15](https://www.facebook.com/pvr108/posts/10153156010758284).
 
 
