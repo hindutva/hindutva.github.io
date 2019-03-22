@@ -11,6 +11,9 @@ contents:
   - title: China
     contents:
       - url: dir://paganology/china/
+  - title: Persia
+    contents:
+      - url: dir://paganology/persia/
   - title: Japan
     contents:
       - title: Intro
