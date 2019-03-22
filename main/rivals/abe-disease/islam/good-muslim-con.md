@@ -2,7 +2,7 @@
 title: Good-muslim con
 ---
 
-[![](../../../../images/islamic-public-execution.jpg)](../../../../../images/islamic-public-execution.jpg)
+![](../images/islamic-public-execution.jpg)
 
 ## Good muslim con
 
@@ -22,6 +22,9 @@ Details follow.
 - So, while some may make some statements sympathizing with victims of jihaadi attacks, condemning terrorists - they hardly take to arms at a rate sufficient to neutralize their anti-kufr jihadi warriors. So, the net effect of Islam remains negative to the kufr population.
 - Rather, they tend to mostly cooperate (with or without misgivings) in heinous acts. So, it certainly matters what the RoP holy books say.
 - But, their "moderation" has very weak theological basis/ solid clerical support, as explained in a separate section.
+
+![](../images/islamist_maNDalas.png)
+
 
 ## Good muslims
 
