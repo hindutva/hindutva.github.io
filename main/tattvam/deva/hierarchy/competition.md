@@ -37,6 +37,7 @@ Indian deity competitions show various successful adaptations, such as:
 - Threatening divine punishment for switching ritual affiliations or weaking group cohesion through leakage : 
     - nihshvAsa text of shaiva siddhAnta - [TW17](https://twitter.com/GhorAngirasa/status/916258143646224384).
     - Later found in Tibetan vajrayAna as dorje shugden.
+- Monolatry: only worship one God while actively refusing the worship of the rest, while not rejecting their outright existence.
 
 ## Functional retention
 - Despite new deities taking on old roles, the roles themselves remain fairly conserved.
@@ -53,13 +54,15 @@ Indian deity competitions show various successful adaptations, such as:
     - "we see Egyptians adopting foreign Gods, numerous Canaanite deities and also Nubian Gods, keeping their original, foreign names but labeling them as Netjeru, as "Gods", just like their native Gods."
 
 ## Contrast with deity competition in other eco-systems
-- When the deity cults were closely connected with an enemy nation, one would occasionally find fomenting of intolerance towards those cult's practices. While objections to specific enemy religious practices arose partly from one's own sense of high culture, the dissuasion of regard to deities of enemy nations occurred only in case of conflict, as one could occasionally find the conflicts between nations perceived and described in terms of conflicts between the corresponding nations' deities. Example:
-    - "Biblical vilification of child sacrifice to the god Moloch by the Canaanites." \[[KE16](https://bharatabharati.wordpress.com/2016/03/24/the-sati-strategy-koenraad-elst/)\]
-    - "Roman war leaders would emphasize this phenomenon of child sacrifice among the Carthaginians to portray them as barbarians in urgent need of Rome’s civilizing intervention." \[[KE16](https://bharatabharati.wordpress.com/2016/03/24/the-sati-strategy-koenraad-elst/)\]
-    - "Caesar would also demonize as human-sacrificers the Druids of Gaul, another “barbarian” country the Romans “liberated” from its own traditions after conquering it." \[[KE16](https://bharatabharati.wordpress.com/2016/03/24/the-sati-strategy-koenraad-elst/)\]
-    - Likewise, the Chinese Zhou dynasty justified its coup d’état (11th century BCE) against the Shang dynasty by demonizing the Shang as practising human sacrifice. \[[KE16](https://bharatabharati.wordpress.com/2016/03/24/the-sati-strategy-koenraad-elst/)\]
-    - The cult of Isis was proscribed in Rome as it was at war with Cleopatra's Egypt. \[Insert link\]
-    - Maori forcing Maoriri to defile their ancestor's shrines. \[Insert link\]
+- When the deity cults were closely connected with an enemy nation, one would occasionally find fomenting of intolerance towards those cult's practices. While objections to specific enemy religious practices arose partly from one's own sense of high culture, the dissuasion of regard to deities of enemy nations occurred only in case of conflict, as one could occasionally find the conflicts between nations perceived and described in terms of conflicts between the corresponding nations' deities.
+
+Example:
+- "Biblical vilification of child sacrifice to the god Moloch by the Canaanites." \[[KE16](https://bharatabharati.wordpress.com/2016/03/24/the-sati-strategy-koenraad-elst/)\]
+- "Roman war leaders would emphasize this phenomenon of child sacrifice among the Carthaginians to portray them as barbarians in urgent need of Rome’s civilizing intervention." \[[KE16](https://bharatabharati.wordpress.com/2016/03/24/the-sati-strategy-koenraad-elst/)\]
+- "Caesar would also demonize as human-sacrificers the Druids of Gaul, another “barbarian” country the Romans “liberated” from its own traditions after conquering it." \[[KE16](https://bharatabharati.wordpress.com/2016/03/24/the-sati-strategy-koenraad-elst/)\]
+- Likewise, the Chinese Zhou dynasty justified its coup d’état (11th century BCE) against the Shang dynasty by demonizing the Shang as practising human sacrifice. \[[KE16](https://bharatabharati.wordpress.com/2016/03/24/the-sati-strategy-koenraad-elst/)\]
+- The cult of Isis was proscribed in Rome as it was at war with Cleopatra's Egypt. \[Insert link\]
+- Maori forcing Maoriri to defile their ancestor's shrines. \[Insert link\]
 
 ## Suppression
 - Suppression of cults as part of pagan consolidation (oft in response to abrahamist threats) and voluntary acculturation.
