@@ -69,4 +69,5 @@ It is natural for NYT, Newyorker, BBC etc.. to write from the perspective of USA
 - Particularly, [https://swarajyamag.com/](https://swarajyamag.com/) merits our support and subscription.
 - [https://www.opindia.com/](https://www.opindia.com/) , a fact-checking site edited by [@UnSubtleDesi](https://twitter.com/UnSubtleDesi) as of 2019.
 - [https://www.pgurus.com/](https://www.pgurus.com/) for occasional exposes and opinions.
+- [Organizer - the RSS mag](https://www.organiser.org/index.html)
 - [http://indiafacts.org/](http://indiafacts.org/) for opinion pieces.
