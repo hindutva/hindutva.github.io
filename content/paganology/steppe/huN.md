@@ -2,6 +2,8 @@
 title: Huns
 ---
 
+"The Hun Khanates starting from Shanyu Motun (probably originally pronounced as Shanyu Bagā’tur) learned the steppe Indo-Iranian style mobile warfare and made it a mechanism that allowed the Altaic people to overthrow the steppe Iranians and seize their steppe lands for themselves. They were able deploy this mode of warfare effectively on the Han Chinese empire and established a system where mobile steppe warriors could defeat much larger armies raised by sedentary populations. From the available record of conflicts in the meticulous cīna records we see that first Hun Khanate (the Xiongnu) defeated the Yueh-chih (including likely precursors of the Kuṣāṇa-s) to the west and the Tung Hu to the east to establish themselves in the Mongolian center. "  \[[MT17](https://manasataramgini.wordpress.com/2017/07/30/mongolica-chingiz-khan-and-the-rest/)\]
+
 \[[MT1](https://manasataramgini.wordpress.com/2014/12/29/notices-of-hu%E1%B9%87a-s-in-kavya-and-an-excursus-on-their-origins-and-ethnicity/)\]
 
 ## Branches
@@ -16,6 +18,7 @@ title: Huns
 
 
 ## Ritual motifs
+- "This was accompanied by the recognition of the region around the Ötükän mountains near the Orkhon river in Central Mongolia as a holy territory of the Khans. It is notable that the Chingiz Khan and his successors recognized this region and established their capital of Qara Qorum in this region. This supports the continuity hinted by Chingiz recognizing the Shanyu the Xiongnu as a temporal predecessor in his letter to the cīna sage Chiu Chuji. " \[[MT17](https://manasataramgini.wordpress.com/2017/07/30/mongolica-chingiz-khan-and-the-rest/)\]
 - from IE to huNa-s and others
     - horse + fire rituals and soma allusions spanning Chu dynasty to chingIz khAn. \[[MT](https://manasataramgini.wordpress.com/2013/12/09/some-reflections-on-the-khans-qaidu-and-dua-and-the-great-khans-lost-legacy/)\]
 - altaic devI umAi brought to India by the kushAna-s.
