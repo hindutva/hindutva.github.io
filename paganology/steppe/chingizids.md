@@ -1,14 +1,14 @@
 ---
 title: Chingizid mongols
 ---
-Chingizid Menggu/Mengwu/ Mongol tribe. The great chingiz khAn (family tree [here](https://en.wikipedia.org/wiki/Family_tree_of_Genghis_Khan)) conquered and started the empire.
+Chingizid Menggu/Mengwu/ Mongol tribe. The great chingiz temujin khAn (family tree [here](https://en.wikipedia.org/wiki/Family_tree_of_Genghis_Khan)) conquered and started the empire. He drew inspiration from the Hunas.
 
 Thence emerged:
 
 - The Golden horde (urdu)/ Ulus of Jochi towards Russia, which after Öz Beg Khan declined due to internal conflict and Islamicized.
 - (Chagatai) Tsagadaina Khaanat Ulus ruled over mughalistaan in Ferghana area - also islamicized.
     - gUrkhAni-s Timur and babur's mogols (displaced by Oirat-s) came thence.
-- House of Ögedei, split and subsumed by chagatai and Tolui's descendents. 
+- House of Ögedei, later split and subsumed by chagatai and Tolui's descendents. 
 - Tolui's yuan dynasty came from his Nestorian Christian wife Sorghaghtani Beki.
 - From Tolui's son - Hulagu-yn Ulus/ Ilkhanate accross Iran, Iraq etc., which also islamized.
 
