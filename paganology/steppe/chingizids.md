@@ -1,7 +1,16 @@
 ---
 title: Chingizid mongols
 ---
-Chingizid Menggu/Mengwu/ Mongol tribe. The great chingiz temujin khAn (family tree [here](https://en.wikipedia.org/wiki/Family_tree_of_Genghis_Khan)) conquered and started the empire. He drew inspiration from the Hunas.
+
+Chingizid Menggu/Mengwu/ Mongol tribe. 
+
+## Hun connection
+- "From the famous rock-carving on the cliff overlooking the Tuula river facing north towards Ulan Bator dated to the 1000-1100s of CE depicting the ancestress doe (Qoa Maral) and the ancestress Alan Qoa suggest that the Mongols had re-established themselves in Mongolia by then." \[[MT](https://manasataramgini.wordpress.com/2017/07/30/mongolica-chingiz-khan-and-the-rest/)\]
+- "It is notable that the Chingiz Khan and his successors recognized this region and established their capital of Qara Qorum in this region. This supports the continuity hinted by Chingiz recognizing the Shanyu the Xiongnu as a temporal predecessor in his letter to the cīna sage Chiu Chuji. ... Chingiz does not acknowledge these Türks as his predecessors rather he skips them going back to the earlier Huns." \[[MT](https://manasataramgini.wordpress.com/2017/07/30/mongolica-chingiz-khan-and-the-rest/)\]
+
+## Legacy of Chingiz
+The great chingiz temujin khAn conquered and started the empire (details [separate](../chingiz/)). General details about their foundational tactical, strategic, legal, ritual, administrative techniques are described there. 
+
 
 Thence emerged:
 
@@ -11,6 +20,9 @@ Thence emerged:
 - House of Ögedei, later split and subsumed by chagatai and Tolui's descendents. 
 - Tolui's yuan dynasty came from his Nestorian Christian wife Sorghaghtani Beki.
 - From Tolui's son - Hulagu-yn Ulus/ Ilkhanate accross Iran, Iraq etc., which also islamized.
+
+### Fall
+"Finally, other than demography (relatively low numbers) and internecine conflict a key factor in the ultimate unraveling of the Mongol system was their approach to religion.  As archetypal heathens they clearly gravitated towards a version of religion closest in spirit to their own namely the Indo-Aryan religion. They received watered down versions of it from the Uighurs first and then the Tibetans. This however, did not translate into a robust religious policy. Like most archetypal heathens their natural tendency was to adopt a “secular” (used in the weird Indian sense of the usage) attitude towards the religion of their conquered peoples."
 
 
 ## Il-khAns
@@ -23,7 +35,6 @@ Thence emerged:
 
 ## Ritual systems
 - “There was a great battle between the demons and the Tengri in which the latter were defeated. They turned to Qormusta Khan Tengri (ahura mazdA), the high god, for aid. He declared that their defeat was due to them having no horse-standard and recommended that they invoke the Suelde Tengri the god of the horse-banner. Then appeared 9 divine brothers armed with swords, tiger-skin quivers and bows, the eldest of whom was Suelde Tengri, riding fiery horses (corresponding to the nine horse tails of the banner). Aided by these deities, the Tengri fought the demons and defeated them.” {[MT](https://manasataramgini.wordpress.com/2013/04/03/some-further-notes-on-the-mongol-religion/)}
-- "Chingiz is also said to have formalized other rituals such as those of marriage. Walther Heissig noted that in eastern Mongolia they still recite this history during the pre-marriage ritual: “The fortunate Chingiz Kha’Khan, the incarnation of Qormusta Tengri, at the time when he took to wife Boerte [Footnote 3], the daughter of the Bayan of the Khunggirad tribe, the subject of Ughichud, sent his wise officials, led by the ministers Boghorju and Muqali [Footnote 4] and following the custom of the old, the custom was fulfilled to ask after the name and the year of birth of the bride. He is said to have introduced the ritual of anointing the yurt followed by the worship of the deities of the sun and moon and making offerings to the yurt hearth fire.” The last can be compared to the ritual offering to the gArhapatya fire in the Hindu tradition."
 
 ### Late Indo-tibetan influence
 
