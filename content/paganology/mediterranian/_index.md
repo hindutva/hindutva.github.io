@@ -50,6 +50,7 @@ title: Mediterranian
     - Sacral kingship in Greece, Rome, Scandinavia etc.. \[[GK17](https://krasskova.wordpress.com/2016/04/04/sacral-kingship-what-it-really-is/)\]
     
 ## Heroes
+- Cleisthenes, who ended Athenian tribal fighting by assigning everyone to ten units of ten - paving the way for the city's rise.
 - Kaiser (Caeser) Augustus Octavian, first emperor, avenger of his adapted father's murder, bringer of virtue and strength.
 - Julian the apostate, the last pagan emperor of Rome, likely murdered by a Christian.
   - A friend of the great Sallustius.
