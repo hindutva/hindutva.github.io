@@ -69,7 +69,7 @@ The big enemies to the south, the Jin and the Tangut were objects in need of ser
 ### Tackling the Tangut and jin
 By this he created strategic depth and a cast a pincer-grip on the Tangut to destroy them in his final campaign. Through this period he kept the Jin on low burn after the initial hammering he gave them. Thus he left for his successors the stranglehold on them which they quickly tightened to put an end to the mighty Jin.
 
-### Tech innovations
+## Tech innovations
 "Second, while there are many examples of tactical brilliance through all his campaigns, one notable point is his innovative development of military technology like firepower and siege-craft to take fortified centers of settled zones. This was one deficiency which Altaic steppe powers routinely had – the inability to take fortified power-centers settled zones effectively. After Chingiz we even see a relapse to this state among successor states like those of the Oirats.
 
 However, his development of innovative siege-craft, firepower, “biological warfare” and hydraulic works to divert rivers in flooding cities allowed them smash these strongholds like no one before them. Other innovations included the use of military booms (chains) on rivers to block naval operations of enemies, like in the campaign to bring down the Mohammedan Turk Temür Maliq."  \[[MT](https://manasataramgini.wordpress.com/2017/07/30/mongolica-chingiz-khan-and-the-rest/)\]
@@ -78,6 +78,6 @@ However, his development of innovative siege-craft, firepower, “biological war
 
 "This trend continued among the successors of the Chingiz Khan with Hülegü having Nasser ad-din al Tusi take the books that mattered most, like those on astronomy and medicine, from the Hāśīśin library upon the sack of their citadel. He also recognized the value of a individual like Nasser for his knowledge while demolishing the rest of the Mohammedan edifice. His brother Qublai Khan’s astronomical observatory employing astronomers across the empire was another example of the interest in knowledge in a more general sense. Finally, Qublai’s chartering of several thousands of schools throughout his realm allowed this knowledge to plowed back into the population."
 
-### Merit and elite
+## Merit and elite
 - Chingiz killed quickly off old elite after their defeat (as he had done since early raids on Tatars barring exceptions he later regretted and fixed). "Likewise, he showed no mercy for any level of the Jurchen or Tangut and their sinitic or sinicized power-holders. These he simply destroyed and replaced with his talent. This was followed by his successors with the southern Han power centers. This was very different in form and action from previous client-patron relationship that both steppe-land and sedentary powers tried to establish."  \[[MT](https://manasataramgini.wordpress.com/2017/07/30/mongolica-chingiz-khan-and-the-rest/)\]
 - "A key aspect of the plan was the kind of accommodation he showed for different preexisting power structures: He was rather clear about meritocracy and was willing to take in various Uighur, other Turkic, Khitan, and Aran/Alan talent for his cause. For instance he appointed the Khitans Yelü Ahai and Yelü Tuhua to rule over the lands he took from the Mohammedans in Khwarizm. " \[[MT](https://manasataramgini.wordpress.com/2017/07/30/mongolica-chingiz-khan-and-the-rest/)\]
