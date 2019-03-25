@@ -2,7 +2,7 @@
 title: shaka, kushAna
 ---
 
-- shAka-s (scythian-s) and kuShANa-s, early masters of horseback warfare at the end of chariot era, displaced by admixed huNa-s.
+- shAka-s (scythian-s,  Skudra – Sogdian – Saka) and kuShANa-s, early masters of horseback warfare at the end of chariot era, displaced by admixed huNa-s.
     - shaka-s included women warriors who might have inspired Amazon stories, interbred with mongols. Eg. Eastern shAka-s in Altai - [YT](https://www.youtube.com/watch?time_continue=2981&v=Wg5IHN5t1X8).
 - "The invention of the stirrup itself remains murky – it is first seen in India and then in the steppes, yet the first major users of equestrian warfare were the steppe Indo-Iranians like the Shakas and Kushanas. It was from them that it was transmitted to the first Altaic people who became known to the world as the Huns under Motun Tegin, and the Kushanas themselves became the first victims of the Huns. " {[MT](https://manasataramgini.wordpress.com/2013/04/03/some-further-notes-on-the-mongol-religion/)}
 
