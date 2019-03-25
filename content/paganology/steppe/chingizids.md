@@ -6,11 +6,12 @@ Chingizid Menggu/Mengwu/ Mongol tribe. The great chingiz temujin khAn (family tr
 Thence emerged:
 
 - The Golden horde (urdu)/ Ulus of Jochi towards Russia, which after Öz Beg Khan declined due to internal conflict and Islamicized.
-- (Chagatai) Tsagadaina Khaanat Ulus ruled over mughalistaan in Ferghana area - also islamicized.
+- Remnants of (Chagatai) Tsagadaina Khaanat Ulus ruled over mughalistaan in Ferghana area - also islamicized.
     - gUrkhAni-s Timur and babur's mogols (displaced by Oirat-s) came thence.
 - House of Ögedei, later split and subsumed by chagatai and Tolui's descendents. 
 - Tolui's yuan dynasty came from his Nestorian Christian wife Sorghaghtani Beki.
 - From Tolui's son - Hulagu-yn Ulus/ Ilkhanate accross Iran, Iraq etc., which also islamized.
+
 
 ## Il-khAns
 - " Il-Khans had conquered Mesopotamia after annihilating the Shi’a power of the Hashishins and the Sunni Kilafat. So the Mohammedans were no longer a political force in Mesopotamia. Yet they were able to destroy the external influences and re-establish the Shari’a." \[[MT](https://manasataramgini.wordpress.com/2011/05/20/some-notes-on-rashid-ad-din-bin-imad-ud-dawla-abul-khair-and-his-times/)\]

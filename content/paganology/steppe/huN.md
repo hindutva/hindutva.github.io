@@ -6,7 +6,14 @@ title: Huns
 
 \[[MT1](https://manasataramgini.wordpress.com/2014/12/29/notices-of-hu%E1%B9%87a-s-in-kavya-and-an-excursus-on-their-origins-and-ethnicity/)\]
 
-## Branches
+## hunnic khAnates
+- shanyu (Xiongnu) hunnic khAnate \[[MT17](https://manasataramgini.wordpress.com/2017/07/30/mongolica-chingiz-khan-and-the-rest/)\]
+- Xianbei kingdoms - including the Northern Wei in China.
+- Rouran Khanate - probably springing from the Xianbei.
+- Tuguhun khanate
+    - "Hunnic Mongols led by their Kha’Khan Tuguhun established the eponymous kingdom in central Asia (called Azha by the Tibetans). He conquered the Tarim region and extended his sway in direction of Kashgar, taking Khotan in the south and part of what is now Kyrgyzstan. He was what one might call a lesser, proto-version of Chingiz Kha’Khan – he re-organized the administration, introduced a written script for the old Mongolian dialect and even introduced agricultural sectors in his kingdom which complemented the pastoral lifestyle of his peoples. "
+
+## Other branches
 - [Alchon](https://en.wikipedia.org/wiki/Alchon)
 - [Hephthalites](https://en.wikipedia.org/wiki/Hephthalites) (shveta-huNa-s)
 - [Kidarites](https://en.wikipedia.org/wiki/Kidarites)
@@ -26,8 +33,3 @@ title: Huns
 ## Genetics:
 - " Among the people whose DNA was recovered from the Hun cemetery in Duurlig Nars, Northeast Mongolia (~20-0 BCE), there was one with the typical Indo-Iranian R1a1 Y-chromosome alongside others with North-East Asian markers." \[[MT](https://manasataramgini.wordpress.com/2013/12/09/some-reflections-on-the-khans-qaidu-and-dua-and-the-great-khans-lost-legacy/)\] 
 
-## Later hunnic khAnates
-- shanyu hunnic khAnate \[[MT17](https://manasataramgini.wordpress.com/2017/07/30/mongolica-chingiz-khan-and-the-rest/)\]
-- Rouran Khanate
-- Tuguhun khanate
-    - "Hunnic Mongols led by their Kha’Khan Tuguhun established the eponymous kingdom in central Asia (called Azha by the Tibetans). He conquered the Tarim region and extended his sway in direction of Kashgar, taking Khotan in the south and part of what is now Kyrgyzstan. He was what one might call a lesser, proto-version of Chingiz Kha’Khan – he re-organized the administration, introduced a written script for the old Mongolian dialect and even introduced agricultural sectors in his kingdom which complemented the pastoral lifestyle of his peoples. "
