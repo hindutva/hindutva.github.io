@@ -35,6 +35,11 @@ The nAstika-s are corrosive to dharma (more so than vedAnta ).
     - jaina nIti texts even respect the trayii.
     - They ultimately did mostly fall into line when faced with the common enemy. \[[MT1](https://manasataramgini.wordpress.com/2014/07/13/some-meanderings-on-early-medieval-history-from-the-view-point-of-nastika-compositions/)\]
 
+### Chinese critique
+Confucian intellectuals such as Han Yu railed against Buddhism for undermining the social structure of China. It eroded the loyalty of son to father, and subject to ruler, by encouraging people to leave their families and to become monks and nuns. Once they had been ordained, they stopped engaging in useful economic activity such as agriculture and weaving, and became a burden that had to be supported by the work of others. The persecution sought to return monks and nuns to the ranks of tax-paying commoners engaged in useful economic activity.
+
+"Buddhist monasteries daily grew higher. Men’s strength was used up in work with plaster and wood. Men’s gain was taken up in ornaments of gold and precious stones. Imperial and family relationships were forsaken for obedience to the fees of the priests. The marital relationship was opposed by the ascetic restraints. Destructive of law, injurious to mankind, nothing is worse than this way. Moreover, if one man does not plough, others feel hunger, if one woman does not tend the silk worms, others go cold. Now in the Empire there are monks and nuns innumerable. All depend on others to plough that they may eat, on others to raise silk that they may be clad. Monasteries and Refuges (Homes of ascetics, in Sanskrit) are beyond compute." - imperial edict of 845 by Emperor Wuzong of Tang.
+
 ## Corrosion of dharma by buddhism
 ### Cheating faithful dhArmika
 "The doyen of the vajrayAna bauddhas (padmavajra) has a rather devious advice in his guhyasiddhi for the bauddha initiate who is looking for a consort from the antyaja (avarNa) class to do certain buddhist tAntrika practices with." - [IMG1](../../../images/snippets/padmavajra-guhyasiddhi-antyaja-cheating-1.jpg), [IMG2](../../../images/snippets/padmavajra-guhyasiddhi-antyaja-cheating-translation.jpg)
@@ -47,11 +52,11 @@ The nAstika-s are corrosive to dharma (more so than vedAnta ).
 - "It is worth noting the statements of the Tibetan lamas, dharmasvAmin and tAranAtha, that the sthaviravAdin-s from lankA and the sindhu were at the forefront of demolishing and image of the heruka at bodhagaya and burning vajrayAna tantra-s. ...  Second, the tantra-s of the kubjikA-mata record the persecution of Astika-s by the Lankan tAthAgata-s. This streak has been seen more recently among the modern Lankan bikkhu-s. ... The sthaviravAdin-s in shrIlankA did not encourage revival of worship after the Christian assaults on the devAlaya of viShNu at Devinuvara and rAkShasAlaya of vibhIShaNa at Colombo. This resulted in the loss of these traditions. " \[[MT17](https://manasataramgini.wordpress.com/2012/04/23/an-indigo-south-asian-hemus-salt-and-other-interlocutions/)\] 
 - Modern bauddha army - [SW17](https://swarajyamag.com/amp/story/magazine%2Fsorry-state-of-hindu-shrines-in-the-lankan-land).
 
-### Uighur emasculation
-- "On the way he found the Uighurs had assembled a civilization in the steppes that eschewed violence and lived by the principles of Buddhism in Sairam and Qara’Shahar. Timur saw in them ultimate kaffirs and incited his men not to waste the opportunity of the great Jihad on the idolaters. The Uighurs were now a mere shadow of their great past and were now militarily deadened by the renunciatory teachings of Buddhism. They made no iron weapons but bronze statues of the Bodhisattva and their leader no bore no likeness to their great khans of yore but was a peace-mongering Idiqut like the modern Dalai Lama. Timur fell upon them with the utmost ferocity simply erasing their kingdom with pure slaughter. Unable to defend themselves before the ghazis the Uighurs fled in every direction, but Timur’s squadrons caught them wherever they went and slit their throats. The survivors were forcibly converted to Islam or tortured to death. Thus the Uighur culture passed out on the sands of the Gobi into scrolls of history. " \[[MT](https://manasataramgini.wordpress.com/2003/02/17/the-struggle-against-qamar-ad-din/)\]
-
 ### Japan
 - "One of the striking things u notice in the late edo period is the near complete absence of bauddha thinkers in the response to the west, many were confucian or belonged to kokugaku, and many criticized buddhism, yoshida shoin said something like how buddhism made men otherworldly and prevented action." \[SP\]
+
+### Other examples abroad
+See [uyghur page](../../../paganology/steppe/uyghur.md).
 
 ## Corrosion of dharma by jaina-s
 

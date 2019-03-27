@@ -6,6 +6,8 @@ contents:
   - title: Steppe
     contents:
       - url: dir://paganology/steppe/
+      - title: Religion
+        - url: dir://paganology/steppe/religions/
   - title: North Europe
     url: /paganology/north-europe.md
   - title: China
