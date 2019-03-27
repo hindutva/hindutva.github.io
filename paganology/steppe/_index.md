@@ -9,5 +9,6 @@ title: Steppe radiations
 - "However, a second wave of Indo-Europeans, the Indo-Iranians, started advancing east perhaps starting around 4100 YBP. They appear to have conquered the Kazakh steppes by around 4000 YBP& sometime in the following 500 years invaded India: Aryan invasion."
 - "By sometime around 3200-2900 YBP a branch of the Aryans advanced deeply to the east. ...This new Indo-Iranian wave mixed with the East Asians in Mongolia... This gene flow was not very extensive in the eastern reaches but it brought the technology of horse+goat+sheep+cow diary pastoralism to the east. This appears to have been transferred without much genetic acquisition of the lactase persistence phenotype."
 
-Thence rose the iranic shakas and kuShANa-s; then the admixed huNa-s, thence the turks, then khitans, then the mongols. They are separately considered in separate pages.
+Thence rose the iranic shakas and kuShANa-s; then the admixed huNa-s, thence the turks, then khitans, then the mongols. "Huns->Blue Turks->China->Blue Turks->[Arabs, Tibetans, various Turks, China]->Uighurs->Kirghiz->Kitans->Mongols of Chingiz Kha’Khan". They are separately considered in separate pages.
+
 
