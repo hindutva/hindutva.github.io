@@ -12,7 +12,7 @@ title: Chingiz Khan
 - Then he started picking off the Tanguts and the Jurchen controlled north China. And then the Uighurs, Khwarazm Turk sultanate. Then Persia, afghanistan, and the western qAra khitai. From Korea to Eastern Europe did his mongols go. In all this, novel technology and tactics were used including leveraging mobility by attacking from multiple points (crossing a desert unexpectedly in case of the Khwarazm), doing excellent propaganda - "surrender and be treated well, or resist and be fully slaughtered", spawning and herding refugees, killing off all the old elite.
 - From his lineage sprang great conquerors and many able successors. Family tree [here](https://en.wikipedia.org/wiki/Family_tree_of_Genghis_Khan)
 - Alas, his secularism and tolerance of abrahamisms sucked out mongolness and the grace of tengri from one islamized half; while sedentary decadance did the other major part in.
-- "The biggest impact that has been uncovered to date appears to be that of Chingiz Kha’Khan, the founder of the great Mongol nation, who appears to have left behind 16 million male descendents in the modern world." [MT05](https://manasataramgini.wordpress.com/2005/12/23/founding-fathers-and-other-musings/)
+- "The biggest impact that has been uncovered to date appears to be that of Chingiz Kha’Khan, the founder of the great Mongol nation, who appears to have left behind 16 million male descendents in the modern world." [MT05](https://manasataramgini.wordpress.com/2005/12/23/founding-fathers-and-other-musings/) "If one accounts for females the number could be as many as double that. "
 
 
 ## Low start
@@ -51,7 +51,7 @@ He continued his army organization, started a mail system with fast riders and o
 
 ## Mongol World wars
 ### Building on prior steppe powers
-- Chingiz Khan exploited the knowledge and techniques of prior steppe powers- especially the Khitai and Uyghur.
+- Chingiz Khan exploited the knowledge and techniques of prior steppe powers- especially the Khitai and Uyghur. " Chingiz Khan clearly voiced his cause for hostilities against the Jurchen, the Chinese and the Naiman as arising from their dispossessing the old Mongol empire of the Khitan. He offered the Khitan elite special ranks in his administration as he saw them as coethnics. "
 - "This was accompanied by the recognition of the region around the Ötükän mountains near the Orkhon river in Central Mongolia as a holy territory of the Khans. ... Thus, the foundational Hun empire defined the religious geography of the later Mongolic homeland." \[[MT](https://manasataramgini.wordpress.com/2017/07/30/mongolica-chingiz-khan-and-the-rest/)\].
 - "The population of Mongolia at the time of the great Khan is estimated to have been around 700,000 people, who were divided and lost in conflict. ... Despite all this background the best of the earlier Uighur Kha’khans and Khitan Khans were not Chingiz Khan. Thus, the backdrop of the buildup of innovations among the Altaic people, rather than contradicting, actually shows that Chingiz Khan stood apart from the best the steppe had produced. There are two sides to this, military and administrative. "\[[MT](https://manasataramgini.wordpress.com/2017/07/30/mongolica-chingiz-khan-and-the-rest/)\].
 
