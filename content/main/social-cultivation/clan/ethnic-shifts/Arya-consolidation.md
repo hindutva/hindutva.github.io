@@ -76,3 +76,7 @@ The **vaidika ideals** (../deva-s, xAtra, dharma, brahman, yajna ... mentioned i
 - This facilitated a certain unity in spirit (../described in  [the intro](../../hinduism/introduction/)) throughout hindu abodes.
     - Example from Trinidad \[[IMG](http://i.imgur.com/Lsadw9y.jpg)\].
 - Thus, it is no joke when one declares that without the brAhmaNa-s, there would be no India. Rather, we would have an unconsolidated set of tribes (as in most of America and Africa), ready to far more easily fall to the sword of the intolerant monotheistic blight.  
+- "In terms of “soft power” the Indo-Aryan and Iranian religions were far more capable of imposing themselves on various east Asian peoples including the Mongols and Turks than vice-versa. Indeed, the religion of the Hindu even impressed itself on the Islamized Turko-Mongol tyrant Akbar in his later days. "
+
+### Defence
+"Unlike today, in the past it was an important factor for the survival of the Hindus. As the Greek observers remarked the brAhmaNa-s called upon the rulers repeatedly to unrelentingly keep fighting until all vestiges of Macedonian military presence were wiped out in northwestern India. Their cousins, the old Iranians were similar even though they were on the losing side. Long after Darius had fallen the zaotar Spitamanes of the clan of Zarathushtra was able to mobilize the Iranians in a fight unto death against the Macedonians."
