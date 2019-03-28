@@ -82,6 +82,12 @@ contents:
           - title: Ethnic shifts
             contents:
               - url: dir://main/social-cultivation/clan/ethnic-shifts/
+          - title: Theory
+            contents:
+              - url: dir://main/social-cultivation/clan/theory/
+          - title: Practice
+            contents:
+              - url: dir://main/social-cultivation/clan/practice/
   - title: अर्थः Resources
     contents:
       - url: dir://main/resources/
@@ -134,6 +140,9 @@ contents:
       - title: परैः सम्बन्धः External relations
         contents:
           - url: dir://main/polity/external-affairs/
+          - title: Defence
+            contents:
+              - url: dir://main/polity/external-affairs/defence/
           - title: Tolerance
             contents:
               - url: dir://main/polity/external-affairs/tolerance/

@@ -24,7 +24,7 @@ The fundamental problem here is that you don't seem to have the concept of a har
 
   
 
-Also see the parable of varNavatI [here](../varnavatii/).
+Also see the parable of varNavatI [here](../theory/varnavatii/).
 
 ### Other counters
 
