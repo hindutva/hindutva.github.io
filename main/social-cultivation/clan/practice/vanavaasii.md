@@ -17,7 +17,7 @@ vanavAsI-s depicted in the kAvya-s:
 
 Self identification of the vanavAsI-s: [ST2015-data](http://indiafacts.co.in/are-indian-tribals-hindus-the-figures/).
 
-#### Contrast with interactions with Abrahamisms
+## Contrast with interactions with Abrahamisms
 
 Consider:  
 
