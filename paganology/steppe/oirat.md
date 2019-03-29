@@ -28,6 +28,8 @@ Chingizids Mandughai Khatun, Dayan Khan, Altan Khan drove them out and recouped 
 ## Dzungaria
 The Oirats would later regroup south of the Altai Mountains in Dzungaria. Even there they saw back and forth struggle with Chingizids and Qing. The struggle ended in 1757 with the defeat of the Oirats in Dzungaria; they were the last of the Mongol groups to resist vassalage to Qing. The attempted unification of the Oirats caused dissension among the tribes and their Chief Tayishis who were independent minded but also highly regarded leaders themselves. This dissension reputedly caused Kho Orluk to move the Torghut tribe and elements of the Dörbet tribe westward to the Volga region where his descendants formed the Kalmyk Khanate.
 
+The Qing army (1755–1758) carried out the Dzungar genocide, killing every Oirat they met on their way in the territory of the Dzungar Khanate. Of the 600,000 Dzungar population, only 30 thousand survived.
+
 ## Kalmykia
 "In 1618, the Torghut and a small contingent of Dörbet Oirats (200,000–250,000 people) chose to migrate from the upper Irtysh River region to the grazing pastures of the lower Volga region south of Saratov and north of the Caspian Sea on both banks of the Volga River. The Torghut were led by their taishi, Kho Orluk. They were the largest Oirat tribe to migrate, bringing along nearly the entire tribe. The second-largest group was the Dörbet Oirats under their taishi, Dalai Batur. Together they moved west through southern Siberia and the southern Ural Mountains, avoiding the more direct route that would have taken them through the heart of the territory of their enemy, the Kazakhs. En route, they raided Russian settlements and Kazakh and Bashkir encampments."
 
