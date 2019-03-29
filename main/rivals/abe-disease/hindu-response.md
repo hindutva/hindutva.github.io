@@ -3,26 +3,12 @@ title: Hindu response
 ---
 
 
-- Military response - see [here](../../../polity/external-affairs/defence/).
+- Military response - see [defence page](../../../polity/external-affairs/defence/).
     - [MT](http://manasataramgini.wordpress.com/2014/02/04/some-notes-on-the-extra-military-aspects-of-the-islamo-hindu-confrontation/) posits: "Mohammedanism needed special backing for its effective survival in the subcontinent. ... Demographic and missionary aggression by Mohammedanism might not have been sufficient for it to overrun the Hindu dharma."
-
+- For generic intellectual and identity based response patterns, see [defence/id page](../../../polity/external-affairs/defence/id/) 
 - "The striving for non-Hinduness might have even lead to internal rifts within Mohammedanism as each group was trying be more Mohammedan than the other. " \[[MT](http://manasataramgini.wordpress.com/2014/02/04/some-notes-on-the-extra-military-aspects-of-the-islamo-hindu-confrontation/)\]
 
-## Attacks on the Abrahamisms at an intellectual level.
-
-### Muted inquiry into the Abrahamisms
-
-In classical Indian literature "the Muslims, who were not only present in India for many centuries, but were its actual rulers, appear only in vague and marginal references" (HALBFASS 1988: 182); "the Sanskrit tradition has never taken official notice of the existence of Islam" (ERNST 1992: 30); "I would lay stress on this - the religious identity of the Central Asians \[who invaded India\] is not once thematized in Sanskrit sources" (POLLOCK 1993: 286). 
-
-### Fooling oneself
-
-"I have wondered over the years why we Hindus have remained preoccupied with the behaviour patterns of Muslims and Christians and not with the belief systems which create those behaviour patterns. We object to Christian missions, but refuse to discuss Christianity and its god, Jesus. We object to Islamic terrorism, but refuse to have a look at Islam and its prophet, Muhammad. I see no sense or logic in this Hindu habit.
- 
- In fact, we go a step further. We appeal to the Christian missionaries in the name of Jesus, and ask them not to do what they have been doing. We appeal to the Muslims in the name of Muhammad, and ask them to stop doing what they have been doing. In the process, we have invented a “real” Jesus and a “true” Christianity. We have also invented a “real” Muhammad and a “true” Islam. The missionary and the mullah smiles at our inventions but goes ahead and makes good use of our soft-headedness. That is why we have failed to solve the “communal problem” all these years. We have never tried to find out why our own people, which both Christians and Muslims are, should become alienated from us when they pass under the spell of Christianity and Islam.
- 
- Flattering the bully may become necessary when the bully is powerful and there remains no other way of softening him except by extolling his heroes or his cult. Hindus have experienced such emergencies vis-a-vis both Islam and Christianity. But there is no reason for their continuing with the same psychology. Hindus should not convert an Apad Dharma into Sanatana Dharma."  – [Sita Ram Goel writing in 1994, Preface to Jesus Christ: An Artifice for Aggression, Voice of India, 2001](https://bharatabharati.wordpress.com/2012/02/06/hindus-should-not-convert-an-apad-dharma-into-sanatana-dharma-sita-ram-goel/)
-
-### Intelligent critiques
+## Intelligent critiques
 
 A few Hindu-s did understand and produce some very high-quality critiques of Abrahamistic thought. For example, we have a 9th century apostate of Islam, Ahmad ibn Yahya ibn Ishak al-Rawandi, quoting barAhima (or brAhmaNa-s) of al-hind:  
 
@@ -35,11 +21,15 @@ Other reports:
 
 In the 19th century, we see excellent critiques by dayananda sarasvatI and [arumuka nalavAr](http://en.wikipedia.org/wiki/Arumuka_Navalar) \- and to some extant by vivekAnanda.
 
+### Muted inquiry into the Abrahamisms
+
+In classical Indian literature "the Muslims, who were not only present in India for many centuries, but were its actual rulers, appear only in vague and marginal references" (HALBFASS 1988: 182); "the Sanskrit tradition has never taken official notice of the existence of Islam" (ERNST 1992: 30); "I would lay stress on this - the religious identity of the Central Asians \[who invaded India\] is not once thematized in Sanskrit sources" (POLLOCK 1993: 286). 
+
 ### Kalachakra Tantra
 
 From [Heid1998](https://journals.ub.uni-heidelberg.de/index.php/jiabs/article/viewFile/8878/2785): In Sanskrit literature the Kalacakra tantra is unique in presenting a fairly comprehensive and quite accurate portrayal of Islamic beliefs and practices. \[[WP](https://agnimaan.wordpress.com/2015/06/08/portrayal-of-muslims-in-kalachakra-tantra/)\]
 
-### Heathenizing Abrahamists
+## Heathenizing Abrahamists
 
 - There was some extra-military response to Islam during muslim reign \[[MT](http://manasataramgini.wordpress.com/2014/02/04/some-notes-on-the-extra-military-aspects-of-the-islamo-hindu-confrontation/)\], involving conversion of muslims, apostacies of Akbar and Dara Shukoh etc..
     - Apostasy of Akbar: [MT](http://manasataramgini.wordpress.com/2014/02/04/some-notes-on-the-extra-military-aspects-of-the-islamo-hindu-confrontation/) and [B](http://bharatendu.com/2009/07/06/akbar-transition-5/).
@@ -48,30 +38,10 @@ From [Heid1998](https://journals.ub.uni-heidelberg.de/index.php/jiabs/article/vi
 - vanga-desha
     - maa bonbibi (= mulsimified forest deity vanadevI durgA) of the sundarban-s [IFC15](http://infochangeindia.org/environment/features/maa-bonbibi-in-the-land-of-tigers.html).
 
-### Resistance to conversion
 
-The Hindu identity provides some resistance from pressure to convert to Abrahamisms.
 
-- Relatively more successful resistance to Christianity in Manipur (which is 46% Hindu, compared with a small minority in Nagaland \[[History](https://agnimaan.wordpress.com/2015/07/03/shifting-from-manupur-to-nagaland-christian-missionaries-resisted-by-vaishnavism/)\].
 
-### Reconversion
-
-- Hindu law:
-    - Reconversion to the hindu ethos was codified in the devala-smRti \[[PVK_IMG1](https://imgur.com/8ZlWt2a), [TW17](https://twitter.com/vajrayudha11/status/865964633894649856)\] and Vignaneswara’s commentary to Yagyavalkya Smriti \[[S](http://swarajyamag.com/culture/caste-is-hardly-an-impediment-for-homecoming-hindus/)\].
-- In Practice:
-    - \[Some Aspects of Ancient Indian Culture, by DR Bhandarkar, Rev. JM Anthos, Asian Educational Services, 1989. pp 68.\] quotes an incident in 1398-99 CE during the Vijayanagara era, in which 2,000 Brahmin girls of a village were rescued from the armies of Firoz Shah Bahmani and accepted after purification rites \[1\].
-    - "The Shuddhi movement of Arya Samaj, carried to many parts of the north in the early decades of 1900s by Swami Shraddhananda, is nothing but a continuation of this long-time Hindu practice."
-
-### Problematic immunity and the idiot baba-s.
-
-- While Muslims and Christians did some comparitive study of Hindu civilization and culture, the Hindu-s did not reciprocate - at least not in equal volume. Rather, many Hindu-s made idiotic and misleading statements such as "All religions are equal. You can be a good Hindu by being a good Muslim or Christian".
-- Kanchi MahasvamI produced foolishness that claimed crazy stuff such as "all religions are the same", "ramses and rama are related", "aztec is probably a corrpution of Astika" etc.. ([1](http://www.kamakoti.org/kamakoti/articles/Jagadguru%20Divya%20Chareitram%20Hindu%20Culture%20from%20Egypt%20to%20Java%20English.html)).
-    - But, a mitigating factor: "the AchArya was not a svayaM-devatA-vAdin & upheld the deva-dharma sincerely despite certain serious idiosyncratic misapprehensions".
-- Criticism
-    - Swami Aksharananda (Guyana) [here](https://www.youtube.com/watch?v=AFJKQdhXzvo).
-
-###   
-Rousing fight to expel the Abrahamist threat
+## Rousing fight to expel the Abrahamist threat
 
 - "Make the people one; fill their minds with the single thought of resisting the Mleccha enemy..." - Samarth Ramdas's letter advising Sambhaji. \[ [K1](http://kalchiron.blogspot.com/2014/06/advice-by-ramdas-swamy-to-sambhaji.html)\]  
 
