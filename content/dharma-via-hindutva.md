@@ -1,5 +1,5 @@
 ---
-title: <i class="fas fa-hand-holding-heart"></i>Donate Via Hindutva
+title: Donate Via Hindutva
 ---
 
 ## Dharma via Hindutva
