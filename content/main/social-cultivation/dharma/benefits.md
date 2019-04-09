@@ -69,3 +69,35 @@ It also addresses the very real fact that most people cannot be truly, lastingly
 
 ### Harmonization of social groups
 - The system of four varNa-s (../mostly determined by birth), with their varying duties, was used to harmonize society (more [here](../social-cultivation/clan/varna-theory/)). Keeping in mind relatively deeper principles of the dharma and changed circumstances, this part of the essential spirit may now be abandoned in favor of other systems.
+
+## Summaries
+PV Kane in [v1](https://archive.org/stream/HistoryOfDharmasastraancientAndMediaevalReligiousAndCivilLawV.1/Kane_A-History-of-Dharmasastra-v1_1930#page/n509/mode/2up).
+
+> "In the foregoing pages most of the classical works and the most 
+ prominent writers on Dharmasastra during a period of about twenty 
+ five centuries have been passed in review. The number of authors, 
+ and works on dharmasastra is legion. All these numberless authors 
+ and works were actuated by the most laudable motives of regulat- 
+ ing the Aryan society in all matters, civil, religious and moral, and 
+ of securing for the members of that society happiness in this world 
+ and the next. They laid the greatest emphasis on the duties of 
+ every man as a member of the whole Aryan society, as a member 
+ of the particular class to which he belonged and very little emphasis 
+ on the privileges of men. They created great solidarity and cohesion 
+ among the several classes of the Aryan society in India in spite of 
+ their conflicting interests and inclinations and enabled Hindu society 
+ to hold its own against successive aggressions of foreign invaders. 
+ They preserved Hindu culture and literature in the midst of alien 
+ cultures and in spite of bigoted foreign domination. There is no 
+ doubt that the authors on dharmasastra in their desire to evolve 
+ order out of chaos and to adjust and harmonise the varying 
+ practices of people with the dicta of ancient sages were guilty 
+ of the faults of raising hair-splitting arguments, divisions and sub-divisions and also of thinking that religious rites and formularies were the be-all and end-all of human existence. But living as most of the later writers did in the midst 
+of aggressive and violently unsympathetic cultures and rulers and 
+possessing no powerful central government that sympathised with 
+their ideals, they were driven more and more to revolve within 
+their own narrow grooves and could not see far in order to regulate 
+society in a free and buoyant spirit. In spite of these defects, the 
+work done by the writers on dharma&stra should excite our admira- 
+tion and entitles them to the regard of all those that are interested in 
+the study of the vicissitudes of Hindu society for thousands of years. "
