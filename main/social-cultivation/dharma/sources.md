@@ -1,6 +1,7 @@
 ---
 title: Sources
 ---
+
 - Sources of the dharma include the veda-s, itihAsa-s, purANa-s, the vedAnga called kalpa (which includes dharmasUtra-s, smRtis, dharmashAstra-s and their commentaries).
 - General intro to valid sources of hindu knowledge [here](../../bases/books/index/).
 - These sources are classifified into shruti (veda-s), smRti texts and shiShTAchAra (practice of learned elders).
