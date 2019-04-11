@@ -15,7 +15,7 @@ PS: We're not yet a registered org - donations made via us are not tax-deductibl
 ### Donation avenues
 - [donorbox.org/dharma-via-hindutva](https://donorbox.org/dharma-via-hindutva) (USD. Preferred for ACH.)
   - +++(Charges we incur as of 2019:  No donorbox fees upto 1k$. Payment processing [costs](https://donorbox.org/pricing): 2.9% + 30c via stripe/ paypal, 0.8% + A Cap Of $5 ACH bank transfers)+++
-- Paypal (allows credit cards) [here]().
+- Paypal (allows credit cards) [here](https://www.paypal.com/cgi-bin/webscr?cmd=_s-xclick&hosted_button_id=NLWWP6YAYGPD8&source=url).
   - +++([Charges](https://www.paypal.com/us/webapps/mpp/fundraising) we incur as of 2019: 2.9% + 30c)+++
 
 ## External donation options
