@@ -53,7 +53,7 @@ Later, Hypatia (c. 360 – 415) of Egypt who was burned by Christians, Proclus
 ## Nature of Gods and myths
 See [sallustius](../sallustius/).
 
-"Gods are hyperessential+++(=transcending substance and time)+++ henadic+++(=Atmans participating in being)+++ hypostases+++(=underlying entities)+++ emanating a seira+++(=chain [of manifestations])+++" - [KM](https://twitter.com/KaraMartiana/status/1077528569365049345)
+"Gods are hyperessential+++(=transcending substance and time)+++ henadic+++(=like Atmans participating in being)+++ hypostases+++(=underlying entities)+++ emanating a seira+++(=chain [of manifestations])+++" - [KM](https://twitter.com/KaraMartiana/status/1077528569365049345)
 
 ### Henads
 - henad, unit; the term is taken by Iamblichus, Syrianus and Proclus from Plato’s Philebus, where it is used interchangeably with the term ‘monad’. henad is the first principle (arche/ ἀρχή) and the measure ( metron) of being; the One is unparticipable, but the henads are participable, therefore they correlate with real beings.
