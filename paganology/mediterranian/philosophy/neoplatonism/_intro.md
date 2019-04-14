@@ -10,12 +10,12 @@ See [sallustius](../sallustius/).
 
 ### Entities
 - To Hen (τό ἕν), The One: Deity without quality (compare with brahman), sometimes called The Good.
-- Nous (Νοῦς), Mind/ Intellect: The Universal consciousness, from which proceeds
-- Psychē (Ψυχή), Soul: Including both individual and world soul, leading finally to
-- Physis (Φύσις), Nature.
 - henad, unit; the term is taken by Iamblichus, Syrianus and Proclus from Plato’s Philebus, where it is used interchangeably with the term ‘monad’. henad is the first principle (arche) and the measure ( metron) of being; the One is unparticipable, but the henads are participable, therefore they correlate with real beings.
   - Proclus divides henads into transcendent or independent units and those that are immanent and belong to their participants and are irradiations of the first.
   - in theurgy, henads constitute a set of theophanies, i.e. divinity in its many diffenent forms at all different levels of reality, therefore divine henad stands for the god-entity as a whole; the difference between the One and the participable henads (which may be compared with the Egyptian neteru), opens the theurgic way of adoration, worship and ascent.
+- Nous (Νοῦς) aka Demiurge (creator), Mind/ Intellect: The Universal consciousness, from which proceeds
+- Psychē (Ψυχή), Soul: Including both individual and world soul, leading finally to
+- Physis (Φύσις), Nature.
 
 ### Attributes
 - ""Hyperessential" (Greek huperousios) refers to entities like the Gods who transcend being or substance. "
@@ -23,3 +23,10 @@ See [sallustius](../sallustius/).
 
 ## Adoration of the Gods
 - Theurgy (θεουργία) describes the practice of rituals, sometimes seen as magical in nature, performed with the intention of invoking the action or evoking the presence of one or more deities, especially with the goal of achieving henosis (uniting with the divine) and perfecting oneself.
+
+
+## Tradition
+Middle Platonists, possibly Hindus ->  Ammonius Saccas (died c. AD 265) an apostate -> Plotinus (c. 205 – c. 270) of Egypt -> Porphyry (c. 233–c. 309) of Syria -> Iamblichus (c. 245 – c. 325) of Syria.
+
+Later, Hypatia (c. 360 – 415) of Egypt who was burned by Christians, Proclus Lycaeus (February 8, 412 – April 17, 485) of Lycia in Anatolia, Roman Emperor Julian (331/332 – 26 June 363)) the apostate and his friend Sallustius.
+
