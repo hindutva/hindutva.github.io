@@ -19,3 +19,7 @@ See [sallustius](../sallustius/).
 
 ### Attributes
 - ""Hyperessential" (Greek huperousios) refers to entities like the Gods who transcend being or substance. "
+
+
+## Adoration of the Gods
+- Theurgy (θεουργία) describes the practice of rituals, sometimes seen as magical in nature, performed with the intention of invoking the action or evoking the presence of one or more deities, especially with the goal of achieving henosis (uniting with the divine) and perfecting oneself.

@@ -8,9 +8,10 @@ Scholars have been selective about deciding whether any book's statement can be 
 
 
 ## Bases of authority
-- Historical claims about authorship is used by some traditions, in order to nominally claim some form of divine origin and higher authority in case of disputes.
+- Historical claims about authorship is used by some traditions, in order to nominally claim some form of divine origin and higher authority in case of disputes. This is amore general phenomenon, called pseudepigrapha.
   - Eg. Jīva Gosvāmin argues in his Tattvasandarbha that Vyāsa’s insight or samādhi is the source of the Bhāgavata’s teachings, and that his authorship – at a particular time and location in history – is what gives the śāstra its authority over all other Purāṇic, Upaniṣadic and Vedic śāstras (Dāsa 1995). \[Jonathan B. Edelmann\]
   - This was, rather, an excellent way to neutralize "argument from authority" - since every view and its opposite ended up claiming divine origins.
+  - Compare with [Pseudo-Aristotle](https://en.wikipedia.org/wiki/Pseudo-Aristotle) among the greeks.
 - Some works base their authoritativeness on being extracted from or based on (extinct) veda shaakhaa-s.
     - pAncharAtrika-s claim pedegree from ekAyana-veda \[[LT_U](https://archive.org/stream/LakshmiTantra/Lakshmi%20Tantra%201975%20VKrishnamacharya#page/n10/mode/1up)\].
 
