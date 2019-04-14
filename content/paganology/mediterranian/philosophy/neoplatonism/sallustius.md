@@ -44,3 +44,4 @@ Summary: Myths are divine, are "like the Gods", but are obviously not to be take
 
 ## Good are happy, both living and dead
 - "Souls that have lived in virtue are in general happy, and when separated from the irrational part of their nature, and made clean from all matter, have communion with the gods and join them in the governing of the whole world. Yet even if none of this happiness fell to their lot, virtue itself, and the joy and glory of virtue, and the life that is subject to no grief and no master are enough to make happy those who have set themselves to live according to virtue and have achieved it."
+
