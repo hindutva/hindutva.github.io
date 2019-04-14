@@ -26,8 +26,7 @@ dhArmika traditions comfortably got along without needing to read these as liter
 
 ## Comparable attitudes
 
-- Socrates on the use of myth [here](https://storify.com/EPButler/on-plato-phaedrus-229b-230a): "I accept what is customarily believed concerning them, and, as I was saying, I look not into them but into my own self: Am I a beast more complicated and savage than Typhon, or am I a tamer, simpler animal with a share in a divine and gentle nature?".
-- Sallustius's extremely beneficial view is [excerpted here](../sallustius/).
+- Sallustius's extremely beneficial view is [excerpted here](../../../../paganology/mediterranian/philosophy/neoplatonism/sallustius/).
 
 ## Proving myths fallacy
 Despite this, some modern Hindu scholars have tried too hard "prove" myths as facts. \[nAgarAja's summary of bAlagangAdhara's thought here.\] :

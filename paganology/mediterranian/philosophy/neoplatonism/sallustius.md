@@ -24,6 +24,7 @@ Summary: Myths are divine, are "like the Gods", but are obviously not to be take
 - "They also represent the activities of the Gods. ... Those who make the world are Zeus, Poseidon, and Hephaistos; those who animate it are Demeter, Hera, and Artemis; those who harmonize it are Apollo, Aphrodite, and Hermes; those who watch over it are Hestia, Athena, and Ares. One can see secret suggestions of this in their images. Apollo tunes a lyre; Athena is armed; Aphrodite is naked (because harmony creates beauty, and beauty in things seen is not covered)."
 - "But why have they put in the myths stories of adultery, robbery, father-binding, and all the other absurdity? Is not that perhaps a thing worthy of admiration, done so that by means of the visible absurdity the soul may immediately feel that the words are veils and believe the truth to be a mystery?"
 - "Of myths some are theological, some physical, some psychic, and again some material, and some mixed from these last two."
+  - Socrates on the use of myth [here](https://storify.com/EPButler/on-plato-phaedrus-229b-230a): "I accept what is customarily believed concerning them, and, as I was saying, I look not into them but into my own self: Am I a beast more complicated and savage than Typhon, or am I a tamer, simpler animal with a share in a divine and gentle nature?".
 - "May these explanations of the myths find favour in the eyes of the Gods themselves and the souls of those who wrote the myths."
 
 ## Angering and pleasing gods
