@@ -20,6 +20,12 @@ contents:
   - title: Mediterranian
     contents:
       - url: dir://paganology/mediterranian/
+      - title: Philosophy
+        contents:
+          - url: dir://paganology/mediterranian/philosophy/
+          - title: Philosophy
+            contents:
+              - url: dir://paganology/mediterranian/philosophy/neoplatonism/
   - title: Japan
     contents:
       - title: kokutai National spirit
