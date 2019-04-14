@@ -23,9 +23,9 @@ contents:
       - title: Philosophy
         contents:
           - url: dir://paganology/mediterranian/philosophy/
-          - title: Philosophy
+          - title: Platonism
             contents:
-              - url: dir://paganology/mediterranian/philosophy/neoplatonism/
+              - url: dir://paganology/mediterranian/philosophy/platonism/
   - title: Japan
     contents:
       - title: kokutai National spirit
