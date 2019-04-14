@@ -35,16 +35,8 @@ title: Mediterranian
     - Forget the the horror stories of the Talmud for the moment, look up the Kitos war waged by diaspora u1's, also look up tacitus histories wherein he records jewish proselytism and fanaticism. Prior to that john hyrcanus. \[[EG](http://egregores.blogspot.ca/2009/09/constantine-brief-history-of.html)\]  
         
     - "For the worst rascals among other peoples,15 renouncing their ancestral religions, always kept sending tribute and contributions to Jerusalem, thereby increasing the wealth of the Jews; again, the Jews are extremely loyal toward one another, and always ready to show compassion, but toward every other people they p183feel only hate and enmity. ... Those who are converted to their ways follow the same practice, and the earliest lesson they receive is to despise the gods, to disown their country, and to regard their parents, children, and brothers as of little account.  However, they take thought to increase their numbers; for they regard it as a crime to kill any late-born child..." - Tacitus \[[T1](http://penelope.uchicago.edu/Thayer/E/Roman/Texts/Tacitus/Histories/5A*.html)\]
-- Christian subversion of Roman empire
-    - Attempts at proscribing Christianity
-        - At one point in time, Christians were required to prove fealty to the Roman deities by sacrifice (disallowed in Christianity) certified in a scroll.
-    - Christian exaggerations - [C Moss](https://www.amazon.com/Myth-Persecution-Christians-Invented-Martyrdom-ebook/dp/B0089LOOF4/ref=asap_bc?ie=UTF8)
-    - Appropriation of classical (hellenic) thought
-        - socrates, plato etc.. were excellent polytheists.
-            - "a man (Socrates) who by his own testimony was on a mission from Apollon."
-            -   
-                
-- Rituals
+
+## Rituals
     - Rome show clips [here](https://www.youtube.com/watch?v=myAOjN8oYoo).
     - War magic - [IMG_MA](http://i.imgur.com/LLqeLHQ.jpg).
     - Sacral kingship in Greece, Rome, Scandinavia etc.. \[[GK17](https://krasskova.wordpress.com/2016/04/04/sacral-kingship-what-it-really-is/)\]
