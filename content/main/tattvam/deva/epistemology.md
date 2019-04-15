@@ -10,9 +10,10 @@ title: Essence
 
 - The classical hindu view is that the world is permeated with consciousness.
 - Beyond this, one [vaidika view](https://youtu.be/DUsZ_5A7-Ho?list=PLhPjckGlZ7rQFXvhumWnIctUgARdPYayL&t=228) \[[YT](https://youtu.be/DUsZ_5A7-Ho?list=PLhPjckGlZ7rQFXvhumWnIctUgARdPYayL&t=228)\] was that the devatA-s are conscious and willful entities attached to every single living or non-living substance. Prominently, they're in the natural objects/ forces/ motivations they personify.
-- In one point of view, the dEvatAs are actually concepts which exist in the form of mantras and even entire texts - see citations in [mantra page](../../../self-cultivation/mantra-yantra/)-s).
+- In one point of view, the dEvatAs are actually concepts (and associated powers) which exist in the form of mantras and even entire texts - see citations in [mantra page](../../../self-cultivation/mantra-yantra/)-s).
   - Consonance with modern views - Vishwa Adluri - "Rama is in the rAmAyaNa" [YT](https://twitter.com/agnimaan/status/1047594919085264896), [AR](https://archive.org/details/hindu-sanskrit-lectures/20180929-0001-ThinkOlio+_+Time%2C+Desire+and+Action+-+Ramayana+and+The+Cosmic+Game.mp3).
   - "रसो वै सः" इति श्रुतिः।
+  - See the notion of matresha-s emanating from higher-order devatA-s in the [mantra page](../../../self-cultivation/mantra-yantra/)-s).
 - The **deities as entities of wonder:** kRShNa says in the exceptionally brilliant chapter 10 bhagavad-gItA, after identifying himself with a long series of awesome things (such as "दण्डो दमयतामस्मि नीतिरस्मि जिगीषताम्") : "यद्यद्विभूतिमत्सत्त्वं श्रीमदूर्जितमेव वा । तत्तदेवावगच्छ त्वं मम तेजोंऽशसम्भवम् ॥ ४१ ॥" - "All that is endowed with glory, grace, grandeur, has sprung from a mere flare of my radiance" (Dr. G L Krishna [here](http://www.sandeepweb.com/the-bhagavad-gita-before-the-battle/)). This is concordant with the hindu notion of divinity.
     - "Āścaryavat paśyati kaścid enam, āścaryavad vadati tathaiva cānyaḥ | Āścaryavac cainam anyaḥ śṛṇoti, śrutvāpy enaṃ veda na caiva kaścit ||" (BG)
     - To paraphrase GL kRShNa: The adoration of awesomeness includes adoration of glorious characters in our legends, the celebration of natural geography (the great rivers, the great mountains, etc. as centres of pilgrimage) and the adoration of sages (from Vyasa-Vishwamitra to Ramana-Ramakrishna).
