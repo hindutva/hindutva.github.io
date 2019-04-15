@@ -51,7 +51,8 @@ contents:
       - title: Introduction
         url: /main/self-cultivation/
       - title: Rituals
-        url: /main/self-cultivation/rituals.md
+        contents:
+          - url: dir://main/self-cultivation/rituals/
       - title: Mantra and Yantra
         url: /main/self-cultivation/mantra-yantra.md
       - title: Communal support
