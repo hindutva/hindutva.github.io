@@ -1,5 +1,5 @@
 ---
-title: varNa practice
+title: _varNa practice
 ---
 
 ## Correspondence of theory with practice
