@@ -1,5 +1,5 @@
 ---
-title: सहिष्णुता Tolerance
+title: _सहिष्णुता Tolerance
 ---
 
 ## Desired limit of tolerance

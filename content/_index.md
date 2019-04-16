@@ -1,5 +1,5 @@
 ---
-title: "हिन्दु-विचाराः Hindu thoughts"
+title: _"हिन्दु-विचाराः Hindu thoughts"
 keywords: sample homepage
 tags: [getting_started]
 sidebar: home_sidebar

@@ -1,5 +1,5 @@
 ---
-title: Hierarchy and Competition
+title: _Hierarchy and Competition
 ---
 
 ## Intro

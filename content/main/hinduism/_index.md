@@ -1,5 +1,5 @@
 ---
-title: Introduction
+title: _Introduction
 sidebar: hindutvam_sidebar
 ---
 
