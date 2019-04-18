@@ -28,7 +28,7 @@ Emergence of hindu thoughts on dharma:
 Many are the roles in society, and accordingly the Hindu thought-stream has produced many such codes of behavior, which broadly fall into two categories:
 
 -  pravRtti-dharma (dharma that benefits other beings) 
-- nivRtti-dharma (../dharma that withdraws from pravRtti-dharma-s, seeking ultimate liberation or mokSha). This is considered [elsewhere](../tattvam/purushaartha/).
+- nivRtti-dharma (../dharma that withdraws from pravRtti-dharma-s, seeking ultimate liberation or mokSha). This is considered [elsewhere](../tattvam/puruShArtha/).
 
 pravRtti-dharma is traditionally of many kinds :
 
