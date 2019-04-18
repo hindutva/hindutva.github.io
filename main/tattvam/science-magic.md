@@ -13,8 +13,8 @@ title: Science and magic
 - However, a natural resolution is that the goals are achieved in the next life (../References in [karma](Rta/) section).
 
 ### Psychological effects
-    - Nevertheless, the rituals are themselves certainly useful in developing appropriate sentiments for the task. This applies to tasks and rituals involving multiple people (../eg: a war party, or a family or even enemies observing the ritual) as well. Other benefits of rituals are discussed [here](../self-cultivation/rituals/).
-    - There is the psycho-somatic connection when it comes to health (including the placebo effect).
+- Nevertheless, the rituals are themselves certainly useful in developing appropriate sentiments for the task. This applies to tasks and rituals involving multiple people (../eg: a war party, or a family or even enemies observing the ritual) as well. Other benefits of rituals are discussed [here](../self-cultivation/rituals/).
+- There is the psycho-somatic connection when it comes to health (including the placebo effect).
 
 ### Hexing and counter-hexing
 - Efficacy of magic based in rival traditions were recognized. Examples:
