@@ -1,5 +1,5 @@
 ---
-title: _पुरुषार्थाः Goals of life
+title: +पुरुषार्थाः Goals of life
 ---
   
 

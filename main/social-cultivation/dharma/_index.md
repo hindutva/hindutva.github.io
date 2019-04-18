@@ -1,5 +1,5 @@
 ---
-title: _धर्मः Responsibility
+title: +धर्मः Responsibility
 ---
 
 ## What is dharma?

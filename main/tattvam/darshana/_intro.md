@@ -1,5 +1,5 @@
 ---
-title: _Intro विचारधाराः
+title: +Intro विचारधाराः
 ---
 
 
