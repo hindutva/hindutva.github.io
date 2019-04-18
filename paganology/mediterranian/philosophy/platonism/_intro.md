@@ -4,9 +4,12 @@ title: +Intro
 
 ## Intro
 
-They are very valuable to us due to their explanation of the nature of the deva-s and their virile defence of polytheism.
+They are very valuable to us due to their:
+- explanation of the nature of the deva-s, 
+- their expression of and feeling for the emergence of the world with all its order as emergent harmoniously from an ideal world,
+- their virile defence of polytheism.
 
-"Neoplatonism absorbed, appropriated, and creatively harmonized almost the entire Hellenic tradition of philosophy, religion, and even literature—with the exceptions of Epicureanism and the thoroughgoing corporealism of the Stoics. The result of this effort was a grandiose and powerfully persuasive system of thought that reflected upon a millennium of intellectual culture and brought the scientific and moral theories of Plato, Aristotle, and the ethics of the Stoics into fruitful dialogue with literature, myth, and religious practice. "
+"Neoplatonism absorbed, appropriated, and creatively harmonized almost the entire Hellenic tradition of philosophy, religion, and even literature—with the exceptions of Epicureanism and the thoroughgoing corporealism of the Stoics."
 
 ### Tradition
 Middle Platonists, possibly Hindus ->  Ammonius Saccas (died c. AD 265) an apostate -> Plotinus (c. 205 – c. 270) of Egypt -> Porphyry (c. 233–c. 309) of Syria -> Iamblichus (c. 245 – c. 325) of Syria.
@@ -31,10 +34,11 @@ himself, prior to all others"[and then, still from himself] "the rest of the int
 - To Hen (τό ἕν), The One, First, The Good.  Hence the the first “Hypostasis”.
 - "an entity that is beyond +++(lower realms of )+++Being, transcending all physical reality, very little can actually be said, except that it is absolute Unity. However, we know empirically of its effect, the entire universe, and we must therefore suppose that the One is the carrier of, or rather identical with, a boundless sort of singular activity or energy. "
 
-### Nous
+### Nous - the Ideal realm
 - the outer activity and effect of the First must be nous - pure and absolute “Consciousness”.  Hence the the second “Hypostasis”.
 - Consciousness would not be some kind of emergent property of material constituents arranged in a certain way, but rather be the first effect of the activity of the One.
 - "What, then, is the inner activity of Consciousness? The inherent task of consciousness is to understand, and understanding entails the cognition of causes. In trying to understand itself, Consciousness can only turn towards its origin and thus posit or behold the First as the transcendent principle of its own reality."
+- Compare with the [ideal realm of hindus](../../../../main/tattvam/Rta/).
 
 #### Forms
 - "Becoming thus aware of another entity, the originary unity of Consciousness breaks up into duality, and with it emerge the categories of identity and difference, of greater and smaller, of number, of change and of rest."

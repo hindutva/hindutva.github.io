@@ -1,32 +1,7 @@
 ---
-title: Connection-web ऋतम्
+title: karma
 ---
-## The web of connections
 
-- Humans are embedded in an intricate, interconnected, interdependent system. There is a continuity between man and nature. Hindu traditions emphasize this interconnected nature, so that a hindu understands this network not just intellectually, but also in the world of feelings.
-- This has been variously presented in the tradition:
-    - Rta (divine order in the universe), whose keeper is varuNa. (gaNesha [here](http://indiafacts.co.in/the-pillars/).)
-        - Rta is thought to be ultimately mathematical in nature. Its ultimate form is algebra (seen in natural laws of science expressed as symbol-relationships) which determines the functioning of the real world. \[[MT16](https://manasataramgini.wordpress.com/2016/10/23/syllable-number-and-rules-in-the-ideal-realm/)\]
-    - Origin myths and "One from many" representations: Representation of various parts of the nature (including various social constructs) as having originated in (and being various parts of) the same primodial person (puruSha). \[puruSha-sUkta, \]
-        - Hindu origin stories espouse either the manifestation of the single underlying spirit in many forms, or a combination of male and female fundamental principles to generate all this diversity.
-        - There are similarly various other personifications (kAvya-puruSha in kAvyamImAMsA, sangIta-puruSha, vAstu-puruSha, loka-puruSha, devasthAna-puruSha, yajna-puruSha).
-    - The motif of yajna
-        - The offering of soma into agni during a yAga is representative of reciprocal connections between the sacrificer (yajamAna) and the deity; between the consumed and the consumer in a cycle of consumption and offering. It is symbolic of all sorts of events: from creation to destruction. This symbolism has been made explicit in several places.
-            - panchAgnihotra-vidyA presented in chAndogya (6th chapter) and bRhadAraNyaka (5th chapter) vividly represent each link in the (cloud > rain > crops > food > digestion > child-birth > death + cremation) cycle as a yajna, with different entities playing the roles of agni, soma, hotR, smoke, embers, sparks, phala.
-            - 5 prANa-s of the human body are thus represented in the 4th prashna of prAshnOpaniShad, aitareya-upaniShad, taittarIya-brAhmaNa ("मानवशरीरे यज्ञोपचारः।"). The digestive fire is called jATarAgni.
-        - The act of yAga-s include cooperative participation from a variety of people, reminding and strengthening social connections.
-    - The notion of brahman
-        - Everything in the universe is said to be brahman by the many followers of the veda-s. brahman is said to be conscious and bliss in some schools of thought (eg: vedAnta).
-            - Consciousness of individual beings is hard to explain scientifically, and so some people have proposed a universal, fundamental aspect of nature (like space and time) as its source \[David Chalmers [YT1](https://www.youtube.com/watch?v=uhRhtFFhNzQ), [TED](http://www.ted.com/talks/david_chalmers_how_do_you_explain_consciousness/transcript?language=en), [IMG](http://i.imgur.com/JLQ4iFT.png)\].
-- One can observe close connection to nature in a variety of Hindu concepts.
-    - Examples
-        - Bird songs, whale songs and sAmans: Neural convergence in animals or imitation? [MT](https://manasataramgini.wordpress.com/2006/02/19/mental-and-neural-convergence/)
-        - The varNa system.
-    - That said, some refinement (saMskRti) is applied to the natural state of affairs (prakRti) to enhance effectiveness and good feeling. saMskRti is not opposite to prakRti - it attempts to capture the beneficial essentials.
-- Japanese analogy:
-    - The ancient Japanese did not strictly divide their world into the material and the spiritual, nor between this world and another perfect realm, but their intuitive spirituality infused all domains. There is an underlying belief of the early Shinto world-view, that is, continuity between man and nature. This concept is also encapsulated by the Japanese word nagare, meaning ‘flow’, and leads to the conception of vital connections between the divine nature of the kami, and by extension the natural world, and humanity (through respectful rituals); between post-mortem souls and the living (such as the ie construct which is an extended sense of family); and between the inner and outer worlds (as found in ideas about pollution and purity). (Paraphrased from [Lucy Wright](http://refractory.unimelb.edu.au/2004/02/03/wonderment-and-awe-the-way-of-the-kami-lucy-wright/))
-
-### karma, heaven and reincarnation  
 
 Reincarnation (punarjanma), heaven, hell and the notion of karma (actions bearing fruit in this or a future life) were important because:
 
@@ -41,7 +16,7 @@ When does the fruit arise?
 
 - Not necessarily in this life \[[TR](https://archive.org/stream/TantraRatnaTupitikaBhashyaParthasarathiMisharaGopinathKavirajVolume2SampoornanadUniversity/Tantra%20Ratna%20Tupitika%20Bhashya%20Parthasarathi%20Mishara%20Gopinath%20Kaviraj%20Volume%202%20Sampoornanad%20University#page/n27/mode/2up), [4,3.28 KB](https://archive.org/stream/in.ernet.dli.2015.368819/2015.368819.Tupuutiikaa#page/n49/mode/2up)\]. shabara disagrees in case of certain vaidika karma-s - \[[GJ](https://archive.org/stream/ShabaraBhasyaTrByGanganathJha/Shabara%20Bhasya%20tr%20by%20Ganganath%20Jha%20Vol%202#page/n125/mode/2up), [4,3.28 W](https://sa.wikisource.org/wiki/%E0%A4%B6%E0%A4%AC%E0%A4%B0%E0%A4%AD%E0%A4%BE%E0%A4%B7%E0%A5%8D%E0%A4%AF%E0%A4%AE%E0%A5%8D_%E0%A5%A7-%E0%A5%AA_%E0%A4%85%E0%A4%A7%E0%A5%8D%E0%A4%AF%E0%A4%BE%E0%A4%AF%E0%A4%BE%E0%A4%83), [SB](https://archive.org/stream/Bibliotheca_Indica_Series/MimansaDarsanaWithSabarabhashya-MahesachandraNyayaratna1889bis#page/n575/mode/2up)\].
 
-#### Heaven and Hell
+### Heaven and Hell
 
 - Various views of svarga (heaven) and naraka (hell) were in vogue. \[[PVK](https://archive.org/stream/HistoryOfDharmasastraancientAndMediaevalReligiousAndCivilLawV.4/Kane_A-History-of-Dharmasastra-v4_1953#page/n207/mode/2up)\]
 - The sophisticated yet devout sages and scholars were clear that these terms are not to be taken literally.
@@ -53,7 +28,7 @@ When does the fruit arise?
     - "There is a well-known and oft quoted verse which defines svarga as follows: that happiness which is not mixed up with pain, which is not immediately afterwards overwhelmed ( by pain ) and which is present whenever desired, is denoted by the word svaH (or svarga)." \[[PVK](https://archive.org/stream/HistoryOfDharmasastraancientAndMediaevalReligiousAndCivilLawV.4/Kane_A-History-of-Dharmasastra-v4_1953#page/n207/mode/2up)\]
     - "The Brahmapurana and the Visnupurana speak in the same strain as Shabara that svarga is what causes happiness to the mind, that naraka is the opposite of it and that meritorious deeds and wicked deeds are designated as svarga and naraka respectively and that svarga and naraka are really states of the mind characterized by happiness and pain respectively." \[[PVK](https://archive.org/stream/HistoryOfDharmasastraancientAndMediaevalReligiousAndCivilLawV.4/Kane_A-History-of-Dharmasastra-v4_1953#page/n207/mode/2up)\]
 
-#### Possible modifications
+### Possible modifications
 
 However, it must be emphasized that the classical understanding of karma and punarjanma is not indispensable to the hindu worldview of the wonderful interconnected universe - or even to the notion of ethically responsible behavior. Indeed, all these concepts can be accepted as a useful, expedient and elegant fictitious framework (../an upAya like the concept of deities explained [here](deva/index/)). Otherwise, they can even given non-supernatural definitions, consequent to what one may call the nava-vaisheShika (modern atomist) metaphysics:
 
