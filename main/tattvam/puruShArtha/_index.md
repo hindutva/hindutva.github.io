@@ -19,7 +19,7 @@ The following purushArtha-s are suggested in early texts (especially the niiti-s
 The above 3 seem to encompass the universe of everything we do (barring moxa - considered below), and furthermore, they seem disjoint the way they are defined above.  
 
 ## Spiritual highs
-One needs joy, satisfaction, and strength to follow and achieve the various [goals of life](../../tattvam/purushaartha/), including [dharma](../../social-cultivation/dharma/). Spirituality (a focus on the development and maintenance of "good" mental states) is then an essential component of hindu self cultivation.
+One needs joy, satisfaction, and strength to follow and achieve the various [goals of life](../../tattvam/puruShArtha/), including [dharma](../../social-cultivation/dharma/). Spirituality (a focus on the development and maintenance of "good" mental states) is then an essential component of hindu self cultivation.
 
 Secular/ spiritual non-separation: See [here](../../rivals/0-theism/secularism/).
 
