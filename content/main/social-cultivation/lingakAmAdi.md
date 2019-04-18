@@ -1,7 +1,7 @@
 ---
 title: लिङ्गकामादिसूत्राणि
 unicode_script: devanagari
-emphasis_as_inline_comments: true
+
 ---
 
 ## लिङ्गकामादिसूत्राणि
