@@ -27,50 +27,28 @@ contents:
 
   - title: Suchness तत्त्वम्
     contents:
-      - title: चित् The self
-        url: /main/tattvam/chit.md
-      - title: Connection-web ऋतम्
-        url: /main/tattvam/Rta.md
+      - url: dir://main/tattvam/
       - title: देवाः Deities
         contents:
           - url: dir://main/tattvam/deva/
           - title: Hierarchy
             contents:
               - url: dir://main/tattvam/deva/hierarchy/
-      - title: सृष्टिः Creation and suffering
-        url: /main/tattvam/creation.md
       - title: पुरुषार्थाः Goals of life
-        url: /main/tattvam/purushaartha.md
-      - title: Science and magic
-        url: /main/tattvam/science-magic.md
-      - title: Sublabeling विचारधारा-स्थानम्
-        url: /main/tattvam/sublabeling.md
-
+        contents:
+            - url: dir://main/tattvam/puruShArtha/
+      - title: दर्शनानि Viewpoints
+        contents:
+          - url: dir://main/tattvam/darshana/
   - title: Self-cultivation संस्काराः
     contents:
-      - title: Introduction
-        url: /main/self-cultivation/
       - title: Rituals
         contents:
           - url: dir://main/self-cultivation/rituals/
-      - title: Mantra and Yantra
-        url: /main/self-cultivation/mantra-yantra.md
       - title: Communal support
         contents:
-          - title: Introduction
-            url: /main/self-cultivation/communal-support/
-          - title: Exclusivity अधिकार-भेदः
-            url: /main/self-cultivation/communal-support/exclusivity.md
-          - title: Being different
-            url: /main/self-cultivation/communal-support/distinctness.md
-          - title: Guru गुरुः
-            url: /main/self-cultivation/communal-support/guru.md
-      - title: Decoration
-        url: /main/self-cultivation/decoration.md
-      - title: Food आहारः
-        url: /main/self-cultivation/food.md
-      - title: Presentations
-        url: /main/self-cultivation/presentations.md
+          - url: dir://main/self-cultivation/communal-support/
+      - url: dir://main/self-cultivation/
   - title: Social cultivation
     contents:
       - title: धर्मः dharma
@@ -96,8 +74,7 @@ contents:
     contents:
       - title: "Abe disease"
         contents:
-          - title: Intro
-            url: /main/rivals/abe-disease/
+          - url: /main/rivals/abe-disease/
           - title: On Islam मरून्मादः
             contents:
               - url: dir://main/rivals/abe-disease/islam/
@@ -118,12 +95,9 @@ contents:
             url: /main/rivals/academia/charges.md
           - title: Negationism
             url: /main/rivals/academia/negationism.md
-      - title: Appropriation
-        url: /main/rivals/u-turn.md
-      - title: Ananda-addictions
-        url: /main/rivals/aananda-addiction.md
-      - title: Class opportunism
-        url: /main/rivals/class-opportunism.md
+      - url: /main/rivals/u-turn.md
+      - url: /main/rivals/aananda-addiction.md
+      - url: /main/rivals/class-opportunism.md
       - title: Dirty rags
         contents:
           - url: dir://main/rivals/rags/

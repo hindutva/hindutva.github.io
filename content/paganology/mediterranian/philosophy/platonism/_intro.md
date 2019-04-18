@@ -13,6 +13,10 @@ Middle Platonists, possibly Hindus ->  Ammonius Saccas (died c. AD 265) an apo
 
 Later, Hypatia (c. 360 – 415) of Egypt who was burned by Christians, Proclus Lycaeus (February 8, 412 – April 17, 485) of Lycia in Anatolia, Roman Emperor Julian (331/332 – 26 June 363)) the apostate and his friend Sallustius.
 
+## Summaries
+From Proclus: "Zeus created the World-Intellect (noun tou pantos) from
+himself, prior to all others"[and then, still from himself] "the rest of the intellectual and whole classes (ie. the ideas, and forms). In conjunction with the 'Mixing Bowl' (kratEr) he created the World-Soul (psuche pantos)' and the the "partible souls", prior to the bodies. He also created the souls' associated vehicles (ochemata; see II.A.4.4) and arranged the appropriate souls around the appropriate divinity...this includes all the celestial, dalmonic and sublunary classes.. all according to the law of Fate". "In conjunction with the universal Nature (holes phuseOs) and Necessity (anankes), he fashioned (plattOn) the World-Body (sOma pantos) and the partible bodies, and delineated (diagraphOn) the heavens"
+
 ## Incessant Emanationism
 - "Pagan Neoplatonists were not creationists. Instead, they speculated that the process of the emergence of the universe from their divine principle, has gone on forever, just as it continues at this very moment and will continue to do so, sustaining a world without end. ... reality emerged from “the First” in coherent stages, in such a way that one stage functions as creative principle of the next."
 
