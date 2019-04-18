@@ -2,13 +2,13 @@
 title: चित् The self
 ---
 
-## **सत्** We exist.
+## सत् We exist.
 - "First: can we question our own existence? If yes, even such questions will be the product of our own existence." [SG_IF15](http://indiafacts.co.in/foundations-of-hinduism/)
 
-## **चित्** 
+## चित् 
 We are aware, to some extant at least. And we may even like it.
 
-##‌ **आनन्दः** We want Happiness.
+##‌ आनन्दः We want Happiness.
 - "Happiness is our highest goal. All our suffering, struggle, and effort invariably are exercises towards the attainment of happiness. Happiness is the one point where all our diverging natures converge." [SG_IF15-2](http://indiafacts.co.in/the-pillars/).
 - "Our own experience reveals that happiness is a state of completeness where no inadequacy is felt." [SG_IF15-2](http://indiafacts.co.in/the-pillars/).
 - "This state of fulfilment, though lasting for a moment, is essentially the same for everyone. Leo Tolstoy starts off his novel Anna Karenina with the words: ‘ All happy homes are alike. But every unhappy home is unhappy in its own way.’ " [SG_IF15-2](http://indiafacts.co.in/the-pillars/).
