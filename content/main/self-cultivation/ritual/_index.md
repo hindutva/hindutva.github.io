@@ -1,5 +1,5 @@
 ---
-title: _Rituals
+title: +Rituals
 ---
 
 

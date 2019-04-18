@@ -1,5 +1,5 @@
 ---
-title: _Intro
+title: +Intro
 ---
 
 ## As a maturation of Abrahamism

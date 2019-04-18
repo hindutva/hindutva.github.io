@@ -1,5 +1,5 @@
 ---
-title: _0 Settlement summary
+title: +0 Settlement summary
 ---
 
 ## Initial hominid settlement

@@ -1,5 +1,5 @@
 ---
-title: _Intro
+title: +Intro
 ---
 
 TL;DR : Muslim society is undesirable, despite a supposedly tolerant yet silent majority.

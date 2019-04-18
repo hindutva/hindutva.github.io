@@ -87,8 +87,7 @@ contents:
           url: /main/rivals/0-theism/secularism.md
       - title: Idiot Intellectualism
         contents:
-          - title: Intro
-            url: /main/rivals/iyi/intro.md
+          - url: dir://main/rivals/iyi/
       - title: Academic subversion
         contents:
           - title: Charges

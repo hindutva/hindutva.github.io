@@ -1,5 +1,5 @@
 ---
-title: _varNa theory
+title: +varNa theory
 ---
 
 varNa/ jAti = (social role/ hereditary caste) system.  

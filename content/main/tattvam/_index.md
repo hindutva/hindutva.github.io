@@ -1,3 +1,3 @@
 ---
-title: Suchness तत्त्वम्
+title: +Suchness तत्त्वम्
 ---
