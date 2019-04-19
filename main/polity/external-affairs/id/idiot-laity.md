@@ -3,7 +3,7 @@ title: Idiot laity
 ---
 
 ## General patterns
-- See "equality fallacy" section of [nAstika page](../nAstika/) for background.
+- See "equality fallacy" section of [nAstika ID page](../nAstika/) for background.
 - For a few supposed miracles, they compromise the immune strength of their society.
 
 ## Idiot bAba veneration
