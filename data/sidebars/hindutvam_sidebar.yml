@@ -74,7 +74,6 @@ contents:
     contents:
       - title: "Abe disease"
         contents:
-          - url: /main/rivals/abe-disease/
           - title: On Islam मरून्मादः
             contents:
               - url: dir://main/rivals/abe-disease/islam/
@@ -85,6 +84,9 @@ contents:
           url: /main/rivals/0-theism/
         - title: Secularism
           url: /main/rivals/0-theism/secularism.md
+      - title: "Dubious bAba-isms"
+        contents:
+          - url: /main/rivals/dubious-bAbaisms/
       - title: Idiot Intellectualism
         contents:
           - url: dir://main/rivals/iyi/
@@ -94,12 +96,10 @@ contents:
             url: /main/rivals/academia/charges.md
           - title: Negationism
             url: /main/rivals/academia/negationism.md
-      - url: /main/rivals/u-turn.md
-      - url: /main/rivals/aananda-addiction.md
-      - url: /main/rivals/class-opportunism.md
       - title: Dirty rags
         contents:
           - url: dir://main/rivals/rags/
+      - url: dir://main/rivals/
   - title: Polity राजनीतिः
     contents:
       - title: Desiderata काङ्क्षा
