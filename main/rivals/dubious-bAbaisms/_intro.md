@@ -1,5 +1,5 @@
 ---
-title: +Dubious babaisms
+title: +Dubious bAbaisms
 ---
 
 ## Introduction
