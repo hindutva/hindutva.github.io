@@ -31,5 +31,5 @@ deploy:
         host: github.com
     - sf-zhou/gh-pages@0.2.6:
         token: $GIT_TOKEN
-        basedir: docs
+        basedir: build_github
         branch: master

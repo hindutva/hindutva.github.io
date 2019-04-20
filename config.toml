@@ -2,7 +2,7 @@ baseURL = "https://hindutva.github.io/"
 languageCode = "en-us"
 title = "hindu-vichArAH हिन्दु-विचाराः"
 theme = "sanskrit-documentation-theme-hugo"
-publishDir = "docs"
+publishDir = "build_github"
 disablePathToLower = true
 [params]
   githubEditMePathBase = "https://github.com/hindutva/hindutva.github.io/edit/hugo-source/content/"
