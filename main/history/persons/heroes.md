@@ -7,7 +7,7 @@ title: Heroes महानुभावाः
 
 ## Preface:
 
-Here I list some great personalities I personally admire. Note: Hindu sounds are encoded in the latin alphabet using [OPTITRANS](http://sanskritnlp.appspot.com/optitrans.html).
+Here we list some great personalities we personally admire. Note: Hindu sounds are encoded in the latin alphabet using OPTITRANS.
 
 ### Definition and critique:  
 
@@ -15,11 +15,13 @@ Every person has some noble and some ignoble qualities. What makes a hero? A her
 
 Heroes do not function in a vaccum: rather, they are able achieve their deeds building upon the deeds of others, and only due to cooperation and help from others. Of course, one should remember that the traits themselves should be the focus of admiration, and one should not descend to chauvinism which tries to deny unpleasent truths about these people.
 
-### My reasons:  
+### Some reasons:  
 
-Why heroes? Stories of heros are often riveting; remembering their stories is an important part of cultivating a self which strives for these qualities when appropriate. Why heroes from bhArata? I am emotionally (and biologically) attached to this 5000+ year old culture and people; so the inspiration I can draw from them is much stronger.  
+Why heroes? Stories of heros are often riveting; remembering their stories is an important part of cultivating a self which strives for these qualities when appropriate.
 
-Why make a list? Maybe this interests others. Helps organize my thoughts on the matter, frees up my overly engrossed mind to pursue other interests.
+Why heroes from bhArata? We are emotionally (and biologically) attached to this 5000+ year old culture and people; so the inspiration we can draw from them is much stronger.  
+
+Why make a list? Maybe this interests others. Helps organize one's thoughts on the matter, frees up my overly engrossed mind to pursue other interests.
 
 
 
@@ -587,68 +589,3 @@ Many scholars are known only by their magnificent work, for others, we have more
 - Baji Rout, a boy from Nilakanthpur in Orissa, who refused to ferry murderous British soldiers across the brAhmaNI river despite blows, and died for it. \[[TW](https://twitter.com/virendersehwag/status/930334263823630336)\]
 - shAlUmarada timakka and her husband bikkuLu chikkaNNa, a childless couple who happily fostered trees, waterd and fed cattle, lived a happy life, refused "casteist" awards \[[ST](http://apersonalindia.blogspot.in/2002/05/they-raised-trees-to-fill-personal-void.html?spref=fb&m=1), [TW](https://twitter.com/TimesNow/status/950997174095028224)\].
 - Zumbarbai Aausak and her cohort from sangamner, who defied British police to start rathayAtrA \[[SW](https://swarajyamag.com/culture/sangamner-where-women-of-the-town-lead-the-hanuman-rath-yatra)\].
-
-## Villains.  
-
-[![](http://upload.wikimedia.org/wikipedia/commons/thumb/1/1f/Aurangzeb_reading_the_Quran.jpg/220px-Aurangzeb_reading_the_Quran.jpg)](http://www.youtube.com/watch?v=0GlkQWZAv7g)[![MahmUd of ghazni](http://upload.wikimedia.org/wikipedia/commons/thumb/9/96/%D8%B3%D9%84%D8%B7%D8%A7%D9%86_%D9%85%D8%AD%D9%85%D9%88%D8%AF_%D8%BA%D8%B2%D9%86%D9%88%DB%8C.JPG/250px-%D8%B3%D9%84%D8%B7%D8%A7%D9%86_%D9%85%D8%AD%D9%85%D9%88%D8%AF_%D8%BA%D8%B2%D9%86%D9%88%DB%8C.JPG)](http://www.youtube.com/watch?v=0GlkQWZAv7g)  
-Where there are heroes, villains are no surprise. Many were self-professed ghAzis (mujAhids intent on jihAd). Others power hungry people who pursued personal ambition at the cost of higher ideals.
-
-
-
-### Religious villains
-
-- [kalinga-magha](https://en.wikipedia.org/wiki/Kalinga_Magha), pillager, destroyer of bauddha temples in lankA - a rAvaNa of modern times.  
-
-- mahmUd of ghazni, pillager, destroyer of temples (including sOmanAtha), who firmly established a deep distaste for turuShkas in hindu and shramaNa hearts.
-- alauddIn khilji, who coveted rANI padminI, destroyer of temples, whose general malik kafur spread destruction to the south.
-- Malik Kafur, the eununch general of alauddIn khilji, who reached as far as kanchi and rAmEshvaram, destroyer of temples.
-- Firoz Tughlaq, who outlawed the practice of the dharma - even in private - in dilli.  
-
-- Syed Ali bin Shahab-ud-Din Hamadani Abidi, also known as Amir-I-Kabir or Ali-I-Sani, the Suhrawardi-> Kubrawi order sufi who ensured the success of the islamic contagion in kAshmIra cleverly (anti-hindu edicts [1](../../../images/snippets/hamdAni-edicts.png)).
-- Rinchan aka sadruddin, the Tibetan usurper and iconoclast (constructed “Bud Masheed”, on the site of a Buddhist temple) who took to Islam.
-- [sikandar bhUt-shikAn](http://en.wikipedia.org/wiki/Sikandar_Butshikan), as his title suggests, the idol-breaker sultAn of kAshmIr, who fuelled with the mad zeal of the sUfi-s, also delighted in burning critical books, giving the usual convert-or-die choice to hindu-s, who banned music and festivity. A true exemplar of "kAshmIriyat".  
-
-- Ghiyasuddin Al Damaghani, sultan of madurai, whose depravity is described by Ibn Batuta \[[AS16](https://agentsaffron.wordpress.com/2016/05/14/the-saviors-of-dharma-in-south-india-part-1/)\].
-- mahmUd beragha, sultAn of gujarAt, a  monstrous person who ate 100 mutton samosa-s a day with a pot of ghee daily, destroyed temples, had an appetite for seizing Hindu women to add to his harem ([MT](https://manasataramgini.wordpress.com/2008/08/06/a-pashupata-temple-desecrated-by-mahmud-begarha/)).
-- kAlA-pahAD, formerly ferocious oriya general rAjIv lochan ray who converted to islam because of fury at orthodox blockage of desire to marry the paThan sultan's daughter, who raided jagannAtha-purI, supposedly murdered by gajapati remnants (such as princess sAmbhaleshvarI).  
-
-- [awrangzib](http://en.wikipedia.org/wiki/Aurangzeb), [impozer](http://www.aurangzeb.info/) of jizya, destroyer of temples (बिन्दु-माधव [ट्१](../../../images/snippets/awrangzeb-bindu-mAdhav-edict.jpg)).
-- Tippu sultAn, who pillaged and converted people at sword point in kEraLa. \[Sandeep [Dec 2014](http://www.dailyo.in/opinion/why-tipu-sultan-was-a-false-hero/story/1/1278.html).\]
-- daud sayed gilAni aka David Coleman Headley, opportunistic and ideologically motivated spy for lashkar-e-tayyaba and ISI, US-double agent, who [cased out](http://video.pbs.org/video/2169905444) locations for the Dec 2008 mumbai attacks.  
-
-
-### Hindu traitors
-
-- udayasimha, treacherous son and murderer of rANA kumbha.
-- shilAditya the pUrvIya tomara who betrayed sangrAma-simha of mevAr to bAbuur.
-- Various traitor marATha brAhmaNa-s:
-    - [raghunAth rAv](http://en.wikipedia.org/wiki/Raghunathrao), power-hungry uncle of the good pEshvA [mAdhav rAv](http://en.wikipedia.org/wiki/Raghunathrao), whose machinations and alliances with enemy powers only weakened the marATha confrederacy.
-    - AnandI-bAyi, power-hungry wife of raghunAth rAv, murdress.
-    - murAri rao, servant of the Qutub Shahi, who stole the Ahobilam idol
-    - paTTavardhana who stole the hiNDi of tirupati
-    - lamaans (a caste dealing with grain) under Raghunath rao ‘dada’ Kurundwadkar (brother of parashurAma-bhau) who looted shRngagiri during the time of Tippu sultAn (marATha-s made amends later). ([SW15](http://swarajyamag.com/culture/what-exactly-happened-at-sringeri-math-in-april-1791/))
-
-### Hindu charlatans
-
-These bring the sanAtana dharma to disrepute, even as they deceive feeble hindu-s.
-
--  Swami Nithyananda - the center of a sex scandal in 2010s. Watch the [video](https://www.youtube.com/watch?v=eyTT2UrTSCc) where he gleefully dances over his father's corpse, then 'liberates' it by stomping on its forehead, gives it diksha post mortem, and declares it a sishya-turned-sanyasi.
-
-## Idiots
-
-- yudhiShThira, he who did not foresake truth for the longest time - though lacking in kShatra, appropriately the subject of ridicule by kRShNa and bhIma on occasions.
-- chikkadevarAya, who joined mogols against the marAThas because they stifled his expansion in the south, called aurangazeba as good emperor in his work abt sri vaishnava philosphy.
--   
-
-
-### Religious idiots
-
-Popular claims of this class includes: "All religions are equal." "Idolatory is stupid."
-
-- chakradhara (originally a brahmin haripaldeva who came under the influence of a heterodox saint govinda prabhu), whose mAnabhAv (mahAnubhAva) cult spread havoc in the yAdava kingdom prior its decimation at muslim hands. \[[MT](https://manasataramgini.wordpress.com/2005/11/13/the-cracks-in-the-edifice/)\]
-- guru nAnak, founder of the proto-islamophile-sickular sIkh sect.
-- rAjA-rAm mOhan Roy, social reformer who rebelled against sati, but was otherwise flawed.
-- rAmakRShNa-paramahamsa, \[[Harmony of religions teaching](https://en.wikipedia.org/wiki/Teachings_of_Ramakrishna#Harmony_of_religions)\], who inspired the great hindu propagandist svAmin vivekAnanda.
-- Subramania bhAratI, classic IYI, great polyglot, musical and poetic prodigy, who failed to see the benefit of jAti/varNa-pride, repudiated his brAhmaNa varNa, took to imitating sikh-s, wrote in praise of jesus and allah as well as the deva-s.
-- mOhanadAsa [gAndhI](http://en.wikipedia.org/wiki/Gandhi); a politician with great self-consciousness and personal integrity, a pioneer in civil disobidience, economic boycott, and non cooperation with the British invaders and of hunger strikes in convincing fellow Indians, while retaining non violence and hence greater respectability; a flawed person with a flawed social, economic and religious philosophy, who held [racist](http://www.youtube.com/watch?v=_21XD74JKHw) attitudes against blacks, slept with young women to test his self control, thought all religions were "equal", preached non violence of Jews towards Nazis.
-- satya sAyi bAba, the "vibhuti from thin air" trickster, who had some positive social impact in creating good hospitals and colleges, but was nevertheless a proponent of the "Honor and respect all religions as pathways to God." nonsense.
