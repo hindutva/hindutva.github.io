@@ -122,18 +122,10 @@ contents:
               - url: dir://main/polity/external-affairs/tolerance/
   - title: History इतिहासः
     contents:
-      - title: Intro परिचयः
-        url: /main/history/intro.md
-      - title: स्थानानि Places
-        url: /main/history/places.md
-      - title: Heroes महानुभावाः
-        url: /main/history/heroes.md
-      - title: Alien heroes
-        url: /main/history/heroes-alien.md
-      - title: Administrative History
-        url: /main/history/administration.md
-      - title: Military history
-        url: /main/history/military.md
+      - url: dir://main/history/
+      - title: Persons व्यक्तयः
+        contents:
+          - url: dir://main/history/persons/
   - title: Paganology
     url: /paganology/
   - title: Home
