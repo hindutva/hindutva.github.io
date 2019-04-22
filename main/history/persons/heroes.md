@@ -233,6 +233,7 @@ Non-heroes: ashOka chakravartI dEvanAmapriya, who - contrary to legend - did not
 - [vidyAraNya](http://en.wikipedia.org/wiki/Vidyaranya) mAdhavAchArya shankarAchArya, who inspired the founding of vijayanagara, reinvigorated the arts.
 - sAyaNAchArya, minister of harihara and bukka, brother of mAdhava.
     - "तुरुष्कं नैव मुञ्चते ब्रुवन्तं करुणाण्य् अपि। दुःखं तत्र न कुर्वीत हन्यात् पूर्वापकारिणम्॥" (manuscript - manuscript R.797 G.O.M.L Chennai) "ताटक-कूप-वापीषु तथा लघुसरस्सु च ।  विषाविषे \[???\] योक्तव्यं तुरुष्कानां प्राणघातकम् ॥"
+- mAdhava the AngIrasa bhAradvAja, also a scholar of the upaniShad-s and the shaivAgama-s, a kavi, mentioned as re-consecrating saptakoTeshvara: the ancient deity of the system of kubjikA associated with pratya~NgirA saptakoteshvarI, made a donation at chauDalApura to 21 v1s in shaka 1313 ~1391 CE
 - hakka and bukka, sons of sangama, who (according to folklore unsubstantiated by contemporary records) shook off forced conversion, and founded the hindu vijayanagara empire.
 - kumAra kampaNNa, second son of bukka-rAya, subject of his wife gangAdevI's poem "madhurA-vijayam", recoverer of kanchI and madhurai. Supposedly harihara 2.
 - [gOpaNArya](http://manasataramgini.wordpress.com/2009/03/09/the-heroes-gopanarya-and-vijayalaya-deva/), amAtya of harihara-rAya, the brAhmaNa general who was inspired by viShNu to recover and reenshrine shrIrangam. Student of shrI vendAnta-deshika.  
