@@ -35,13 +35,15 @@ Where there are heroes, villains are no surprise. Many were self-professed ghAzi
 - shilAditya the pUrvIya tomara who betrayed sangrAma-simha of mevAr to bAbuur.
 - Sewand Rai, general of masUd of ghazni: "Only fifty days after the death of Mahmud, his son despatched Sewand Rai, a Hindu chief, with a large body of Hindu cavalry in pursuit of the nobles who had espoused the cause of his brother. Sewand Rai died in the ensuing battle." 
 - tilak, the bauddha/ hindu general of Masud of Ghazni: "The son of a barber, he became a confidant of Khwaja Ahmed Hasan Maimandi, the influential wazir of Sultan Mahmud. The khwaja made Tilak his secretary and interpreter, and in 1033, when news was received from Lahore of the rebellion of Ahmad Niyaltigin, it was Tilak who was sent to deal with the situation. The extreme measures taken by the Hindu general against the Muslim partisans of Ahmad show his confidence and sense of security.".
-- lamaans (a caste dealing with grain) under Raghunath rao ‘dada’ Kurundwadkar (brother of parashurAma-bhau) who looted shRngagiri during the time of Tippu sultAn (marATha-s made amends later). ([SW15](http://swarajyamag.com/culture/what-exactly-happened-at-sringeri-math-in-april-1791/))
 
-### Various traitor marATha brAhmaNa-s:
+### Various traitor marATha-s:
+- Bhim Singh, who was conferred the title Raja Ghorpade Bahadur (Dakkani word for the Varanus lizard) by the Sultan at the behest of minister Gavan and his brother.
+  - "The Turks advanced again, and Appaji decided to hold them up using the same tactic of defending from the well-fortified Vishalgad. However, Karan Singh and Bhim Singh were breeders of the Varanus lizard which they used in climbing forts. Accordingly Karan and Bhim decided to help the Moslems in taking the fort, in return for the province of Wai. Karan and Bhim sent out several lizards to scale the precipice on which the fort was located with ropes tied to them. With the aid of these ropes they climbed the fort and sent down rope ladders for more men to follow them. Then they cut their way to the main fort gate and opened it. In the process Karan Singh was killed by the Hindu defenders but the Moslems managed to get in and massacred Appaji and his men. With the fall of Vishalgad, Mahmud Gavan attacked the Chalukyan army by surprise at Samgameshvar." [MT](https://manasataramgini.wordpress.com/2004/04/06/war-in-the-konkan/)
 - [raghunAth rAv](http://en.wikipedia.org/wiki/Raghunathrao), the highly capable but power-hungry uncle of the good peshvA [mAdhav rAv](http://en.wikipedia.org/wiki/Raghunathrao), whose machinations and alliances with enemy powers only weakened the marATha confrederacy.
 - AnandI-bAyi, power-hungry wife of raghunAth rAv, murdress.
 - murAri rao, servant of the Qutub Shahi, who stole the Ahobilam idol
 - paTTavardhana who stole the hiNDi of tirupati
+- lamaans (a caste dealing with grain) under Raghunath rao ‘dada’ Kurundwadkar (brother of parashurAma-bhau) who looted shRngagiri during the time of Tippu sultAn (marATha-s made amends later). ([SW15](http://swarajyamag.com/culture/what-exactly-happened-at-sringeri-math-in-april-1791/))
 
 ## Hindu charlatans
 
