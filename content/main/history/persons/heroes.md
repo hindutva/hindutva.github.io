@@ -2,9 +2,6 @@
 title: Heroes महानुभावाः
 ---
 
-
-
-
 ## Preface:
 
 Here we list some great personalities we personally admire. Note: Hindu sounds are encoded in the latin alphabet using OPTITRANS.
@@ -386,11 +383,11 @@ Alas many mahArAja-s were [given to excesses and decadence](http://www.uky.edu/%
     - This he did collude with the Brits (his big bet) and the preta-s. \[eg [here](http://www.sakshitimes.net/blog/2008/09/22/dr-babasaheb-ambedkar-defender-of-conversions-and-a-friend-of-christianity-294/)\] It is only late in his life, after his attempts to convince the Brits to rule on with dalit help failed \[[AS_Redif](https://www.rediff.com/freedom/29ambed.htm), [WP](https://aryasamajvserranthindus.wordpress.com/2015/12/07/dalits-helped-british-conquer-india-b-r-ambedkar/)\] that he decided to tie dalit fate with buddhists so as to not denationalize them from the Hindu society where they found themselves.
     - All this said, I do not begrudge bhImrAv - an intelligent enemy is better than a stupid friend. He knew when it was time to leave his treachery be. In that sense, it was far better that we deal with him than upper caste stupid "friends" such as the baldie and the chacha (without offence intended to anyone, this holds true today too).
     - Among his bad legacies is a constitution that deviated from the spirit of the hindu dharmashAstra-s (../explained [here](../social-cultivation/dharma/)).
-- [nAlvaDi kRShNarAja vaDiyAr](http://en.wikipedia.org/wiki/Nalvadi_Krishnaraja_Wodeyar); rAjarShi of mysUru ("the best administered state in the world"), among whose diivAn-s was mokShaguNDam vishveshvarayya (another being school friend mirza ismail), patron of yogi-s, art and culture, first chancellor and patron of BHU, himself was an accomplished musician (knowing 8 instruments). \[[TW](https://twitter.com/adikulk/status/893381975440064512)\]  
+- [nAlvaDi kRShNarAja vaDiyAr](http://en.wikipedia.org/wiki/Nalvadi_Krishnaraja_Wodeyar); rAjarShi of mysUru ("the best administered state in the world"), among whose diivAn-s was mokShaguNDam vishveshvarayya who resigned due to being overruled by the king who favored reservation in government employment (another being school friend and longest serving dIvAn - mirza ismail who was slightly partial to muslims during a riot), patron of yogi-s, art and culture, first chancellor and patron of BHU, himself was an accomplished musician (knowing 8 instruments). \[[TW](https://twitter.com/adikulk/status/893381975440064512)\]  
 - K "Arya" bhAShyam, a shrIvaiShNava, who as a 25 year old on 26th January 1932 at 2 am shinned up the 148-foot flag post in Fort St George, tore up the Union jack and erected the Indian flag; thence sent to Cellular jail. 
 - subhASh chandra bose, a flawed urdu-islamophile, who nonetheless was a valuable agent in finally driving the british away by convincing them that the Indian army could not be relied upon to be loyal at a time when its own army wanted to disband \[[Ambedkar](https://www.youtube.com/watch?v=CO3wtmkuZT0&sns=tw)\].
 - rAmAnanda-tIrtha, who galvanized hyderabad hindus against the nizAm \[W\].
-- vishveshvarayya, the unfortunately anglicized engineer from maisuuru, builder of large public works in nAsik, hyderAbAd, maisuuru. Later diivaan of the maisuuru raaja \[[YT](https://www.youtube.com/watch?v=f1LbPgeTekw)\]. Led a very disciplined 100+ year life, continued to be surprisingly spry.
+- vishveshvarayya, the unfortunately anglicized engineer from maisuuru, builder of large public works in nAsik, hyderAbAd, maisuuru. Later diivaan of the maisuuru raaja \[[YT](https://www.youtube.com/watch?v=f1LbPgeTekw)\] before resigning due to being overruled by kRShNarAja vaDiyAr who favored Miller committee report which recommended caste-based reservations {[RTI](http://roundtableindia.co.in/index.php?option=com_content&view=article&id=8894:miller-committee-report-1919&catid=115:dalitbahujan-renaissance&Itemid=127)}. Led a very disciplined 100+ year life, continued to be surprisingly spry.
     - spoke better gujarAti & marAThi than kannaDa and telugu! The man in many ways was a japanese (minus the geopolitical and spiritual genius) among us Indians.
     - He could not correctly grasp the low quality of our human resources and our existential struggle even as he repeatedly expressed disappointment about our pauruSha and focus on conservative brAhma.
 - Devanahalli Venkataramanayya Gundappa (1887-1975) - a journalist, poet, sensitive rasika of many art-forms and people, philosopher, institution builder, social commentator, social worker, and activist. Consulted with major divAn-s of mysUru state - including vishveshvarayya. Misled initially to favor dumbocracy, realized his mistake only later.

@@ -5,6 +5,7 @@ title: Alien Heroes
 ## Other lists
 
 - SP [here](https://twitter.com/Rjrasva/status/877839974669860865).
+- Chinese heroes [here](../../../../paganology/china/heroes/).
 
 ## Socio-cultural ethos
 
