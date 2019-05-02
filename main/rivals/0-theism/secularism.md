@@ -17,6 +17,7 @@ Secularism sometimes manifests as anti-nationalism - as in the case of oppositio
 - The notion of secularism emerged from conflicts and compromise involving strains of Abrahamist monotheism either on both sides (as in the case of Europe) or one one side (as in the case of some strains of sikh thought).
 - This is then a universalization of a phenomenon of limited local relevance - "Were secularism to be seen as not only a product of the West, but also having characteristics that link it to the ongoing religious traditions of the Christian West, then its universal applicability would be questionable." \[[Mohr13](https://www.academia.edu/1549528/2_The_Christian_origins_of_secularism_and_the_rule_of_law)\]
 - Also note its close connection to modern reactionary epistemological atheism (../described [here](../abe-disease/zombie-cult/)) given its rejection of and scorn for pagan state ritual.
+- Poor background - Secularists and anti-nationalists oft come from a secular background deprived of a pagan national setup - as such they are more driven by prejudices and lack of imagination than solid experience.
 
 ### Anti-nationalism
 Anti-nationalism is often found in Abrahamists since pagan states oppose their impositions, as well as in some pagans of Abrahamistic background (native or acquired). A prominent example involves western converts to shinto ("my green shinto rejects jingoist state shinto") or hinduism (yogis against hindutva). This problematic attitude sometimes arises from:
