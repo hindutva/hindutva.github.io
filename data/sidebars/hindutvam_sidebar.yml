@@ -80,10 +80,7 @@ contents:
           - url: dir://main/rivals/abe-disease/
       - title: 0-theism
         contents:
-        - title: Intro
-          url: /main/rivals/0-theism/
-        - title: Secularism
-          url: /main/rivals/0-theism/secularism.md
+        - url: dir://main/rivals/0-theism/
       - title: "Dubious bAba-isms"
         contents:
           - url: dir://main/rivals/dubious-bAbaisms/
