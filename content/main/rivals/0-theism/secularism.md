@@ -19,9 +19,9 @@ Secularism sometimes manifests as anti-nationalism - as in the case of oppositio
 - Also note its close connection to modern reactionary epistemological atheism (../described [here](../abe-disease/zombie-cult/)) given its rejection of and scorn for pagan state ritual.
 
 ### Anti-nationalism
-Anti-nationalism is often found in Abrahamists (their philosophy being bent on condemning jahilliya / ignorance of local pagan traditions), as well as in some pagans of Abrahamistic background (native or acquired). A prominent example involves western converts to shinto ("my green shinto rejects jingoist state shinto") or hinduism (yogis against hindutva). This problematic attitude sometimes arises from:
+Anti-nationalism is often found in Abrahamists since pagan states oppose their impositions, as well as in some pagans of Abrahamistic background (native or acquired). A prominent example involves western converts to shinto ("my green shinto rejects jingoist state shinto") or hinduism (yogis against hindutva). This problematic attitude sometimes arises from:
 
-- Basic misunderstanding - "A nationalist people are naturally a mean people who are belligerent berserkers. A deified national spirit cannot be benevolent, friendly or subordinate towards other nations or bigger regions."
+- Basic misunderstanding - "A nationalist people are naturally a nasty people who are belligerent berserkers. A deified national spirit cannot be benevolent, friendly or subordinate towards other nations or bigger regions."
 - Conflict of interest - "A japan with state shinto, or an India with state hindutva result in strong states which can outcompete and harm the interests of my host/ native/ favorite country or culture."
 - Guilt
   - How can one benefitting from "freedom of religion" (even theoretical equality!) granted by monotheist societies deny it to monotheisms in pagan nations?
