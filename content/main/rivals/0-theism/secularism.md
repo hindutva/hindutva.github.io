@@ -59,3 +59,5 @@ Anti-nationalism is often found in Abrahamists (their philosophy being bent on c
 - "This meme is peculiar in many ways- it is antagonistic in being exterior to religion as defined by Christo-Islamism, but is in its interior a twin of the religion meme of Leukosphere and sustained by very similar doctrinal constructs. Most importantly their system of ethics in secularism derive directly from the core Abrahamistic meme. The scorn for heathens is also inherited..." \[[MT](https://manasataramgini.wordpress.com/2007/07/09/western-generalizations-of-religiosity/)\]
 - There is often a continuation of thought patterns of the abrahamisms. 
 
+### Sapping national strength
+A nation imbued with a strong national spirit and cult is a strong nation, one which can effectively solve internal conflicts and face external threats. For example, a strongly hindu India can better face jihAds from the neighboring Muslim states, land-lust of China, divide-and-rule attempts of Anglosphere while tackling domestic problems of similar communist, Islamic or missionary nature.
