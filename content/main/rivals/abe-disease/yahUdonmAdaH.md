@@ -34,6 +34,10 @@ title: Judaism
 - The First Jewish–Roman War (66–73 CE) originated in Roman and Jewish religious tensions (?), and later escalated due to anti-taxation protests and attacks upon Roman citizens..
 - The Kitos War (115–117) before being crushed by Quietus (Kitos): widespread slaughter of left-behind Roman garrisons and Roman citizens by Jewish rebels. In Cyrenaica (Libia), the rebels were led by one Lukuas or Andreas. His group destroyed many temples, including those to Hecate, Jupiter, Apollo, Artemis, and Isis, as well as the civil structures that were symbols of Rome, including the Caesareum, the basilica, and the public baths. Lukuas led the rebels toward Alexandria, entered the city, which had been abandoned by the Roman governor, Marcus Rutilius Lupus, and set fire to it. The Egyptian temples and the tomb of Pompey were destroyed. This resulted in great depopulation and the need to establish new colonies.
 - Bar Kokhba revolt (132–136 CE) triggered by building Aelia Capitolina, over the ruins of Jerusalem and the erection of a temple to Jupiter on the Temple Mount. Simon bar Kokhba, the commander of the revolt, was regarded by many Jews as the Messiah, who would restore their national independence. Result: Suppression of Jewish religious and political autonomy by Hadrian (no circumcision allowed), Large-scale destruction of Judean population by Roman troops.
+- Jewish leaders and population - to this day - regard the Bar Kokhba assault with reverence and fondness.
 
 ## Specific Anti-hindu actions
 - Opinions expressed during modern Jewish visits to India \[[T1](https://twitter.com/sighbaboo/status/725514089850503168)\].
+
+## Limited Hindu-Jewish alliance
+- Just as the jews suddenly started liking the Roman emperor (Julian the hellene/ apostate) - they will make tactical alliances in the presence of a bigger threat from their universalist offshoots.
