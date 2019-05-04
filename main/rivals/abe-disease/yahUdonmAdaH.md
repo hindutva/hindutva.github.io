@@ -2,6 +2,12 @@
 title: Judaism
 ---
 
+## "Holy" texts
+- Hebrew Bible: Tanakh is an acronym of the first Hebrew letter of each of the Masoretic Text's three traditional subdivisions: "Written" Torah ('Teaching', also known as the Five Books of Moses), Nevi'im ('Prophets') and Ketuvim ('Writings')—hence TaNaKh.
+- talmūd : primary source of Jewish religious law (halakha) and Jewish theology. This includes:
+  - Mishnah, a written compendium of Rabbinic Judaism's Oral Torah
+  -  Gemara (circa year 500 CE), an elucidation 
+
 ## Anti-polytheist philosophy and practice
 - Noah's rules: "Non-Jews do not have to become Jews to become righteous. They only have to embrace the Seven Laws of Noah. According to Torah tradition, God gave Noah and his family seven commandments to observe when he saved them from the flood. These commandments, referred to as the Noachide Commandments or Laws, are learned by tradition but also suggested in Genesis Chapter 9, and are as follows: 1. Not to commit idolatry; 2. Not to commit blasphemy; ... 7. To establish courts of justice to punish violators of the other six laws..." ([YT](https://www.youtube.com/watch?v=5O1ve4Hs4Po))
 - More about fanatic intolerant Judaic acts against European polytheism [here](../../../../paganology/europe/).  
