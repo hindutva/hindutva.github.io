@@ -26,16 +26,6 @@ Violence, moderated by social and legal concerns, is allowed and practiced by hi
   - rAvaNa was also reputed to be a shiva-devotee (same with several other rAkShasa-s).
     
 
-## Suicide
-- prAyopaveshaNa - starving oneself.
-- Burning oneself on a pire as a paschAt-tApa/ prAyashchita. The pAla king, the tale of the maNDana.
-- sallekhana among jains.
-- garuDa heroes following their kings in South India \[[IM](http://i.imgur.com/LcJGXVh.png)\].
-- Following the husband by satI-s (details in [anugamana page](../anugamana/)). 
-
-### Opposition
-"That it goes against the Sruti statements like “Therefore, one should not depart before one’s natural lifespan” (Shatapatha Brahmana 10.2.6.7), which prohibit suicide."
-
 ## Ascetic violence
 - Yogi-s and ascetics did serve as warriors and mercenaries.
 - "European travelers of the period frequently describe yogis who are “skilled cut-throats” and professional killers. “Some of them carry a stick with a ring of iron at the base,” wrote Ludovico di Varthema of Bologna in 1508. “Others carry certain iron diskes which cut all round like razors, and they throw these with a sling when they wish to injure any person.” A century later the French jewel merchant Jean Baptiste Tavernier was describing large bodies of holy men on the march, “well armed, the majority with bows and arrows, some with muskets, and the remainder with short pikes.” By the Maratha wars of the early nineteenth century, the Anglo-Indian mercenary James Skinner was fighting alongside “10 thousand Gossains called Naggas with Rockets, and about 150 pieces of cannon.”" - [WD14](http://www.nybooks.com/articles/archives/2014/mar/06/under-spell-yoga/)
