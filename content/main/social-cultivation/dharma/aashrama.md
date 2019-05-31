@@ -7,10 +7,8 @@ title: आश्रमः Life-stages
 
 An individual's life passes through various phases. Important among them were described and suggested by dharma-shAstra writers with the view of bringing and maintaining individual and social harmony. Phase transitions were especially marked. Following are the four major stages of life: 
 
-  
-
 - brahmacharya - Student life, starting with upanayana and ending with samAvartana.
-    - naiShThika-brahmacharya, starting with a special ceremony after samAvartana.
+    - naiShThika-brahmacharya, starting with a special ceremony after samAvartana. "He may also rekindle the fire with a ‘substitute wife[10]’... he may rekindle the fire alone for himself[11] (Trikandamandana 3.128) and taking Shraddha (faith/conviction) as his ‘substitute wife’ may perform agnihotra etc. " [Nithin](http://indiafacts.org/sati-dharmic-perspective/#_ednref14)
 - gRhastha - Householder life, starting with vivAha/ marriage. The most important Ashrama, for this is where family traditions are maintained. 
     - brahmachArin-s taking up sannyAsa or vAnaprastha without marriage is criticized.
         - Eg. indra in MBh - "ke cid gṛhān parityajya vanam abhyagaman dvijāḥ/ ajātaśmaśravo mandāḥ kule jātāḥ pravavrajuḥ/ etc.." \[[GA16](https://twitter.com/GhorAngirasa/status/756753649888481281)\]
@@ -46,18 +44,22 @@ An individual's life passes through various phases. Important among them were de
 - Widow remarriage / status.
     - UN report about widows left in vArANAsi : [here](https://www.youtube.com/watch?v=_SxPv5aQP0c).
     - shatAvadhAnI gaNesh's view [here](https://www.youtube.com/watch?v=kXustFOkOr4&feature=em-uploademail) paints a sympathetic picture of such women before 1k years.
-- Widower status
-    - Can remarry
-    - vrata-s - to check: \[[IMG](https://imgur.com/MTx97Wm)\]
 - Marriage advice - [KV18](https://agnimaan.wordpress.com/2018/04/08/marriage-advice-for-hindu-snataka-s/).
 - Divorce
     - There is an ancient sanskrit word for divorce - a beautiful and very meaningful word. kauTilya uses it - mokSha. It is a simple misconception that there is no provision for divorce among hindu thinkers. \[[A1](http://www.yourarticlelibrary.com/marriage/comprehensive-essay-on-divorce-in-india/4370/)\]
     - नष्टे मृते प्रव्रजिते क्लीबे च पतिते पतौ। पञ्चत्स्वापत्सु नारीणां पतिरन्यो विधीयते।३०।। \[पराशरो [ऽत्र](https://archive.org/stream/ParasharaSmriti/SriParasharaSmrithiPdf#page/n35/mode/2up/search/%E0%A5%A9%E0%A5%A6)\]
-    
 
-### jIvahara
-- sati / jIvahara/ jowhar : Ritual suicide of widows (usually at the husband's funeral pyre).
-- "As per numerous testimonies, most self-immolating widows went into the pyre voluntarily, often overcoming pressure from their relatives or from the authorities not to do it."
-- "It was confined to the real or would-be warrior castes, though, in keeping with their ethos of pride and passion."
-- "For Brahmins it was forbidden, a negative judgment going back to this Rg-Vedic verse. ... It is only logical that some rulers in the Brahmin-dominated Maratha confederacy forbid the practice even before the British East India Company Governor Lord William Bentinck (under prodding from Hindu reformer Ram Mohan Roy) abolished it by law in 1829."  
-- Read Koenraad Elst for more details [here](http://www.hinduhumanrights.info/sati-and-hinduism/), sati-strategy [here](https://bharatabharati.wordpress.com/2016/03/24/the-sati-strategy-koenraad-elst/).
+### Widower options
+- "For a widower, at least four different options are suggested in the Dharmashastras. While Yajnavalkya Smriti (1.89) suggests the widower to take another wife without delay and rekindle a new fire (for religious Yajnas), texts like Baudhayana Dharmasutra (2.17.4) suggests one to renounce the world and become a Sannyasi. He may also rekindle the fire with a ‘substitute wife[10]’ made of gold or Kusha grass (Aitereya Brahmana 32.8; Trikandamandana 2.8) and thus enter Grihasta Ashrama symbolically and continue his duties, or he may rekindle the fire alone for himself[11] (Trikandamandana 3.128) and taking Shraddha (faith/conviction) as his ‘substitute wife’ may perform agnihotra etc. similar to those who remain unmarried (Naishtika Brahmachari). Thus, the four options for the widower are: remarriage, renunciation, taking a substitute wife in the form of statue made of gold or kusha grass for ritual purposes, staying as Apatnika by rekindling the sacrificial fire for oneself alone. ... Apatnikas are those who do not have dispassion and hence cannot take Sannyasa, but because of their love and attachment to their departed wives, they cannot even remarry. Either due to sorrow at the loss of the wife or due to desire to enter a Vanaprasta-like stage, the widower chooses the Apatnika path and practices Agnihotra etc. and lives a highly restrained life by cherishing the memory of the departed wife." - [Nithin](http://indiafacts.org/sati-dharmic-perspective/#_ednref14)
+- vrata-s - to check: \[[IMG](https://imgur.com/MTx97Wm)\]
+
+### Widow options
+- Widow suicide - see [anugamana](../../violence/anugamana/) page
+- "For a widow, on the other hand, Dharmashastras prescribe three different paths: Anugamana, Vidwavrata, and Punar-vivaaha[13]. While texts like Parashara Smriti (4.28-30) mention all the three paths, other texts mention only one or two options. ... Vidhwavrata, on the other hand, takes on elements from both Sannyasa and Apatnika paths of the widowers." - [Nithin](http://indiafacts.org/sati-dharmic-perspective/#_ednref14)
+
+
+## anAshrama-flaw
+- " one becomes Anashrami i.e. one without an ashrama, which is unhelpful to a person, since, Vishesha Dharma, or the righteous duties as contextualized to a specific individual is always defined with reference to varna and ashrama, and without an ashrama, one is unable to perform Dharma and hence will neither attain material welfare nor gain spiritual merit. It is for this reason, the state of “anashrama” is condemned in the Dharmashastras" - [Nithin](http://indiafacts.org/sati-dharmic-perspective/#_ednref14)
+- Cases
+  - Widow or widower
+  - Between brahmacharya and gRhastha phases
