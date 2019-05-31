@@ -55,7 +55,7 @@ An individual's life passes through various phases. Important among them were de
 
 ### Widow options
 - Widow suicide - see [anugamana](../../violence/anugamana/) page
-- "For a widow, on the other hand, Dharmashastras prescribe three different paths: Anugamana, Vidwavrata, and Punar-vivaaha[13]. While texts like Parashara Smriti (4.28-30) mention all the three paths, other texts mention only one or two options. ... Vidhwavrata, on the other hand, takes on elements from both Sannyasa and Apatnika paths of the widowers." - [Nithin](http://indiafacts.org/sati-dharmic-perspective/#_ednref14)
+- "For a widow, on the other hand, Dharmashastras prescribe three different paths: Anugamana, Vidwavrata, and Punar-vivaaha[13]. While texts like Parashara Smriti (4.28-30) mention all the three paths, other texts mention only one or two options. ... Vidhwavrata, on the other hand, takes on elements from both Sannyasa and Apatnika paths of the widowers. ... Parashara Smriti (4.28) clearly allowing remarriage for women under five circumstances for Kaliyuga— if husband is missing, dead, has renounced the world, is impotent, or if he commits severe Adharmic actions— which pretty much covers all legitimate grounds; except for Ishwar Chandra Vidyasagar, no Dharmashastra writer or commentator has written much about widow remarriage. " - [Nithin](http://indiafacts.org/sati-dharmic-perspective/#_ednref14)
 
 
 ## anAshrama-flaw
