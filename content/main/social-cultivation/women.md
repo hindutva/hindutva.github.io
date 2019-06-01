@@ -60,8 +60,7 @@ title: Women स्त्रीः
     - हारितः \- "तत्र ब्रह्मवादिनीनाम् उपनयनम्, अग्नीन्धनम् वेदाध्ययनं स्वगृहे च भिक्षाचर्येति।"
     - Women got the upanayana initiation (as a symbolism before marriage or as a serious initiation depending on the case) well into the gRhya-sUtra and early dharma-shAstra ages (काणे-विचार-सारो [ऽत्र](https://archive.org/stream/HistoryOfDharmasastraVol.IIPartIPandurangVamanKane/History%20Of%20Dharmasastra%20-%20Vol.%20II%20Part%20I%20-%20Pandurang%20Vaman%20Kane#page/n345/mode/2up)।)
     - "पुरा कल्पेषु नारीणां मौञ्जीबन्धनमिष्यते । अध्यापनं च वेदानां सावित्रीवचनं तथा ॥"
-- Woman wearing yajnopavIta [TW16](https://twitter.com/blog_supplement/status/709601817584340992).
-    - "इदानीमप्यौत्कल्यदेशे विवाहकाले कन्या धारयत्येव।  चतुर्थीकर्म पर्यन्तम्।  स्वयमेव दृष्टम्मया।"
+- Access to upavIta : see [upavIta page](../../self-cultivation/ritual/upavIta/).
 - Patanjali gives some examples in स्त्रीप्रत्ययप्रकरणम्--
     - काशकृत्स्निना प्रोक्ता मीमांसा  काशकृत्स्ना  \- that means काशकृत्स्ना was a Vedic scholar .
     - औदमेय्याः  छात्राः  औदमेयाः \- there were good and great women scholers .
