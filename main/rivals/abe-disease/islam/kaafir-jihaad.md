@@ -1,6 +1,6 @@
 ---
 title: War on infiedels
----  
+---
 
 ## Motivating Concepts
 

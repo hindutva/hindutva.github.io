@@ -1,6 +1,6 @@
 ---
 title: Military (General)
----  
+---
 
 Hindu military history and evaluation - [see here](../../polity/external-affairs/defence/).
 
