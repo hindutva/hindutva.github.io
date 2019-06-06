@@ -17,7 +17,13 @@ The neo-platonist tradition and lineage is described in [the platonist page](../
 
 ## Christianization of Roman empire
 - "The most vigorous group of Neoplatonists, living in Athens and still adhering to the old rituals, disbanded in the aftermath of Emperor Justinian’s legislation of 529, which resulted in the closing of the Platonist academy."
+- 17th Volume of Res Gestae Libri XXXI, which covers the 4th century AD, by the famous Roman historian Ammianus Marcellinus: “The bishop of Alexandria Georgios and his gang went through the streets of Alexandria cutting up people and setting fire to everything. From the remotest areas of the Roman Empire countless Greeks of all ages and social backgrounds were dragged chained. Many of these died on the way or in the prisons of different places. Those that managed to survive ended up in Skythopolis, a remote town in Palestine, where instruments of torture and death were set up.”
+- "The Christian historian Sozomen, in his book Ecclesiastical History, wrote that almost all Greeks were ordered to be killed, some by sword and some by fire. All the philosophers and those wearing the clothing of philosophers were also killed."
+- "The Olympic, Nemea, Isthmian, Pythian and Panathenian games were stopped."
+- "By some trick, history stops at the point at which the nasty Romans persecute the virtuous Christians. The history relating to the criminal Christians as persecutors of the Greeks is hushed up, just as the first death camp in world history in Skythopolis is hushed up."
 
+### Massacre of Greeks
+- "It is estimated that between the 4th and 10th century at least 20 million Greeks were exterminated. We should not forget that Greeks made up the biggest population of the Roman Empire and possibly of the world. The Greek population, before this systematic extermination, numbered about 40 million living around in the geographical areas now known as Greece, Turkey, Iraq, Egypt, Jordan, Lebanon and Palestine."
 
 ## Plethon's academy
 - MT [says](https://manasataramgini.wordpress.com/2013/02/10/the-end-of-the-heathens/): "The heathen revivalist Plethon and his students reintroduced classical Greek thought back into [Cosimo de' Medici](https://en.wikipedia.org/wiki/Cosimo_de%27_Medici)'s court and had a great influence on key figures in the renaissance. ... It was under the aegis of this forum provided by the Medici clan that Leonardo, several other artists and later Galileo \[who dedicated his Sidereus Nuncius to member of the clan\] received patronage."
