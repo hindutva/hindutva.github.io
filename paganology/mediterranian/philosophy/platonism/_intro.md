@@ -30,9 +30,10 @@ himself, prior to all others"[and then, still from himself] "the rest of the int
 - "For example, the inner activity of the sun (nuclear fusion, as we now know) has the outer effect of heat and light, themselves activities as well. Or the inner activity of a tree that is determined by the kind of tree it is (its genetic code, we would now say; the Neoplatonists spoke of an inherent formative principle, logos) results in the bearing of a particular kind of fruit; or again, thoughts and feelings internal to human beings express themselves in speech and actions."
 - "Furthermore, it is also the case that these outer activities will typically be productive of yet other outer activities that are ontologically more remote and derivative: Fruit serves as nourishment or poison for other individual life forms, and human speech and action constitute, over time, a person’s biography or a society’s history. "
 
-### The ultimate cause
+### The ultimate cause of individuation
 - To Hen (τό ἕν), The One, First, The Good.  Hence the the first “Hypostasis”.
-- "an entity that is beyond +++(lower realms of )+++Being, transcending all physical reality, very little can actually be said, except that it is absolute Unity. However, we know empirically of its effect, the entire universe, and we must therefore suppose that the One is the carrier of, or rather identical with, a boundless sort of singular activity or energy. "
+- The one is "visheSha" of nyAya-shAstra - albeit applied to henads (~ Atmans).
+- People have misunderstood the One. For example, Stanford encyclopedia says: "an entity that is beyond +++(lower realms of )+++Being, transcending all physical reality, very little can actually be said, except that it is absolute Unity. However, we know empirically of its effect, the entire universe, and we must therefore suppose that the One is the carrier of, or rather identical with, a boundless sort of singular activity or energy. " They ignore Plato's Parmenides 141E: "But apparently the One neither is, nor is one, if this argument is to be trusted.". Edward Butler, a contemporary polytheist platonist, has posited a much needed correction. See his [dissertation](https://archive.org/details/neo-platonism-papers).
 
 ### Nous - the Ideal realm
 - the outer activity and effect of the First must be nous - pure and absolute “Consciousness”.  Hence the the second “Hypostasis”.
