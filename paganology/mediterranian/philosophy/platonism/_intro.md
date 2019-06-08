@@ -32,7 +32,8 @@ himself, prior to all others"[and then, still from himself] "the rest of the int
 
 ### The ultimate cause of individuation
 - To Hen (τό ἕν), The One, First, The Good.  Hence the the first “Hypostasis”.
-- The one is "visheSha" of nyAya-shAstra - albeit applied to henads (~ Atmans).
+- "One way to reconstruct the argument is that if the thing making a thing one is itself one thing, then either there is something else making it one, or it does so itself in a different respect; either way, there would be an infinite regress." - Edward Butler.
+- The one is the one set of "visheSha"s of nyAya-shAstra - albeit applied mainly to henads (~ Atmans). The sage Empedocles was superficially different in that he, like a pluralist, refered to the constituent visheSha elements of this set for their individuating function.
 - People have misunderstood the One. For example, Stanford encyclopedia says: "an entity that is beyond +++(lower realms of )+++Being, transcending all physical reality, very little can actually be said, except that it is absolute Unity. However, we know empirically of its effect, the entire universe, and we must therefore suppose that the One is the carrier of, or rather identical with, a boundless sort of singular activity or energy. " They ignore Plato's Parmenides 141E: "But apparently the One neither is, nor is one, if this argument is to be trusted.". Edward Butler, a contemporary polytheist platonist, has posited a much needed correction. See his [dissertation](https://archive.org/details/neo-platonism-papers).
 
 ### Nous - the Ideal realm
