@@ -15,7 +15,7 @@ Their misguided attempts derive from various misunderstandings. In their deeply 
 Sometimes class opportunism is combined with native spiritual movements. See [Ananda addiction page](../aananda-addiction/).
 
 ## Dalitism
-As an archetype, bhIm rAv [ambeDkar](../../https://en.wikipedia.org/wiki/B._R._Ambedkar), who strived for respect and opportunities for the untouchable jAti-s (sAvarkar on him: [img1](http://i.imgur.com/fhQO1Yf.jpg)) \- even at the cost of hinduism or Indian independence. More in the [Heroes page listing](../history/heroes/).
+As an archetype, bhIm rAv [ambeDkar](../../https://en.wikipedia.org/wiki/B._R._Ambedkar), who strived for respect and opportunities for the untouchable jAti-s (sAvarkar on him: [img1](http://i.imgur.com/fhQO1Yf.jpg)) \- even at the cost of hinduism or Indian independence. More in the [Heroes page listing](../history/persons/).
 
 ## Regional forms
 ### Dravidianism/ Lemurism

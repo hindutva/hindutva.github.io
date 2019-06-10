@@ -68,5 +68,5 @@ Problematic stereotyping and omissions:
 
 ## About this site
 
-Popular pages: [Heroes](../../history/heroes/) .
+Popular pages: [Heroes](../../history/persons/) .
 

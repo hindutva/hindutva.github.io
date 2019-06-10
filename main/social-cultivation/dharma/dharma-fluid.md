@@ -91,7 +91,7 @@ Indian notions of dharma was very fluid. (../For a general context on the limits
 
 - The schism of the liberals from powerful orthodoxy has led to betrayal and collapse in the past.
     - Examples
-        - The betrayal of the yAdava empire by mahAnubhAva-s - seek [here](../../history/heroes/) for more info.
+        - The betrayal of the yAdava empire by mahAnubhAva-s - seek [here](../../history/persons/) for more info.
         - Ambedkar's close collaboration with the British rulers and role in dissuading them from leaving.
         -  \[[Zoro1](https://agnimaan.wordpress.com/2015/08/31/a-hindu-perspective-on-zoroastrians-schism-of-the-liberals-and-its-dangers/)\]
 - Modern orthodoxy: Practice of ways that are ancient in spirit, suitably adapted, while participating in contemporary enterprise. This is chief.
