@@ -5,7 +5,7 @@ title: Women स्त्रीः
 
 \[Incomplete\]  
 
-- Consider shatAvadhAnI-gaNesha's [commentary on the role of women](../http://www.youtube.com/watch?v=EmlvavD3LSg) in ancient India (esp. compared with contempraneous societies elsewhere). Also see examples [here](../history/heroes/).  
+- Consider shatAvadhAnI-gaNesha's [commentary on the role of women](../http://www.youtube.com/watch?v=EmlvavD3LSg) in ancient India (esp. compared with contempraneous societies elsewhere). Also see examples [here](../history/persons/).  
     
 - Womanhood as a lower status birth (hindu society was patriarchal, as in other contemporary societies)  
     - At a ritual and social (rather than family) level, there is no doubt that status of women was lower.  

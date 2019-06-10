@@ -2,11 +2,15 @@
 title: Hindu response
 ---
 
-
+## Intro
 - Military response - see [defence page](../../../polity/external-affairs/defence/).
     - [MT](http://manasataramgini.wordpress.com/2014/02/04/some-notes-on-the-extra-military-aspects-of-the-islamo-hindu-confrontation/) posits: "Mohammedanism needed special backing for its effective survival in the subcontinent. ... Demographic and missionary aggression by Mohammedanism might not have been sufficient for it to overrun the Hindu dharma."
 - For generic intellectual and identity based response patterns, see [defence/id page](../../../polity/external-affairs/defence/id/) 
 - "The striving for non-Hinduness might have even lead to internal rifts within Mohammedanism as each group was trying be more Mohammedan than the other. " \[[MT](http://manasataramgini.wordpress.com/2014/02/04/some-notes-on-the-extra-military-aspects-of-the-islamo-hindu-confrontation/)\]
+
+## On the nature of Abrahamist God
+A classical vaidika hindu view would be: 
+"The Gods are and always were in perfect harmony. Myths of their battles, though sacred and valuable, are not to be taken literally. So this monopolistic God is at best petty human misinterpretation, and his cults are deadly memetic epidemics."
 
 ## Intelligent critiques
 

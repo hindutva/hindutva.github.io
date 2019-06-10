@@ -32,7 +32,7 @@ title: Sufi
     - Yoga was incorporated into sufiism - eg: Carl Ernst [here](http://www.unc.edu/~cernst/pdf/jras2.pdf), Baḥr al-ḥayāt (Ocean of immortality), an early 17th century Persian Sufi text on yoga [here](http://i.imgur.com/h9TsdOa.jpg).
 - Examples:
     - Wali sanga of Java ([wiki](https://en.wikipedia.org/wiki/Wali_Sanga)).
-    - Several sufi mystics in India - especially kAshmIr. Syed Ali bin Shahab-ud-Din Hamadani Abidi (../more on him [here](../../../history/heroes/)).
+    - Several sufi mystics in India - especially kAshmIr. Syed Ali bin Shahab-ud-Din Hamadani Abidi (../more on him [here](../../../history/persons/)).
 
 ## References
 - [The beauty and beast of sufism](http://www.chakranews.com/beauty-and-the-beast-of-sufism/2454) argues that sufi-ism has not been a great exception. It is a fine expose of the 'beast' (vs the beauty) of sufism - especially its track-record in bhArata.

@@ -126,6 +126,9 @@ contents:
       - title: Persons व्यक्तयः
         contents:
           - url: dir://main/history/persons/
+          - title: क्षात्रम् Polity
+            contents:
+              - url: dir://main/history/persons/xatra/
   - title: Paganology
     url: /paganology/
   - title: Home
