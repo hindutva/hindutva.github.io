@@ -65,9 +65,13 @@ title: Anti-ghazis (north)
 - jaya simha 2 "Sawai" \[[wiki](https://en.wikipedia.org/wiki/Jai_Singh_II#Sawai_Jai_Singh_and_the_Marathas)\] of amber
   - raised to serve mogol emperors but later took wings, 
   - who like akaNNa and madaNNa conspired with the marATha-s to reduce Islamic power.
-  - who built jantar mantar, patronized scholarship and even conducted an ashvamedha.
-  - had Euclid's "Elements of Geometry" translated into Sanskrit as also several works on trigonometry, and Napier's work on the construction and use of logarithms
   - tried in vain to constrain jaT and marATha rise with a partial rAjaputra alliance.
+  - whose force of 50,000 soldiers who were all well-educated was the most modern army in the whole of India
+  - brought a stop to extravagantly lavish weddings, female infanticide, etc. through strict orders
+  - who built jantar mantar, patronized scholarship and even conducted an ashvamedha.
+  - removed the jizya tax that was levied on tirthayatras and at tirthakshetras forever (When Bahadur Shah offered him a reward of two crores, he declined it and instead asked for an order for a permanent removal of the tax!)
+  - had rest houses and Dharmashalas built at Mathura, Brindavan, Kashi, Gaya, Pune, Kabul, Lahore, Agra, Delhi, Chitrakoot, Ayodhya, Haridwar, Ujjain, and other sacred spots
+  - had Euclid's "Elements of Geometry" translated into Sanskrit as also several works on trigonometry, and Napier's work on the construction and use of logarithms
 - [ChatrasAla](http://en.wikipedia.org/wiki/Maharaja_Chhatrasal), mahArAja of bundelakhaNDa, who rebelled against awrangzeb; father of mastAnI.  
 - durgAdAsa rAthoDa, who steadfastly opposed Awrangzib and restored Marwar to Ajita simha \[[wiki](http://en.wikipedia.org/wiki/Durgadas_Rathore)\].
 - Ajit Singh of Marwar, ruler of Jodhpur, whom durgAdAsa brought to power, who restored temples destroyed by Awrangzeb, took back the daughter he had given to the moghul \[wiki\].
