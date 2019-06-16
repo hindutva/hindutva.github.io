@@ -7,10 +7,6 @@ title: +Abrahamisms generally
 
 "If Hinduism is a single religion, consistency requires Judaism, Xianity & Islam be categorised as sects of a single religion." \- Stietencron  
 
-## Practical observations
-
-- "National anthem, Cashmereyaut, suppression of dummy grad students etc are mere facades for the really elephant in the room that H themselves are afraid to see -- there can be no coexistence between Abe and the heathens & Abe will do all it takes to make us fertilizer for the soil." \[[TW16](https://twitter.com/blog_supplement/status/762346994333519873)\]
-
 ## Philosophical divergence
 With rare exceptions, all abrahamisms agree on some basic concepts. Abrahamisms have certain indispensable beliefs (dogmas), without which the thought-system would collapse. (Aksharananda [here](https://www.youtube.com/watch?v=WN0JQsgZJas).)
 
@@ -36,7 +32,7 @@ With rare exceptions, all abrahamisms agree on some basic concepts. Abrahamisms 
 - "Adoration" is a better word for pUjA.
 
 #### Grudging continuation of polytheism
-One observes in monotheisms a grudging continuation of polytheisms. Examples: [jewish prayer](../../../../images/snippets/polytheism_in_monotheism_jewish.jpg), [catholic prayer](../../../../images/snippets/polytheism_in_monotheism_christian.jpg), greek orthodox anathema ritual.
+One observes in monotheisms a grudging continuation of polytheisms. Examples: [jewish prayer](images/snippets/polytheism_in_monotheism_jewish.jpg), [catholic prayer](images/snippets/polytheism_in_monotheism_christian.jpg), greek orthodox anathema ritual (where those who see polytheism in worship of icons and such are declared "anathema").
 
 
 ### Divine plan and importance of history
@@ -78,7 +74,7 @@ One observes in monotheisms a grudging continuation of polytheisms. Examples: [j
     - "Abrahamism has a certain internal “thermometer” which can sense whether a doctrinal patina is strategic acculturation which is good for takeover of heathens, or actually a dangerous counter-intrusion of heathenism into their own doctrine. This sensory process had been perfected in the midst of the prathamonmatta-s well before the pretācarin-s and Bardaisan. [We know that with the rise of Neo-Platonism and Hermetic traditions, prathamonmatta-s were being absorbed into syncretic or even openly Hellenistic traditions on a large-scale](https://manasataramgini.wordpress.com/2013/12/17/a-greco-semitic-apollonian-ritual-and-the-heathen-assimilation-of-paleo-abrahamism/). This led a quick response where the [errant were killed or cut out](https://manasataramgini.wordpress.com/2013/12/17/a-greco-semitic-apollonian-ritual-and-the-heathen-assimilation-of-paleo-abrahamism/)." \[[MT](https://manasataramgini.wordpress.com/2016/03/11/unmada-carca/)\]
 
 ### On tolerance and evangelism:
-- Rare forms of U1, U2 and U3 proselytize broadly.
+- Rare forms of U1, many forms of U2 and U3 proselytize broadly.
 - Common hooks:
     - Why is there suffering and "injustice" in the world? Why was man created? We have all the answers, and the world can be paradise.
 - Common reasons for failure

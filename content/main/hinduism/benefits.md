@@ -40,7 +40,9 @@ sidebar: hindutvam_sidebar
 
 This ties into why we must fight to save hindutva. As a certain pUjA put it: "Sauron has reached out far and stretched his nazgul arms wide indeed. What will the hobbits do now? Gandalf? Aragorn? The elves? The hobbits are all drinking to their health in the Green Dragon while the shire, no - Middle earth, is threatened. Dark days are indeed at our doors. I hope the Frodo in us is kicked up back alive by the ever loyal Samwise."
 
-"Avidya: Hinduism will survive, no need to do anything."Vidya: "Every great thing perishes if its heirs are petty. –Oswald Spengler" \[OGS16\]
+"Avidya: Hinduism will survive, no need to do anything." 
+ Vidya: "Every great thing perishes if its heirs are petty. –Oswald Spengler" \[OGS16\]
 
+Also see general comments on the [problem with monotheism](../../rivals/abe-disease/problem/).
 
 For context in India see [here](../../polity/sick-india/hindus/).
