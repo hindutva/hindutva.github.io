@@ -2,45 +2,18 @@
 title: Charges
 ---
   
-"I increasingly see "Indology" as a Western defense against the impact of Indian thought which was being felt in late 18th-early 19th c." - Edward Butler.  
+"I increasingly see "Indology" as a Western (ie Christendom's) defense against the impact of Indian thought which was being felt in late 18th-early 19th c." - Edward Butler.  
 
 ## Context
 
 - The purpose of this list is to note the reasons why Hindus must engage with Western Indology with great caution.
     - AIDS tells us that a compromised immune system can be a fatal liability.
-- **A summary**
-    - From [SW15](http://swarajyamag.com/culture/much-ado-about-plagiarism-fox-vs-malhotra/): " It is not so much Malhotra, the scholar, who is worrisome to them as Malhotra, the strategist. Among the Hindus, he appears to be the first who has approached the Western academy as a knowledge-producing ‘industry.’ At least this is what I have gathered from his speeches and writings. Just like any company which builds and markets a product, the Western academy is in the business of generating and selling certain narratives. The knowledge of other cultures is collected as “raw data” from its native informants who subsequently do not play much of a role in its interpretation. This data is then subjected to hermeneutical processes based entirely on Western theories. The end result undergoes critical review processes and is packaged with notes, cross-references, bibliographies, the whole she-bang, to produce a ‘representation’ which is then admitted as authoritative knowledge on the particular subject both in the West and tragically in the host country as well."
-    - One must ask oneself how much one's welfare coincides with theirs.
-- General references
-    - See revulsion sections below.
-    - Perspective from non-Indian hindu-s - [USA15](http://www.vicharvimarsh.com/2015/07/23/why-rajiv-malhotra-matters-to-white-hindus-like-me/?utm_content=buffer2cc7e&utm_medium=social&utm_source=twitter.com&utm_campaign=buffer).
-    - 2015 petition listing many problems hindus have with Indological discourse [here](https://www.change.org/p/concerned-indians-statement-on-hypocrisy-and-indian-history).
-    - Anti-hindu academics list [here](https://docs.google.com/spreadsheets/d/1na04eHpJ69vLPiStx8nVvW_gJpPu1KJ3bzv--ahoyCY/edit#gid=0).
 
-### Modes of engagement
-
-- Principle
-    - Even if greater disengagement from western indology results in less vigorous study of hindu past in the short term, it will at least be on strong foundations.
-    - Genuine and honest Hindu/ sanskrit scholarship does not need the shelter of academia to emerge.
-        - There are religious institutions, rich circles of connoisseurs form around local experts in the shAstra-s.
-- Examples of foolish engagement
-    - Bad funding: Various idiot rich hindu-s funding sanskrit/ hindu chairs and projects which are liable to be under the influence of anti-hindu academics.
-        - Rohan Murthy's funding of [www.murtylibrary.com](http://www.murtylibrary.com/) MCLI .
-        - Various endowed chairs and visiting professorships
-            - Indian ministry of culture Uchicago 2012 ([UC](http://news.uchicago.edu/article/2012/01/24/new-chair-indian-studies-commemorate-hindu-spiritual-leader)).
-            - Ramakrishnan Professorship 2016 [UC](http://news.uchicago.edu/article/2016/01/26/ramakrishnan-professorship-support-study-sanskrit).
-    - Acquiescing to sepoy-dom (explained below).
-- Possibly better engagement
-    - Good funding: Fund deserving pro-hindu scholars directly (in India or abroad).
-    - Drive up awareness about bad Indology and anti-hindu political activism. Make them pay a professional cost.
-        - Examples
-            - 2016 anti-pollock campaign.
-                - rAjiv malhotra's Battle for sanskrit campaign.
-                - Anti-pollock petition \[[P](https://www.change.org/p/mr-n-r-narayana-murthy-and-mr-rohan-narayan-murty-removal-of-prof-sheldon-pollock-as-mentor-and-chief-editor-of-murty-classical-library)\]
-                - Counter petitions and letters \[[P1](https://www.change.org/p/mr-rohan-narayan-murty-rebuttal-to-removal-of-sheldon-pollock-as-mentor-chief-editor-of-murty-classical-library)\]
-                - Petitioners rebuttals \[[RS_BVP](https://groups.google.com/d/msg/bvparishat/7496FVsX3UI/gC6CCjAGJAAJ), [R](http://www.dnaindia.com/india/report-why-prof-pollock-doesn-t-complain-about-iraq-invasion-but-protests-happenings-in-jnu-prof-ramakrishnan-2185739)\]
-        - Anti-hindu score [here](https://docs.google.com/spreadsheets/d/1scW5CxCj7ylkDOSpmsWQrgSFA_C5FKqqviISk6o7ESI/pubhtml#).
-    - Tracking Indologist activity via dissertation reviews - [DR](http://dissertationreviews.org/east-south-and-southeast-asia/south-asian-studies).
+### General references
+- See revulsion sections below.
+- Perspective from non-Indian hindu-s - [USA15](http://www.vicharvimarsh.com/2015/07/23/why-rajiv-malhotra-matters-to-white-hindus-like-me/?utm_content=buffer2cc7e&utm_medium=social&utm_source=twitter.com&utm_campaign=buffer).
+- 2015 petition listing many problems hindus have with Indological discourse [here](https://www.change.org/p/concerned-indians-statement-on-hypocrisy-and-indian-history).
+- Anti-hindu academics list [here](https://docs.google.com/spreadsheets/d/1na04eHpJ69vLPiStx8nVvW_gJpPu1KJ3bzv--ahoyCY/edit#gid=0).
 
 ### Limitations on this critique
 
@@ -49,6 +22,26 @@ title: Charges
 - This list does not excuse shoddy research, bad presentation and bad behavior by some Hindu-s.
     - Eg. Koenraad Elst on NS Rajaram in 2014 [here](http://koenraadelst.blogspot.com/2014/02/what-have-i-done-2.html), Rajaram reviewing unread books [KE14](http://koenraadelst.blogspot.com/2014/04/rajaram-witzel-and-racism.html).
     - These Hindu noise makers have contributed to our defeat in the past (eg. 2005 California Textbook [KE10](http://koenraadelst.blogspot.com/2013/10/hindu-noise-makers.html).)
+
+## Summaries
+### Vishva Adluri and Joydeep Bagchee 2019
+- Source for the below [here](https://www.academia.edu/39571145/Prolegomena_to_Any_Future_Mah%C4%81bh%C4%81rata_Studies).
+
+Indology failed not from the perspective of Indian tradition, which has continued largely unaffected. Neither did it fail from the perspective of Sanskrit, which produced a wealth of literature, which anyone today can read and which will exist long after the last Indologist. 
+
+Indology failed from the perspective of the claims
+it itself asserted: science, university discipline, humanities, European tradition, and history. 
+
+- (1) Indology is not a science; neither did Indologists have any clue of what “science” is.
+- (3) Indology failed to contribute to the humanities, especially if we regard the cultivation of aesthetic sensibility, broad-mindedness, openness to other cultures, humility, ethics, etc. as the goal of humanities education.
+- (4) Most Indologists are ignorant of broad movements in European intellectual history and  philosophy; they keep telling themselves they are important and European, but this posture only works in front of Indians.
+- (5) Indologists are ignorant of their own history: for all that they propagate the idea of Indology as a “historical-critical” discipline, they failed to engage in either historical self-reflection or self-critique. Ultimately, this is the real reason Indology failed as evinced by the rapid closure of departments.
+  - (2) No one at German universities recognizes Indology; despite belaboring the parallel with classical philology, Indologists are figures of ridicule to classicists.
+
+### Machine to presume authority on hinduism
+- From [SW15](http://swarajyamag.com/culture/much-ado-about-plagiarism-fox-vs-malhotra/): " It is not so much Malhotra, the scholar, who is worrisome to them as Malhotra, the strategist. Among the Hindus, he appears to be the first who has approached the Western academy as a knowledge-producing ‘industry.’ At least this is what I have gathered from his speeches and writings. Just like any company which builds and markets a product, the Western academy is in the business of generating and selling certain narratives. The knowledge of other cultures is collected as “raw data” from its native informants who subsequently do not play much of a role in its interpretation. This data is then subjected to hermeneutical processes based entirely on Western theories. The end result undergoes critical review processes and is packaged with notes, cross-references, bibliographies, the whole she-bang, to produce a ‘representation’ which is then admitted as authoritative knowledge on the particular subject both in the West and tragically in the host country as well."
+- One must ask oneself how much one's welfare coincides with theirs.
+
 
 ## Sources of the misrepresentation
 
@@ -95,7 +88,6 @@ title: Charges
 
 One can observe within and without social media how people vilify hindutva (for example by sharing such rot \[insert link\]). They will do everything they can to make 卍 look like 卐. One must ask oneself how much one's welfare coincides with theirs.
 
-  
 
 The tactics a typical western politically active indologist (eg. Sheldon Pollock) uses are- 
 
