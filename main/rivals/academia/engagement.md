@@ -24,5 +24,3 @@ title: Hindu Engagement
     - Anti-hindu score [here](https://docs.google.com/spreadsheets/d/1scW5CxCj7ylkDOSpmsWQrgSFA_C5FKqqviISk6o7ESI/pubhtml#).
 - Tracking Indologist activity via dissertation reviews - [DR](http://dissertationreviews.org/east-south-and-southeast-asia/south-asian-studies).
 
-
-## History
