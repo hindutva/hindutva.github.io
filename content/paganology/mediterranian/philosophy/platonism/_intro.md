@@ -31,13 +31,25 @@ himself, prior to all others"[and then, still from himself] "the rest of the int
 - "Furthermore, it is also the case that these outer activities will typically be productive of yet other outer activities that are ontologically more remote and derivative: Fruit serves as nourishment or poison for other individual life forms, and human speech and action constitute, over time, a person’s biography or a society’s history. "
 
 ## The ultimate cause of individuation
-- To Hen (τό ἕν), The One, First, The Good.  Hence the the first “Hypostasis”.
+- To Hen (τό ἕν), The One, First, The Good, "unity" (composed of units/ henads).  Hence the the first “Hypostasis”.
 - The one is the one set of "visheSha"s of nyAya-shAstra - albeit applied mainly to henads (~ Atmans). To Hen makes Rudra distinct from Zeus, yet is each of their individuality. This is axiomatic. 
+  - τό ἕν is not itself an individual, and a principle of existence irreducible to being qua being. (Parmenides: The one neither *is*, nor is one (141e))
   - The sage Empedocles was superficially different in that he, like a pluralist, refered to the constituent visheSha elements of this set for their individuating function.
   - "One way to reconstruct the argument is that if the thing making a thing one is itself one thing, then either there is something else making it one, or it does so itself in a different respect; either way, there would be an infinite regress." - Edward Butler.
-- People have misunderstood the One. For example, Stanford encyclopedia says: "an entity that is beyond +++(lower realms of )+++Being, transcending all physical reality, very little can actually be said, except that it is absolute Unity. However, we know empirically of its effect, the entire universe, and we must therefore suppose that the One is the carrier of, or rather identical with, a boundless sort of singular activity or energy. " They ignore Plato's Parmenides 141E: "But apparently the One neither is, nor is one, if this argument is to be trusted.". Edward Butler, a contemporary polytheist platonist, has posited a much needed correction. See his [dissertation](https://archive.org/details/neo-platonism-papers).
 
-## Henads
+### Henology
+- henology = study of The One/ To Hen. Distinct from ontology, which is the study of being.
+- "The terms “henology” and “henadology” may be used interchangeably once we grasp that inasmuch as the One Itself “neither is, nor is one” (ie it's composed of units)" - EB.
+
+#### Misunderstandings
+- "The suppression of polytheistic Platonism in late antiquity ... was the necessary precondition for the successful appropriation of Hellenic philosophy, which had been born and nurtured in a polytheistic religious environment, into Christian monotheistic thought. This appropriation involved a particularly bold transformation in the relationship between the first principle in Platonic thought, namely, Unity or “the One,” and Being. “The One” ... is, for the tradition of thought which will follow upon the silencing of Pagan Platonism, treated instead as identical to the monotheist’s God, the “supreme being.”" - [Edward Butler](https://henadology.files.wordpress.com/2018/11/butler2018_article_bhaktiandhenadology.pdf).
+- For example, Stanford encyclopedia says: "an entity that is beyond +++(lower realms of )+++Being, transcending all physical reality, very little can actually be said, except that it is absolute Unity. However, we know empirically of its effect, the entire universe, and we must therefore suppose that the One is the carrier of, or rather identical with, a boundless sort of singular activity or energy. " They ignore Plato's Parmenides 141E: "But apparently the One neither is, nor is one, if this argument is to be trusted.". Edward Butler, a contemporary polytheist platonist, has posited a much needed correction. See his [dissertation](https://archive.org/details/neo-platonism-papers).
+
+#### Non-misunderstandings
+"From Aristotle’s viewpoint, e.g., “unity” and “being” are convertible, the
+ same in nature but diverse in concept, in accord with the proper, ontological scope of his inquiry, while the wider scope of henology permits it to recognize units who are at once supra-essential and also the highest (quasi-)class of beings." - EB.
+
+### Henads
 - henad, unit; the term is taken by Iamblichus, Syrianus and Proclus from Plato’s Philebus, where it is used interchangeably with the term ‘monad’. henad is the first principle (arche/ ἀρχή) and the measure ( metron) of a realized individual; they correlate with real "beings" - including the Gods. Their individuality is primodial - To Hen - so they are axiomatic as well. 
 - Yet, they are supra-essential - beyond Being (see definition below). They populate a separate "henadic manifold". Being is constituted by the activity of the Gods. 
 - At every "ontic hypostasis" (level of Being), an order of Gods (sub-henads) manifest, constituted by the activity of those Gods at higher levels (ultimately the base supra-essential Henad).
@@ -59,7 +71,9 @@ himself, prior to all others"[and then, still from himself] "the rest of the int
 See [sallustius](../sallustius/).
 
 ## Being
-Being is constituted by the activity of Gods (who are actually super-essential henads).
+- The principle of Being answers the question "what", while the principle of Unity/ To Hen answers the question "who". 
+- "Positing “the One” prior to Being, in the chain of hypostases, is not a matter of subordinating Being to some further singular entity. Rather, it establishes prior to being a distinct *mode of existence*, establishing *unity* (individuality) as the primary and originary attribute of each thing"- [EB](https://henadology.files.wordpress.com/2018/11/butler2018_article_bhaktiandhenadology.pdf).
+- Being is constituted by the activity of Gods (who are actually super-essential henads).
 
 ## Nous - the Ideal realm
 - the outer activity and effect of the First must be nous - pure and absolute “Consciousness”.  Hence the the second “Hypostasis”.
