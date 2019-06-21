@@ -6,7 +6,7 @@ title: Problem समस्या
 - "National anthem, Cashmereyaut, suppression of dummy grad students etc are mere facades for the really elephant in the room that H themselves are afraid to see -- there can be no coexistence between Abe and the heathens & Abe will do all it takes to make us fertilizer for the soil." \[[TW16](https://twitter.com/blog_supplement/status/762346994333519873)\]
 
 ## Why natural polytheisms? Why the big deal?
-### Objection versions
+### Objections
 - "Let everyone get along by just belonging to the same religion - all roads lead to God. Why the confusion?"
 - "polytheism can continue with angels and saints under monotheism (as in folk catholicism) - so no need to resist and fuss about its preservation".
 
@@ -22,3 +22,10 @@ title: Problem समस्या
 - Having to hide and secretly preserve one's polytheistic beliefs from dormant or active monotheist enforcers is irksome for polytheists. 
 - "Our Gods are real and desire and deserve devotion without being hidden inside an oppressive faith". 
 - Further, it is in a sense "claustrophobic" and ugly for polytheist devotees.
+
+### Fat tail risk analysis
+- namby pamby polytheisms - get gobbled up by monotheist contagion. Examples:
+  - most polytheisms - especially those of senescent pagan civilizations.
+- monotheisms (eg. Islam) - make anti-science nuts, overconstrain creativity, bloody "real monotheist" squabbles, spur dark ages.
+- virile polytheisms: ~0. Examples:
+  - japanese shinto + buddhists who expelled Portuguese and stamped out Christianity
