@@ -14,11 +14,14 @@ title: +Mediterranian
     - In the second "green sahara" phase:
         - at gobero, Niger (5,200–2,500 BCE): levant/ mediterranian-like Tenerians emerge. \[[YT](https://youtu.be/nBniHxVYnm0?t=841)\]
         -  Mapping to emergence of Afro-asiatic language and cutlure emergence not clear \[[TW](https://twitter.com/agnimaan/status/894616476677689346)\].
-- Egypt
-    - Levant appearence and genetics \[[fayum portraits](https://mathildasanthropologyblog.wordpress.com/2008/03/04/fayum-portraits/),[TW](https://twitter.com/blog_supplement/status/869797224334675968)\].
-    - Egyptian language
-        - Many claim monophyly with semitic, assyrrian, chadic etc.. Some contest semitic monophyly, speaking of absence of common inherited concept hierarchy which cant be explained as loans.
-        - Later survived among copts.
+
+### Egypt
+- Levant appearence and genetics \[[fayum portraits](https://mathildasanthropologyblog.wordpress.com/2008/03/04/fayum-portraits/),[TW](https://twitter.com/blog_supplement/status/869797224334675968)\].
+- Egyptian language
+    - Many claim monophyly with semitic, assyrrian, chadic etc.. Some contest semitic monophyly, speaking of absence of common inherited concept hierarchy which cant be explained as loans.
+    - Later survived among copts.
+
+### Minoans
 - Minoans (-> Eteocretans) with Linear A script
 
 ### Greece and Rome
@@ -31,10 +34,7 @@ title: +Mediterranian
     - "The ritual also included the chanting of the Saliaria Carmina which were ancient incantations which were part of the Roman “shruti”. They were composed in an ancient form of Italic that predated Latin and their text was faithfully handed by the ritualists along with their correct oral form. By the classical Roman period few understood their meaning they were learned by rote and deployed in the ancient language even as the ancient language of the veda is deployed by the Hindu ritualists." \[[MT](https://manasataramgini.wordpress.com/2014/07/27/some-comparative-considerations-on-the-indo-european-religion-with-a-focus-on-the-roman-religion/)\]
 - Depopulation ([SP15](https://twitter.com/Rjrasva/status/627290343080390656/photo/1), [BVP15](https://groups.google.com/d/msg/bvparishat/r4wVQaLJD7o/nUwnh_faIQAJ))
     - Emperor Augustus would introduce legislation to increase the birthrates of the Roman nobility.
-- Jewish intolerance to Greko-Roman ways
-    - Forget the the horror stories of the Talmud for the moment, look up the Kitos war waged by diaspora u1's, also look up tacitus histories wherein he records jewish proselytism and fanaticism. Prior to that john hyrcanus. \[[EG](http://egregores.blogspot.ca/2009/09/constantine-brief-history-of.html)\]  
-        
-    - "For the worst rascals among other peoples,15 renouncing their ancestral religions, always kept sending tribute and contributions to Jerusalem, thereby increasing the wealth of the Jews; again, the Jews are extremely loyal toward one another, and always ready to show compassion, but toward every other people they p183feel only hate and enmity. ... Those who are converted to their ways follow the same practice, and the earliest lesson they receive is to despise the gods, to disown their country, and to regard their parents, children, and brothers as of little account.  However, they take thought to increase their numbers; for they regard it as a crime to kill any late-born child..." - Tacitus \[[T1](http://penelope.uchicago.edu/Thayer/E/Roman/Texts/Tacitus/Histories/5A*.html)\]
+- Jewish intolerance to Greko-Roman ways: See [yahUdonmAda page](../../main/rivals/abe-disease/yahUdonmAdaH.md).
 
 ## Rituals
     - Rome show clips [here](https://www.youtube.com/watch?v=myAOjN8oYoo).
