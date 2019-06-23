@@ -31,7 +31,7 @@ himself, prior to all others"[and then, still from himself] "the rest of the int
 - "Furthermore, it is also the case that these outer activities will typically be productive of yet other outer activities that are ontologically more remote and derivative: Fruit serves as nourishment or poison for other individual life forms, and human speech and action constitute, over time, a person’s biography or a society’s history. "
 
 ## The ultimate cause of individuation
-- To Hen (τό ἕν), The One, First, The Good, "unity" (composed of units/ henads).  Hence the the first “Hypostasis”.
+- To Hen (τό ἕν), The One, First, The Good, "unity" (composed of units/ henads, from To *Hen*).  Hence the the first “Hypostasis”.
 - The one is the one set of "visheSha"s of nyAya-shAstra - albeit applied mainly to henads (~ Atmans). To Hen makes Rudra distinct from Zeus, yet is each of their individuality. This is axiomatic. 
   - τό ἕν is not itself an individual, and a principle of existence irreducible to being qua being. (Parmenides: The one neither *is*, nor is one (141e))
   - The sage Empedocles was superficially different in that he, like a pluralist, refered to the constituent visheSha elements of this set for their individuating function.
@@ -49,8 +49,9 @@ himself, prior to all others"[and then, still from himself] "the rest of the int
 "From Aristotle’s viewpoint, e.g., “unity” and “being” are convertible, the
  same in nature but diverse in concept, in accord with the proper, ontological scope of his inquiry, while the wider scope of henology permits it to recognize units who are at once supra-essential and also the highest (quasi-)class of beings." - EB.
 
-### Henads
-- henad, unit; the term is taken by Iamblichus, Syrianus and Proclus from Plato’s Philebus, where it is used interchangeably with the term ‘monad’. henad is the first principle (arche/ ἀρχή) and the measure ( metron) of a realized individual; they correlate with real "beings" - including the Gods. Their individuality is primodial - To Hen - so they are axiomatic as well. 
+## Henads
+- henad, unit (ἑνάς/ henas, from τό ἕν); the term is taken by Iamblichus, Syrianus and Proclus from Plato’s Philebus, where it is used interchangeably with the term ‘monad’. henad is the first principle (arche/ ἀρχή) and the measure ( metron) of a realized individual; they correlate with real "beings" - including the Gods. Their individuality is primodial - To Hen - so they are axiomatic as well. 
+- Regarding the number of divine henads - "that such ultimate units or "henads" cannot be actually infinite in number, nor can they be fewer in number than the number of ontic hypostases as determined by ontological inquiry, and which furnish for Proclus the *classes* of Gods."
 - Yet, they are supra-essential - beyond Being (see definition below). They populate a separate "henadic manifold". Being is constituted by the activity of the Gods. 
 - At every "ontic hypostasis" (level of Being), an order of Gods (sub-henads) manifest, constituted by the activity of those Gods at higher levels (ultimately the base supra-essential Henad).
   - Proclus divides henads into transcendent or independent units and those that are irradiations of the first.
@@ -69,6 +70,10 @@ himself, prior to all others"[and then, still from himself] "the rest of the int
 
 ### Nature of Gods and myths
 See [sallustius](../sallustius/).
+
+### Humans and henads
+- "Each God, though She contains the entire universe, is ontologically speaking absolutely simple (haplos), because She has no properties from another source." - EB
+- "It is by no means certain that there is a supra-essential "core" to our individuality that would place us on the same footing as the Gods. Platonists speak of a "flower" of our total self, on the one hand, and of how we are individuated by divine action, on the other." - EB
 
 ## Being
 - The principle of Being answers the question "what", while the principle of Unity/ To Hen answers the question "who". 
@@ -101,6 +106,7 @@ See [sallustius](../sallustius/).
 
 ## Adoration of the Gods
 - Theurgy (θεουργία) describes the practice of rituals, sometimes seen as magical in nature, performed with the intention of invoking the action or evoking the presence of one or more deities, especially with the goal of achieving henosis (uniting with the divine) and perfecting oneself.
+- "no Neoplatonist, not even Plotinus, thinks that souls can permanently transcend Being. Most think the soul cannot transcend the cosmos."
 
 ## Ethics
 - "human existence is a striking representation of the cosmos as a whole, a microcosm in which all levels of being (Unity, Consciousness, Soul, Nature, Matter) are combined into one organic individual. A human being is therefore in the first instance not a social or political being, but a divine being" 
