@@ -44,7 +44,7 @@ contents:
     contents:
       - title: Rituals
         contents:
-          - url: dir://main/self-cultivation/rituals/
+          - url: dir://main/self-cultivation/ritual/
       - title: Communal support
         contents:
           - url: dir://main/self-cultivation/communal-support/
