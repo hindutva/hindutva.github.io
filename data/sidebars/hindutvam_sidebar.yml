@@ -114,6 +114,9 @@ contents:
       - title: परैः सम्बन्धः External relations
         contents:
           - url: dir://main/polity/external-affairs/
+          - title: ID
+            contents:
+              - url: dir://main/polity/external-affairs/id/
           - title: Defence
             contents:
               - url: dir://main/polity/external-affairs/defence/
