@@ -15,7 +15,7 @@ To recall the words of the lord of vRShNis -
  ज्ञात्वा शास्त्रविधानोक्तं कर्म कर्तुमिहार्हसि ॥"
 
 ## Equality fallacy
-- See "equality fallacy" section of [nAstika ID page](../nAstika/) for background.
+- See "equality fallacy" section of [nAstika ID page](../../polity/external-affairs/id/nAstika/) for background.
 - Criticism
     - Swami Aksharananda (Guyana) [here](https://www.youtube.com/watch?v=AFJKQdhXzvo).
 
