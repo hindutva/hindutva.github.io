@@ -56,6 +56,18 @@ Many scholars are known only by their magnificent work, for others, we have more
 - [kalhaNa](http://en.wikipedia.org/wiki/Kalhana), the kAshmIra-paNDita, to whom we owe the historical sentimental recollection rAja-tarangiNI.
 - [yAmunAchArya](http://en.wikipedia.org/wiki/Yamunacharya) ALvandAr, clever debator and great perceptor (who incidentally authored a lost work on the kAshmIra-(pAncharAtrika)-Agama-prAmANya).  
 
+- bhAskarAchArya 2, the great polymath mathematician.  
+  - As his disciple wrote: अष्टौ व्याकरणानि षट् च भिषजां व्याचष्ट ताः संहिताः  
+षट् तर्कान् गणितानि पंच चतुरो वेदान् अधीते स्म यः।  
+रत्नानां त्रितयं द्वयं च बुबुधे मीमांसयोर् अन्तरे  
+सद्ब्रह्मैकमगाधबोधमहिमा सोऽस्याः कविर्भास्करः॥  
+  - छङ्गदेवो भास्करपौत्रः - उद्भटबुद्धिर् भाट्टे साङ्ख्ये ऽसङ्ख्यः स्वतन्त्रधीस् तन्त्रे।  
+    वेदे ऽनवद्य-विद्यो ऽनल्पः शिल्पादिषु कलासु।  
+    स्वच्छन्दो यश् छन्दसि शास्त्रे वैशेषिको विशेषज्ञः।  
+    यः श्री-प्रभाकर-गुरुः प्रभाकरदर्शने कविः काव्ये।  
+    बहु-गुण-गणित-प्रभृति-स्कन्ध-त्रितये त्रिनेत्र-समः।  
+    विबुधाभिवन्दित-पदो  जयति श्रीभास्कराचार्यः।
+
 - [rAmAnuja+AchArya](http://en.wikipedia.org/wiki/Ramanuja), philosophical rebel, social reformer.
 - madhva+AchArya, great debator, sharp mind, supposed to be the very vAyu himself, he who had great bodily strength (and inspired its maintenance among his disciples.)
 - gangAdevI, daughter in law of the founder of vijayanagara, poetess author of madhurA-vijaya, which celebrates the recovery of dakShiNapatha from the jihAdI-s.
