@@ -5,6 +5,8 @@ title: Anti-ghazis (north)
 
 [![](http://upload.wikimedia.org/wikipedia/commons/thumb/0/08/Statue_of_Maharana_Pratap_of_Mewar%2C_commemorating_the_Battle_of_Haldighati%2C_City_Palace%2C_Udaipur.jpg/450px-Statue_of_Maharana_Pratap_of_Mewar%2C_commemorating_the_Battle_of_Haldighati%2C_City_Palace%2C_Udaipur.jpg)](http://www.youtube.com/watch?v=n_y12HGx1ps)  
 
+- chach of Aror, a brAhmaNa who took over the sindhi empire and consolidated it by marriages, arms and appointments - faced the initial arab attack.
+- dAhira-sena, son of chach, who valiantly fought Arab invaders (supported by local betrayers, including [bauddha chieftains](../../../../rivals/aananda-addiction.md)) to his death with his queen lADI bAi, an upAsaka of hingalAj devI.
 - shubhakara-simha,  a nAstIka kShatriya of IkShvAku descent, who rose to military leadership at 10 and kingship at 13, who quelled fraternal rebellion, defended suvastu/ oDDiyAna \[[MT](https://manasataramgini.wordpress.com/2006/05/01/a-brief-history-of-shubhakara-simha/)\] from the marauding muslims, (unfortunately) took premature sannyAsa, became an accomplished mantravAdin, became an AchArya to the chIna-s, used mantra-bala to remedy draught in his native mAlvA, help his ship out of a calm, defeat muslim pirates.
 - lalitAditya muktapIDa, emperor of kashmIra, defeater of arabs in sindh, dardistAn, transoxania; Who kept the Tibetan empire at bay with Tang help, patron of arts and bhavabhUti.
     - (According to Alberuni, a festival was held on the second day of Chaita (March) every year for centuries to celebrate the victory of King Mutthai over the Turks.) 
