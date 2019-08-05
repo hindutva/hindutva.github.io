@@ -1,5 +1,5 @@
 ---
-title: xatra क्षात्रम्
+title: +Polity क्षात्रम्
 ---
 
 Governence, politics, war, civil reform.
