@@ -6,19 +6,28 @@ title: Conversion
 ## How Islam attracts converts
 
 - Examples of converts are noted [here](../../../../hinduism/benefits/).
+
+### Inducement from power
+- Communal benefits and threats
+    - A brotherhood among the ummah
+    - By threats and love marriages.
+
+### Ideology
 - Philosophical simplicity
     - 1 jealous god who stands apart, 1 devil, 1 final prophet, simple afterlife and origin stories, almost no image veneration
 - Simple practice
     - 5 things to do, 5 prayers, 1 fast
     - Rigid structure for those who seek it.
-- Communal benefits and threats
-    - A brotherhood among the ummah
-    - By threats and love marriages.
 - Anti hindu rhetoric
     - Attack "weak" points
         - "superstition and idol centric ritualism"
             - "Tamil Nadu Towheed Jamaat conducts anti - superstition conferences along with shirk ozhippu"
         - jAti hierarchy
+
+### Accommodation - purification cycle
+- Bengal case: 
+  - "Initially Muslims were having a hard time converting the populace. So, they had to "indigenize" their faith. Abrahamic tales were modified into native variants. e.g., Nile became Padma, etc. Islam was syncretized with Hindu traditions to woo potential converts. It would take up until late 16th century-early 17th century for East Bengal to reach a Muslim majority under Mughal rule. Satya Pir cult (Satyanarayan), and Bengali folk religion were syncretized with Islam. A text devoted to the cult composed by the poet Sankaracharya in 1664 identifies Satya Pir as the son of one of Sultan ‘Ala al-Din Husain Shah’s daughters, and hence a Muslim. Another version, composed by Krishnahari Das begins with invocations to Allah and stories of the Prophet. Yet the same text portrays Satya Pir as born of the goddess Chandbibi and as having come into the world to redress all human ills in the Kali Yuga, the last and lowest Hindu epoch preceding a period of restored justice and harmony. "
+  - "The early 19th century would see mass "purification" movements. The Faraizi movement was founded in 1818 by Haji Shariatullah to give up un-Islamic practices and act upon their duties as Muslims. Bengalis whose identity as Muslims had not previously been expressed in exclusivist terms now began adopting Arabic surnames, a sure sign of a deepening attachment to Islamic ideals. Tariqah-i-Muhammadiya Muslim was another revivalist movement in the early nineteenth century. Its aim was to establish the code of life advocated by Prophet. Shah Sayyid Ahmad (1780-1831) of Rai Barelwi and Shah Ismail (1782-1831) were the pioneers of the movement. Both of them emphasised the interpretation of the Quran and the Sunnah of the Prophet. Under the influence of the teachings of another Muslim reformist, Karamat ‘Ali (d. 1874), boatmen of Noakhali District who had hitherto been addressing their prayers to the saint Badar and to Panch Pir (the “five pīrs”), were soon addressing their prayers to Allah alone. In essence, the same syncretism that brought in converts was now being rooted out and replaced with Wahhabi conservatism."
 
 ## Forced conversions.
 
@@ -53,7 +62,9 @@ title: Conversion
 ## Vectors
 - Muhammad
 - Salaf - Sahabah / companions of muhammad, folks who knew them - Tabi‘un, folks who know Tabi‘un -  Tabi‘ al-Tabi‘in.
-- Wali-s / mystics
 - Imams
 - kalif-s
+
+- Wali-s / mystics
+- Leaders of purification movements.
 - ghazi-s and mujAhid-s
