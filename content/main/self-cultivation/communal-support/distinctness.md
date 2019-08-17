@@ -1,11 +1,6 @@
 ---
 title: Being different
 ---
-  
-
-  
-  
-  
 
 ## Introduction:
 
