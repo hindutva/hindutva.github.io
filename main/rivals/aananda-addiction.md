@@ -2,7 +2,7 @@
 title: Ananda-addictions
 ---
 
-See [here](../../tattvam/purushaartha/) for an introduction to Ananda addiction and their great subversion of the dharma-puruShArtha.  
+See [here](../../tattvam/puruShArtha/) for an introduction to Ananda addiction and their great subversion of the dharma-puruShArtha.  
 
 ## Schools
 ### Non veda-rejecting systems

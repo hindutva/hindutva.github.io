@@ -15,15 +15,7 @@ title: Privilege contrast
     - gautamadharmasūtra 10.65
 
 ## Major prohibitions of dvija-s
-- Crossing the seas and visiting/ inhabiting kalinga vanga etc..
-
-### Crossing seas
-- kANe [v3](https://archive.org/stream/HistoryOfDharmasastraancientAndMediaevalReligiousAndCivilLawV.3/Kane_A-History-of-Dharmasastra-v3_1946#page/n979/mode/2up) and in AryAvarta topic [v2p13](https://archive.org/stream/HistoryOfDharmasastraancientAndMediaevalReligiousAndCivilLawV.2.1/Kane_A-History-of-Dharmasastra-v2-1_1941#page/n69/mode/2up).
-- Also see ["India entry" page](../ethnic-shifts/Arya-consolidation//) for context regarding the fluid definition of AryAvarta.
-- "There is a rule about ocean cross at least starting from an interpolated passage in bodhayana and you see the sentiment in later smritis. But it is not universal hindu practice."
-- "Various brahmanas historically have done it and helped established hindu kingdoms in south east. They've composed mantra manuals of which few fragments survive - eg. khADgArNava fragments from Indonesia."
-- "अस्माकमुदधिपारगतत्वमाकाशमार्गचारिणा वायुयानेनाऽभवन्न तु जलकपोतयानेन समुद्रसंयानेन वा  (कृष्णयजुर्वेदीयतैत्तिरीयशाखाया: बौधायनधर्मसूत्रेषु २.१.२.२. – “समुद्रसंयानम्” – अत्र विवरणव्याख्यानकर्तुः श्रीगोविन्दस्वामिनोऽभिप्राय: समुद्रयानेन/जलपोतयानेन द्वीपावान्तरयात्रायां पर्यवस्यति न त्वाकाशमार्गेण वायुयानेन) ।" इति केचित्।
-- Plausible tales: "Pallavamalla narasimhavarmans pancaraatrin guru came from cambodia/malaysia by sea. The guru is depicted on walls of vaikuntha perumal temple. "
+- Crossing the seas and visiting/ inhabiting kalinga vanga etc.. - See [seas](../seas/) page.
 
 ## Untouchability
 
