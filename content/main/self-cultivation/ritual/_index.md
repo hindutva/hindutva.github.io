@@ -21,25 +21,6 @@ Even though, fundamentally, there is no sacred vs profane distinction in the hin
 #### Participation by abstinence
 - "When you participate in a religion, you do so, not only by doing what you are obligated to do, or doing something optional but allowed for you, but also by not doing what is prohibited. ..." {[GA18](https://aryanthought.wordpress.com/2018/07/22/a-short-discussion-on-pertinent-issues-presented-by-the-sabarimala-matter/)}
 
-## Structure vs feeling tension
-
-- The veda-s emphasize both proper and meticulous performance; and feeling (There is the story {[TS 2.6.10](https://archive.org/stream/Anandashram_Samskrita_Granthavali_Anandashram_Sanskrit_Series/ASS_042_Krishna_Yajurvediya_Taittiriya_Samhita_Part_5_-_Kasinath_Sastri_Agase_1946#page/n93/mode/1up)} of shaMyu who to whom fruits of yajJNA are to be diverted, if it is performed without devotional feeling or without respect for prescribed structure).
-- "Of course, if we say "just pray from heart", it becomes too open and possibly chaotic. Rules are there to enforce discipline and provide some structure. But, if there are too many rules, the same thing that is intended to provide structure to the ritual can become constricting and suffocating. The suffocation may eliminate all feeling from the ritual. Based on one's desa-kala-patra, one has to find the right balance between rules (Pingala, solar channel) and emotion (Ida, lunar channel). One should follow some rules that provide a structure without suffocating one and allow one to add emotion to the ritual. Then one can make a connection." [NR_FB15](https://www.facebook.com/pvr108/posts/10153156010758284).
-
-
-### Examples of "feeling" trumping:
-#### In the veda-s 
-\[[TW17](https://twitter.com/GhorAngirasa/status/853343223342878721)\].
-
-- "kavaSa ailUSa who was expelled by the RSis from a sattra on account of his maternal heritage (she was a dAsa woman; I suspect druhyu heritage). Expelled to the desert & suffering from thirst he sees the aponaptrīya sūkta and in the desert, the waters of the sarasvatI run to him."
-- "The innocent, naive devotee whose silly actions still please the deity: kaNNappa nAyanmAr's spitting water on rudra as ablution to a creative mind, can be said to be prefigured in the story of apālā who chews the soma plant with her teeth to press out the juice for Indra."
-- "The trope of the devotee who risks everything for his cherished deva: could be said to be prefigured in the story of Rjrashva who, seeing a she-wolf (and recognizing it as the divine animal it was; I.e. Sent by the ashvinau), offered a hundred sheep to satiate it and was blinded by his father as a consequence! However, the ashvinau, pleased with him, gave back his eyes."
-
-#### In the itihAsa-s and purANa-s
-- shabari giving rAma berries she tasted for sweetness.
-- Hunter kaNNappa spitting water on rudra as ablution.
-
-  
 ## Language
 
 Ritual (mantra-s and hymns therein) can involve specialized language. The use and preservation of sanskrit for ritual purposes was an important ancestral IE trait - seen in Lithuanians, Romans and Indo-Aryans (ref. patanjalI).
@@ -52,4 +33,4 @@ A western pagan reconstructionist's view ([KR16](https://krasskova.wordpress.com
 
 ### Eligibility limitations
 
-- The [right to exclusivity](../communal-support/exclusivity/) (based on gender, stage of life, varNa, position etc..) naturall applies.
+- The [right to exclusivity](../communal-support/exclusivity/) (based on gender, stage of life, varNa, position etc..) naturally applies.
