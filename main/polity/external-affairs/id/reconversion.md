@@ -8,7 +8,7 @@ title: Reconversion
 ## Risks from converts
 While Hindus get all excited (and rightly so) about foreigners taking to their religion; one must note that foreign converts to Hinduism bring with them significant risks - so, caution is appropriate:
 
-- Malhotran U-turn: The convert learns some Hindu tattva or technique, faces some social pressure to return to original bearings, repackages the H tattva or technique in Christian/ Jewish terms. Example: Some US girls who learned to chant rudram but later returned to Christianity.
+- Malhotran U-turn: The convert learns some Hindu tattva or technique, faces some social pressure to return to original bearings, repackages the H tattva or technique in Christian/ Jewish terms.
 - The foreign convert comes with his/ her own cultural baggage which might even include "vishvaguru" attitude (eg. western liberals). They may then try to foist these attitudes on native Hindu sacred spaces and populations (eg. opposition to temple elephant tradition, shabarimala restrictions etc..). In doing so, they may well selectively (mis)use their acquired knowledge and status as apparently sincere practitioners. 
 - Treachery and activism against the interests of the native population: Prominent examples involve western converts to shinto ("my green shinto rejects jingoist state shinto") or hinduism (yogis against hindutva).
 
