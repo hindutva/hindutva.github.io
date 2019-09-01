@@ -92,10 +92,10 @@ contents:
           - url: dir://main/rivals/iyi/
       - title: Academic subversion
         contents:
-          - title: Charges
-            url: /main/rivals/academia/charges.md
-          - title: Negationism
-            url: /main/rivals/academia/negationism.md
+          - url: dir://main/rivals/academia/
+          - title: Misrepresentation
+            contents:
+              - url: dir://main/rivals/academia/misrepresentation/
       - title: Dirty rags
         contents:
           - url: dir://main/rivals/rags/
