@@ -21,11 +21,15 @@ unicode_script: devanagari
     - \[[TW1](https://twitter.com/Rjrasva/status/471298678993731584)\]
 
 ### Crushing and costly defeat
-- "Dungan revolt: 8-12 mill dead, lasted 15 yrs,sullas prob around 10% of Qing : 32-48 mill or more dead(our pop 4X Qing & sulla % higher)" \[TW\] 
+- "Dungan revolt: 8-12 mill dead, lasted 15 yrs,sullas prob around 10% of Qing : 32-48 mill or more dead(Indian pop 4X Qing & sulla % higher)" \[TW\] 
+- Zuo reported 60K of 700K Shaanxi Mohammedans left. Islam in Shaanxi was completely destroyed as a result of the policy of “demolishing Hui” in the late Qing Dynasty. ([TW](https://twitter.com/Rjrasva/status/972870662023860224))
 - "(80% of sullas in empire died when curbing Dungan, Panthay etc)." \[TW\]
 - Qing punishment for sons & grandsons of Yaqub Beg: castration \[[TW](https://twitter.com/Rjrasva/status/710988882742005760)\].
 - Economic and social restrictions
-    - \[[TW](https://twitter.com/Rjrasva/status/471303134216998912)\]
+  - \[[TW](https://twitter.com/Rjrasva/status/471303134216998912)\]
+  - "All our villages, farms, houses and graveyards were now owned by those from other religions. More than eight hundred mosques were destroyed by fire." - [TW](https://twitter.com/Rjrasva/status/972871308919808001/photo/1)
+  - "Their mosques were either damaged or destroyed by fire, or converted to family shrines and temples of the Han people."
+
 
 ### Further jihAd-s
 - "They didn't stop @ Dungan either, there was Dungan 2 in 1894-96, TIRET in 1930's (syrian ghazi Tawfiq Bay), Ili in 40's."
