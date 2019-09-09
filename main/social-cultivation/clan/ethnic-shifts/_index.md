@@ -25,7 +25,7 @@ See separate page.
 
 
 ## Dravidian bloom
-See [dravidian-bloom page](../dravidian-bloom/).
+See [dravidian-bloom page](dravidian-bloom/).
 
 ## Islamic invasions
 These seem to have left comparatively little genetic footprints even among muslims. Partly because they are genetically very similar to the earlier Aryan influx - albeit more admixed with Turkik markers.
