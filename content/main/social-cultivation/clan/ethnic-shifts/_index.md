@@ -12,7 +12,7 @@ title: +0 Settlement summary
 - IVC (see below) + IHG gave rise to pre-Aryan Indians (confusingly called ancestral south Indians  / ASI by Reich etal).
 
 ## Iranian farmer influx
-see [iranian-farmer-invasion page](../iranian-farmer-invasion/)
+see [iranian-farmer-invasion page](iranian-farmer-invasion/)
 
 ## Aryan migration/ invasion
 See separate pages on:
