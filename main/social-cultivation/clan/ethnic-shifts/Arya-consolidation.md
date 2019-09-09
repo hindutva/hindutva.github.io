@@ -58,7 +58,7 @@ The **vaidika ideals** (../deva-s, xAtra, dharma, brahman, yajna ... mentioned i
 - This facilitated the gradual Aryanization (= vedicization) of the host populations - even in the languages.
 - This was accompanied by brAhmaNa-s additionally learning (and even mastering) the local languages and practices - to the extant of becoming active in their preservation and flowering. Eg. brAhmaNa participation in early tamiL, kannaDa and telugu literature.  
 
-#### Examples:
+#### Examples and analogies:
 - Andhra
     - "Cynthia Talbot mined epigraphic records and labeled Vengi as the “core area” of Andhra in this period.5 Here again land grants to Brahmans were frequent and inscriptions indicate migrations from the north to Andhra. One copper plate records the donation of a village in Guntur District, west of the Krishna River, to one thousand Brahmans from the village of Ahicchatra on the Ganges." \["vedic voices" book\]
     - "Cynthia Talbot notes a special tradition in medieval Andhra, sapta-santana, “seven offerings,” by which donors could perpetuate their names.40 In addition to having a son, other legacies include provision of a deity image to a temple, constructing a tank for water supply, and donating an agrahara."   \["vedic voices" book\]
