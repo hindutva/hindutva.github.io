@@ -38,3 +38,13 @@ These seem to have left comparatively little genetic footprints even among musli
 - Then came the Austraasiatic influx dated to be approximately around 3000 YBP with a lower bound of 3800 YBP. The Indian movement was clearly male-biased raising the strong possibility that it was an invasion with a military dimension of armed nomadic groups.
 - Then we have the Dravidian bloom. Harappans spoke a now lost/ subsumed language. In their southern borderlands were DR speakers who admixed with them and acquired some of the Harappan cultural elements. IA met, and culturally influenced Dravidian language speakers, leading to acquisition of beneficial meme-plexes. They, as a consequence, expanded in to peninsular India, mixing and linguistically dominating the proto-Indian tribes. This is indicated by estimated time of L1 haplotype’s blooming after the blooming of the R1a haplotype.
 - Finally, during the Islamic invasions, we get some Turkik input.
+
+Now, the Arya-s merit special attention:
+
+- Indo-Aryans initially resided in the area around/ beyond the Black Sea, and were familiar with cold and long dawns (as evidenced by some parts of the Vedic texts - long ashvina-shastra to be recited at dawn).
+- They radiated out widely, merged with and dominated prior occupants in vast tracts of Eurasia (just as they did in India, Iran etc..). Half of Western European men descended from one Bronze Age ‘king’.
+- In India, they similarly merged with a faction of IVC people. Steppe ancestry seen in BMAC first ~2100 BCE.
+- Early Arya society consisted of common people (the vish), kShatriya-s and brAhmaNa-s - the lattter formed the elite, and were relatively fluid in early times. The vish might have traded with core IVC people long before the invasions.
+- The core portions of RV or even YV far predate their invasion of India. Just equinotical position indicated by the naxatra-sUkta puts it at around 2200BC, not to mention Thuban, other relatively oblique astronomical references.
+- They came in multiple waves. The late RV sarayu and gomati were to the west. They were later moved east perhaps indeed with the movement of ikShavAkus.
+- Along with that came great tumult and civil war (eg: mahAbhArata). In the end, kuru-pAnchAla realm was where major brAhmaNa vedic consolidation happened. Gradually, this culture and its carriers (mainly in the form of brAhmaNa-s) spread elsewhere in India and beyond. The hymns were recast, reorganized and their preservation was there shored up.
