@@ -66,6 +66,6 @@ Late Rg vedic hymns and the other veda-s show distinct varNa-s.
 
 ## Contrast with other invasions
 - Many later invasions (Greeks, Huns, Shakas, Turks) were relatively much smaller in comparison to this IA invasion.
-- Islamic invasion of a pagan population (and one with a well established conservative social structure) is hardly comparable to the invasion of one pagan population over another (especially one with presumably lesser organizational/ conservative strengths).
+- Islamic invasion of a pagan population (and one with a well established conservative social structure) is hardly comparable to the invasion of one pagan population over another (especially one with presumably lesser organizational/ conservative strengths). Further, one pagan population quite willingly accepts the cults and mores of another (eg: popularity of Isis cults in Europe).
 - Unlike the European Christian invasion of North America and Australia, Arya invasion was not genocidal in nature -rather accommodative. 
 - Regarding later spread to South East Asia and NE India: Filipino to Tamil, there are a lot (going well beyond half the vocabulary) of sanskrit/ IA loan words and ideas. If you had an influx of scale similar to that of IA invasion of North India or Sinhala invasion of Lanka - you would see more drastic replacement after a millenium of settlement. As significant as Hindu migrations were to these other regions, they were not of similar scale.
