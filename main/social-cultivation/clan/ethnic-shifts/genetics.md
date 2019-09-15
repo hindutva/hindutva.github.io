@@ -32,7 +32,7 @@ The above is from \[[Nature16](http://www.nature.com/nature/journal/v541/n7637/f
     - "The fascinating Lambadi tribe of Southern India is a nomadic tribe moving around with horses and cattle. I had witnessed a few bands of these nomads as a youth and was struck by their oral tradition. 40% of the Lambadi males bear the M74 mutation that marks them of Northern Asian affinities." \[[M0512](https://manasataramgini.wordpress.com/2005/12/25/chenchus-lambadis-and-the-l1-haplogroup/)\]
     - "The Chenchus are a most remarkable tribe in Andhra. They are completely adapted to the forest and live entirely as hunter-gatherers. They have extraordinary stamina and eat only 1 time a day. They have special position amongst the tribes of India: the caste Hindus consider them completely pure for accepting food. They are also considered eaters and makers of bhojya and bhakShya food, so a brahmin can eat from a Chenchu. Chenchus have special privileges to perform rites in the Shrisailam, Ahobilam and Bhramaramba temples and enter the garbha gR^iha normally reserved for brahmins only. They have their own priests who invoke the standard Hindu deities of whom they have good mythological knowledge with elaborate unique rituals. Interestingly, they are the only tribal population with a particular ratio of H1, R1a1 and L1 haplogroups resembling several middle caste populations of India. It is possible that they represent an ancient varNa population that degenerated to the tribal condition. Alternatively their special symbiotic association with the caste populations may have resulted in gene flow into them."\[[M0512](https://manasataramgini.wordpress.com/2005/12/25/chenchus-lambadis-and-the-l1-haplogroup/)\]
     - Also see R1 clade background information below.
-    - Possible absorption and expansion of R2 - "kulin type bengali v1 group chatterjees are kashyapa of r2 haplogroups which originates in india. now its not a coincidence that kashyapa started the unique soma ritual which is a pillar of vedism along with fire sacrifice".
+    - Possible absorption and expansion of R2 - "kulin type bengali v1 group chatterjees are kashyapa of r2 haplogroups which originates in india.".
 - L1
     - "L1 marker is predominant in Tamils and to some extant in Marathas, with the most prevalent presence in Tamil middle castes like Vellalars, Vanniyars, Ambalavasis and the like. It is low or absent in most of the Dravidian tribal groups outside Tamil Nad, though it is present in Brahmins in the Tamil region. It is also peculiarly found in Balochistan and Makran but low in the Brahui speakers. " \[[MT5](https://manasataramgini.wordpress.com/2005/12/20/socio-genetic-stratification-of-india/)\]
         - "Kallars, a middle level warrior Tamil caste, has up to 50% L1 markers. L1 haplogroup is also found in the Yadava caste, a group of cowherds from from the Andhra country (the clan of the famous cowherd hero kATaM rAju) show about 19%, Kammas of Andhra 17%, so also the Sinhalese show about 17% of it. " \[[M0512](https://manasataramgini.wordpress.com/2005/12/25/chenchus-lambadis-and-the-l1-haplogroup/)\]
@@ -68,15 +68,3 @@ The above is from \[[Nature16](http://www.nature.com/nature/journal/v541/n7637/f
 
 - "The great father in Africa belonged to the the E1b-M180 clade. His descendants in thre1e great spurts from around 5300-4800 YBP expanded among the speakers of Niger-Congo languages and spread across the vast African continent. .. It is likely that the E1b-M180 lineage arose there and then penetrated deep into sub-Saharan Africa as the Niger-Congo languages diversified. Its initial expansions could have been triggered by the events of the emergence of civilization in the Egyptian cultural zone, with its bearers subsequently acquiring high status in the sub-Saharan milieu east and west. " \[[M16](https://manasataramgini.wordpress.com/2016/05/08/the-giants-among-the-lilliputs/)\]
 
-## Correlation with language
-
-These were all accompanied by fairly massive invasions and gene movement.
-
-- Take dominance of Turkish in Turkey, 
-- of Spanish in South and middle America, 
-- of English in North America, Australia and Africa, 
-- of Arabic in Egypt and North Africa, 
-- of Chinese in Tibet and the Uighur land, 
-- Japanese in Hokkaido, 
-- Russian in Eastern Siberia.
-- Indic influence in South East Asia was accompanied by great population movement and domination (~5% of Cambodian ancestry seems to be Indian)
