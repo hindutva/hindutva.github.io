@@ -49,14 +49,14 @@ The **vaidika ideals** (../deva-s, xAtra, dharma, brahman, yajna ... mentioned i
 ### Attractiveness of the brAhmaNa-s  
 - The brAhmaNa ability to hold and spread the attractive vedic ideals, and their tendency towards sophistication in the shAstra-s was very impressive. They were not initially limited by Ananda-addictions and (sea-faring type) taboos.
 - Their sagely lifestyle had a charm to it. A brAhmaNa was ideally not to seek wealth - even via due fees for his yAjana \[aitareya brAhmaNa - [TW17](https://twitter.com/GhorAngirasa/status/926064678245150720)\].  
-
+ 
 - Further, the brAhmaNa-s were mostly not a threat to the ruling elite (kShatriya or otherwise).
 
 ### Penetration and Aryanization
 - The Aryan elite always included brAhmaNa-s. So, they initially spread with the Arya invasion.  
 - Elsewhere they freely migrated (often upon invitation), bringing with them the attractive vaidika ideals and practices.
 - This facilitated the gradual Aryanization (= vedicization) of the host populations - even in the languages.
-- This was accompanied by brAhmaNa-s additionally learning (and even mastering) the local languages and practices - to the extant of becoming active in their preservation and flowering. Eg. brAhmaNa participation in early tamiL, kannaDa and telugu literature.  
+- This was accompanied by brAhmaNa-s additionally learning (and even mastering) the local  languages and practices - to the extant of becoming active in their preservation and flowering. Eg. brAhmaNa participation in early tamiL, kannaDa and telugu literature.  
 
 #### Examples and analogies:
 - Andhra
