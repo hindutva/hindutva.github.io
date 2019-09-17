@@ -20,12 +20,10 @@ title: Problems
 - "The low-end might also work against the advances of the highend & can easily be exploited as cannon fodder by the enemies."
 
 ### Regionalist identities
-- On muslim demographics: Relatively higher muslim population growth rate is a threat to our hindu ethos.  
-- Excess diversity in the wrong areas i.e. areas where diversity contributes to loss rather than gain in robustness. \[[MT](https://manasataramgini.wordpress.com/2017/05/16/some-biological-analogies-for-certain-sociopolitical-issues/)\]
-    - Eg. Scripts, regionalism.
-- Regional rivalries can often be exploited by enemies of Hindus. Claiming to address genuine or imagined grievances, they can weaken the Hindu state. Example: "Dravidian" faultine and the Anglospheric interventions.
+- More in the [regionalist-ids](../../../rivals/regionalist-ids/) page.
 - Some prominent rivalries
     - tamiL nADu vs karNAtaka regarding the kAverI \[[2016 analysis](https://twitter.com/ainvvy/status/775687445719298048) \- stupid supreme court decision\]
+
 
 ### Racinomisia (= hatred of one's cultural roots)
 
