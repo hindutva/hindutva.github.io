@@ -14,15 +14,9 @@ title: Criticism and counters
 - Newly encountered tribes were harmoniously brought into the system, while preserving their internal practices and autonomy (not made victims of a vicious genocide).
 - There is more than enough points there to argue that, in terms of gross happiness, overall accomplishment and sheer survival, our "caste system" was in no way inferior or wholly immoral.
 
-  
-
 Furthermore, when circumstances changed and the age turned, we happily changed due to our internal motivation (just as in Japan) - "High" caste people were at the very forefront of this remodeling. Now, they've gradually mechanized the unclean occupations, ridding us of untouchability as well. With mass education and printing, education and literate occupations are more widespread. I now do a shUdra's job for a living ( as a computer programmer).
 
-  
-
 The fundamental problem here is that you don't seem to have the concept of a harmonious divine order (called Rta), which motivates a sort of refined behavior (called dharma), which seeks to extract order and harmony out of chaos. As time changes, the dharma changes. I am not whitewashing anything here, but am questioning your presumption that the caste system was something disgusting on the whole.
-
-  
 
 Also see the parable of varNavatI [here](../theory/varnavatii/).
 
