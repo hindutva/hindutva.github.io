@@ -12,13 +12,19 @@ title: Pros
 - A brAhmaNa varNa fully dedicated to conserving Arya ideals is a great advantage to the memeplex- see vaidika-brAhmaNa-glue part of [this](../../ethnic-shifts/Arya-consolidation//).
 
 ## Formalization of a natural phenomenon
+
 Amalgamation of tribes glued together by the Arya brAhmaNa-s.
-- Hindu society was an amalgam of many tribes. The varNa system (centered around the ritualist conservative core described [here](../../ethnic-shifts/Arya-consolidation//)) tried to harmonize them. When new jAti-s were encountered, they could be gracefully integrated into the broader society, while preserving their internal autonomy.
+
+- Hindu society was an amalgam of many tribes. The varNa system (centered around the ritualist conservative core described [here](../../ethnic-shifts/Arya-consolidation/)) tried to harmonize them. When new jAti-s were encountered, they could be gracefully integrated into the broader society, while preserving their internal autonomy.
 - That this varNa system was an ancient emergent phenomenon - not artificially created - was the opinion of the ancients.
     - This is the import of the puruSha-sUkta, where its emergence from the primeval puruSha is placed in  the verse that describes the emergence of sun and the moon.
     - manu says in the manu-smRti that this division emerged from brahma himself.
-- Division of labor has been observed in nature - most famously in case of insects such as wasps, ants, bees etc.., whose colonies have led to group selection. Among the non-human great apes, power hierarchies have been observed. (To check: To what extant are these hereditary.) So, it is plausible that specialization since childhood, and limitations on social mobility may have provided a competitive edge to early human societies.
-- Hindu-s happened to document and adapt this limitation on social mobility to preserve excellence in socially valuable trades.
+- Division of labor has been observed in nature - most famously in case of insects such as wasps, ants, bees etc.., whose colonies have led to group selection. So, it is plausible that specialization since childhood, and subsequent limitations on social mobility may have provided a competitive edge to early human societies.
+
+### Inheritability of social status
+See "Persistent elite dominance" secion in the [practice-comparison](../practice/comparison/) page.
+
+Not to deny exceptions (eg: Narendra Modi), of course, but as a general rule. 
 
 ## Plausibility of competitive edge
 - "It is indeed true that having the whole population fighting provides numerical advantage. It appears in chimps there is no particular soldier caste.  ... Now certain ‘Kriegstaat’-societies indeed take that route. For example, the Mongols were one such. ...  Now a society which has alternative structure when under stress will transform into this Kriegstaat pattern. We saw that with Mahārāṇa Pratāpa. We saw it on even larger scales with the Marāthā-s. ... But in the long run it is a more diversified economy that allows the effective conduct of war. Thus, it means other castes performing their specialized roles and channeling the fruits of the diversified economy to the war machine, which itself is primarily performed a dedicated caste. At a basic level this might mean farmers who can produce food, a essential to field large armies but it can involve various other specialized sub-groups. When the Marāthā-s transformed into a Kriegstaat, that seems to have drawn people away from these specialized guilds. That is where the English won. They could still maintain a large body of seemingly ‘useless’ knowledge-producers, like a Darwin and a Maxwell, for each of whom there were lesser tinkerers who could ultimately supply key technological innovations to the system that kept edge on the English war-machine. The success of this type of specialization in nature is simply evident in the world conquest of the ants, bees and termites." \[[MT17](https://manasataramgini.wordpress.com/2017/12/06/of-lives-of-men-of-times-of-men-iii/)\]
