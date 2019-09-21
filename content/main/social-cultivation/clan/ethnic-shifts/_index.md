@@ -20,7 +20,7 @@ See separate pages on:
 - [Arya consolidation](Arya-consolidation/)
 - [OIT Story](oit-story/)
 
-## Austro-Asiatic invasion
+## Austro-Asiatic incursion
 See separate page.
 
 
