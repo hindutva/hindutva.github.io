@@ -80,6 +80,9 @@ contents:
           - title: On Islam मरून्मादः
             contents:
               - url: dir://main/rivals/abe-disease/islam/
+          - title: Corpse cult प्रेतोन्मादः
+            contents:
+              - url: dir://main/rivals/abe-disease/zombie-cult/
           - url: dir://main/rivals/abe-disease/
       - title: 0-theism
         contents:
