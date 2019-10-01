@@ -26,6 +26,7 @@ The language and script of these people remains a mystery.
 
 ### Features
 - "karpAsa was indeed the Harappan word for cotton&shamali wood was also from that language. Also kInAsha: farmer, kulAla: potter, kaivarta: fisherman etc." \[[MT](https://twitter.com/blog_supplement/status/990301565436284935)\]
+- "we can reconstruct several other words and say it was probably ergativizing like modern Hindi/Marathi".
 
 ### Theories
 - Elamite of neighboring SW Iran is a strong candidate for a relative.
