@@ -71,3 +71,6 @@ It is natural for NYT, Newyorker, BBC etc.. to write from the perspective of USA
 - [https://www.pgurus.com/](https://www.pgurus.com/) for occasional exposes and opinions.
 - [Organizer - the RSS mag](https://www.organiser.org/index.html)
 - [http://indiafacts.org/](http://indiafacts.org/) for opinion pieces.
+
+### Video channels
+- YT: [Upword](https://www.youtube.com/channel/UChYyq0Rp017VYEQzrxOuSmQ), Rajiv Malhotra. 
