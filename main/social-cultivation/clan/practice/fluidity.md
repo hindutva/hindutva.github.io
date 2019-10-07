@@ -21,6 +21,9 @@ Hindu legal/ behavioral/ social system is not at all static. \[See [here](../..
 - "For example, the Koliyans, who are weavers, and the Valluvans, who are medicine men and priests and wear the sacred thread, will not intermarry or eat with the others, and are now practically distinct castes." \[[CT06](http://archive.org/stream/castestribesofso06thuruoft/castestribesofso06thuruoft_djvu.txt)\]
 - "As early as 1705 A.D. the Brahmans of Madura called in question the Patnulkarans' right to perform the annual upakarma (or renewal of the sacred thread) in the Brahman fashion. \[Eighteen members of the community were arrested by the Governor of Madura for performing this ceremony.\] The matter was taken to the notice of the Queen Mangammal, and she directed her State pandits to convene meetings of learned men, and to examine into it. On their advice, she issued a cadjan (palm leaf) sasanam (grant) which permitted them to follow the Brahmanical rites."
 
+## Descent from V1
+Kadambas descendended to V2 (mayUrasharman -> mayUravarman), and thence to V4 in later days ("kadam" in MH).
+
 ## Ascent to vaishya-hood  
 
 - Arya-vaishya [inclusion](http://en.wikipedia.org/wiki/Arya_Vaishya#Inclusion_into_the_Vaishya_Varna) into the vaishya varNa.
