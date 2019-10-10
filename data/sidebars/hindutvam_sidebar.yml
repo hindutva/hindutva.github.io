@@ -105,15 +105,10 @@ contents:
       - url: dir://main/rivals/
   - title: Polity राजनीतिः
     contents:
-      - title: Desiderata काङ्क्षा
-        url: /main/polity/desiderata.md
+      - url: dir://main/polity/
       - title: Post-brit rAj
         contents:
           - url: dir://main/polity/sick-india/
-      - title: Geopolitics
-        url: /main/polity/geopolitics.md
-      - title: Hindus Abroad
-        url: /main/polity/hindu-abroad.md
       - title: परैः सम्बन्धः External relations
         contents:
           - url: dir://main/polity/external-affairs/
