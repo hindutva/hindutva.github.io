@@ -65,7 +65,10 @@ The **vaidika ideals** (../deva-s, xAtra, dharma, brahman, yajna ... mentioned i
     - "Sriramapuram agrahara, established in 1940 in land grants to respected Veda pandits by a wealthy merchant, Dokka Rama, originally contained a single straight dirt lane of fourteen houses and a panca-ayatana (five-deity) temple housing Isvara, Radha-krsna, Surya, Ambika, and Vighnesvara (Ganesa)" \["vedic voices" book\]
 - Cambodia \[kauNDinya dynasty [Q](https://www.quora.com/What-is-the-link-between-the-Khmer-Empire-and-ancient-India), brAhmaNa priests' ceremonies [C05](https://www.cambodiadaily.com/archives/priests-uphold-a-unique-and-royal-tradition-50637/)\]
 - Bali.
-- Manipur: "Brahmin immigration to Manipur in late 17th century: 1. Guruaribam: Puri 2. Laimayum: Tripura 3. Laipubam: Odisha 4. Hangoibam: Mathura 5. Hazarimayum: WB 6. Manoharmayum: WB 7. Mathurabasimayum: Mathura 8. Laimayumanoubam: Tripura 9. Choudhurimayum: Utkal" Source: RK Jhaljit.
+- Manipur: 
+  - "Origins of Manipuri Brahmin (called Bamon in Manipuri): Adhikarimayum : WB, Sijagurumayum: Gujarat, Leihaothabam: Kanpur, Takhenchangbam: Sylhet (now in Bangladesh), Purailatpam: UP. They came during Kyamba's reign (2nd half of 15th century)" Source: RK Jhaljit, 1992
+  - "Brahmin immigration to Manipur in late 17th century: 1. Guruaribam: Puri 2. Laimayum: Tripura 3. Laipubam: Odisha 4. Hangoibam: Mathura 5. Hazarimayum: WB 6. Manoharmayum: WB 7. Mathurabasimayum: Mathura 8. Laimayumanoubam: Tripura 9. Choudhurimayum: Utkal " Source: RK Jhaljit.
+  - "... Another wave of Brahmins a. Aribam b. Samurailatpam c. Sanglakpam d. Hidangmayum e. Kongbrailatpam f. Thongratabam came during the 17th century in Khagemba’s time. ... Another wave of Brahmin came to Manipuri during Paikhomba’s reign in 2nd half of 17th century from Shrimayum: Gujarat, Bachaspatimayum: Banaras, Gurumayum Angom Lailatpam: Vrindavan, Brahmacharimayum: Prayag."
 
 ### Continual harmonization
 - This penetration was likely accompanied by acknowledgement of kShatriya status of local lords. Late examples include: shivAjI, the hiraNyagarbha ritual for nair rulers.
