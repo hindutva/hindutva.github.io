@@ -109,6 +109,9 @@ contents:
       - title: Post-brit rAj
         contents:
           - url: dir://main/polity/sick-india/
+      - title: Non-India
+        contents:
+          - url: dir://main/polity/non-india/
       - title: परैः सम्बन्धः External relations
         contents:
           - url: dir://main/polity/external-affairs/
