@@ -1,3 +1,3 @@
 ---
-title: Polity
+title: +Polity
 ---
