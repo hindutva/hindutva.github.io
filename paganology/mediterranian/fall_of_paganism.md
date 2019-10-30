@@ -2,6 +2,9 @@
 title: Fall of paganism
 ---
 
+## Jewish intolerance
+- Jewish intolerance to Greko-Roman ways: See [yahUdonmAda page](../../main/rivals/abe-disease/yahUdonmAdaH.md).
+
 ## Muted intolerance
 - Inculcation of "asebeia" ("not believing in the gods of the state") as an offense was introduced in ancient Greece and used as an easy way to prosecute philosophers.
 - Socrates was killed on such a charge (though devout, there were political problems with him as a gadfly irritating the Athenian horse, though ).
