@@ -17,6 +17,9 @@ contents:
   - title: Persia
     contents:
       - url: dir://paganology/persia/
+      - title: Religion
+        contents:
+          - url: dir://paganology/persia/religion/
   - title: Mediterranian
     contents:
       - url: dir://paganology/mediterranian/
