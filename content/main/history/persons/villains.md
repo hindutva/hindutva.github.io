@@ -32,6 +32,7 @@ Where there are heroes, villains are no surprise. Many were self-professed ghAzi
 
 ## Hindu traitors
 - udayasimha, treacherous son and murderer of rANA kumbha.
+- Buddhist traitor Sarjan Sah, who for a price, pointed out the location of the granary during the seige of raNthambore of hammIra chAhamAna by allauddin khilji.
 - shilAditya the pUrvIya tomara who betrayed sangrAma-simha of mevAr to bAbuur.
 - Sewand Rai, general of masUd of ghazni: "Only fifty days after the death of Mahmud, his son despatched Sewand Rai, a Hindu chief, with a large body of Hindu cavalry in pursuit of the nobles who had espoused the cause of his brother. Sewand Rai died in the ensuing battle." 
 - tilak, the bauddha/ hindu general of Masud of Ghazni: "The son of a barber, he became a confidant of Khwaja Ahmed Hasan Maimandi, the influential wazir of Sultan Mahmud. The khwaja made Tilak his secretary and interpreter, and in 1033, when news was received from Lahore of the rebellion of Ahmad Niyaltigin, it was Tilak who was sent to deal with the situation. The extreme measures taken by the Hindu general against the Muslim partisans of Ahmad show his confidence and sense of security.".
