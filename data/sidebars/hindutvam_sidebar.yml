@@ -118,6 +118,9 @@ contents:
           - title: ID
             contents:
               - url: dir://main/polity/external-affairs/id/
+          - title: Ingestion
+            contents:
+              - url: dir://main/polity/external-affairs/ingestion/
           - title: Defence
             contents:
               - url: dir://main/polity/external-affairs/defence/
