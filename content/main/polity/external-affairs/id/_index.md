@@ -11,8 +11,6 @@ The Hindu identity provides some resistance from pressure to convert to Abrahami
 ## Failure pattern  
 
 - A lack of understanding of the threat the abrahamisms contributed to the lack of common hindu fronts against muslim and other mlecCha invaders.
-    
 - Yet, some acceptance of abrahamist form and norm might have been a part of the non-military response ([see here](../../../rivals/abe-disease/abe-disease/). )  
-    
 - Also see [secularism here](../../../../rivals/0-theism/secularism/).
 
