@@ -113,14 +113,13 @@ See [maratha](../maratha/) page.
 See [anti-preta](../anti-preta/)
 
 ## Dumbocratic India
-
 - Radha-Binod Pal, the dissenting juror in the Japanese war crimes tribunal, who is remembered fonldy in the yAsukuni shrine and in japanese {[wiki](https://en.wikipedia.org/wiki/Radhabinod_Pal)}. 
-- [rANi gaiDiliu](http://manasataramgini.wordpress.com/2014/03/13/6384/) of the nAga-s, who fought christianity and the Naga National Council - but alas - failed due to the foolishness of Indian government.  
-- Justice Hans Raj [Khanna](https://en.wikipedia.org/wiki/Hans_Raj_Khanna), two of whose judgements are central to constitutional law - Basic Structure Doctrine (which legislative changes must respect), Government's emergency powers are limited.
-- narendra-bhai moDi, wrongly [maligned ruler](javascript:void(0);) of gujarat, effective ruler.  
-- sAlu-marada timmakka \[[I+](https://plus.google.com/u/0/104771037582332553233/posts/4NXcy9trw8U)\], an illeterate karNATaka casual worker, noted for her work in planting and tending to 284 banyan trees along a four-kilometre stretch of highway.
-- Col lalita rAya, vIra-chakra, commander of 1/11 gUrkha-s \[[YT](https://www.youtube.com/watch?v=J1rIkwAoZGg) [W](https://en.wikipedia.org/wiki/Lalit_Rai) [IMG](http://i.imgur.com/qT7yMQh.png)\], a who led from the front to capture pAki held heights in the kArgil war against great odds and at the limit of physical abilities.
-- Captain Manoj Pandey, PVC, who captured key posts while deployed by col lalita rAya, whose final words were "na choDnu" \[[YT](https://www.youtube.com/watch?v=J1rIkwAoZGg)[W](https://en.wikipedia.org/wiki/Manoj_Kumar_Pandey)[IMG](../../../images/snippets/col-lalit-rai-talk-highlights.png)\].
 - Gopal "Pantha" mukhyopAdhyAya, who defended hindus against muslim league mobs in Bengal \[[W](https://en.wikipedia.org/wiki/Gopal_Chandra_Mukhopadhyay)\]. 
     - "I will not lay down even a nail if it has been used for defending Hindu honour"
 - K K Nammaan, a vaishya who successfully confronted the islamic menace in Aligarh UP \[[TW](https://twitter.com/vvaayu/status/814088209546223616)\]
+- [rANi gaiDiliu](http://manasataramgini.wordpress.com/2014/03/13/6384/) of the nAga-s, who fought christianity and the Naga National Council - but alas - failed due to the foolishness of Indian government.  
+- Justice Hans Raj [Khanna](https://en.wikipedia.org/wiki/Hans_Raj_Khanna), two of whose judgements are central to constitutional law - Basic Structure Doctrine (which legislative changes must respect), Government's emergency powers are limited.
+- narendra-bhai modi, wrongly [maligned ruler](javascript:void(0);) of gujarat, effective ruler.  
+- Col lalita rAya, vIra-chakra, commander of 1/11 gUrkha-s \[[YT](https://www.youtube.com/watch?v=J1rIkwAoZGg) [W](https://en.wikipedia.org/wiki/Lalit_Rai) [IMG](http://i.imgur.com/qT7yMQh.png)\], a who led from the front to capture pAki held heights in the kArgil war against great odds and at the limit of physical abilities.
+- Captain Manoj Pandey, PVC, who captured key posts while deployed by col lalita rAya, whose final words were "na choDnu" \[[YT](https://www.youtube.com/watch?v=J1rIkwAoZGg)[W](https://en.wikipedia.org/wiki/Manoj_Kumar_Pandey)[IMG](../../../images/snippets/col-lalit-rai-talk-highlights.png)\].
+- ASI Tukaram Omble AC (c. 1954 – 27 November 2008), who died stopping and leading to the arrest of Pakistani jihAdi terrorist Ajmal Kasab roughly on this day 11 years ago.
