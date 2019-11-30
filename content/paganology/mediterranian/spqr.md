@@ -19,7 +19,7 @@ In the Roman republic, every notable person seeking greater power and reputation
   - Defeated Pompei Magnus
   - Conquered Egypt, fell in love with intelligent and manipulative Cleopatra
   - Returned to Rome to be offered the throne, but was murdered by Senators led by Brutus who were afraid of his rising popularity.
-- Kaiser (Caeser) Augustus Octavian, first emperor, avenger of his adapted father's murder, bringer of virtue and strength.
+- Kaiser (Caeser) Augustus Octavian, first emperor, avenger of his adopted father's murder, bringer of virtue and strength.
   - Got rid of critics such as Cicero.
   - He wisely sidelined the less disciplined soldier Marcus Antonius (based in Egypt, loving Cleopatra) and routed him.
   - As part of the succession arrangements, Augustus adopted Tiberius on 26 June AD 4, but first required him to adopt Germanicus, thus placing him next in the line of succession after Tiberius.
@@ -35,4 +35,4 @@ In the Roman republic, every notable person seeking greater power and reputation
   - Brought Caligula, son of Germanicus, to Capri. Played with his mind, while grooming him to be a possible successor. Named Caligula and very young grandson Gemellus as joint successors. 
 - Caligula (boot straps), son of celebrated general Germanicus, grandson of general Drusus, raised for his first 7 years in various military camps.
   - Traumatically witnessed the murder of his father, exile and imprisonment of family. Grew up in confinement, brought to Capri and supposedly made to participate in whimsical activities by Tiberius, besides being groomed to succeed. 
-  - Sidelined Gemellus, making him adapted son and heir instead.
+  - Sidelined Gemellus, making him adopted son and heir instead.
