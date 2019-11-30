@@ -3,7 +3,9 @@ title: Hero
 ---
 
 - Cleisthenes, who ended Athenian tribal fighting by assigning everyone to ten units of ten - paving the way for the city's rise.
-- Kaiser (Caeser) Augustus Octavian, first emperor, avenger of his adapted father's murder, bringer of virtue and strength.
+- Several Roman leaders - see [SPQR page](../sqpr/) for details:
+  - Arminius, prince of Germanic Cherusci tribe, brought up as a hostage in Rome, dispatched to Germainic conquest, but secretly plotted with German tribes to secure their liberation, leading to ambush and destruction of three Roman legions in the Teutoburg Forest and several other battles against retaliatory Roman campaigns, ultimately murdered by jealous German noble . 
+  - Kaiser (Caeser) Augustus Octavian.
 - Julian the apostate, the last pagan emperor of Rome, likely murdered by a Christian.
   - A friend of the great Sallustius.
   - Of him, Libanius said: "I have mentioned representations (of Julian); many cities have set him beside the images of the gods and honour him as they do the gods. Already a blessing has been besought of him in prayer, and it was not in vain. To such an extent has he literally ascended to the gods and received a share of their power from him themselves."
