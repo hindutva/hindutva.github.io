@@ -36,3 +36,18 @@ In the Roman republic, every notable person seeking greater power and reputation
 - Caligula (boot straps), son of celebrated general Germanicus, grandson of general Drusus, raised for his first 7 years in various military camps.
   - Traumatically witnessed the murder of his father, exile and imprisonment of family. Grew up in confinement, brought to Capri and supposedly made to participate in whimsical activities by Tiberius, besides being groomed to succeed. 
   - Sidelined Gemellus, making him adopted son and heir instead.
+  - A good ruler for the first 7 months
+    - commissioned good public works
+    - pardoned many of Tiberius's political exiles, cancelled treason trials.
+    - restarted the games
+    - initially very popular as the restored son of Germanicus.
+  - Went through a 3 month "brain fever" which changed his personality.
+  - In paranoia Eliminated allies such as the head of the praetorian guard Macro, even young Gemellus. Macro had attempted to ally himself with Gemellus when it appeared that Caligula might die of fever.
+  - He immersed himself in desultory decadent orgies. Started incest with his sisters (probably at the prodding of the eldest Agrippina). His married sister Drusilla became pregnant by him, but died.
+  - The remainder plotted to kill him, but were caught and exiled.Agrippina
+  - Ordered treason trials to replenish treasury and carry on decadence. That failed, so he increased taxes.
+  - Killed off his cousin Ptolmey of Mauretania
+  - To recover popularity, ordered an invasion of Britannia, but the soldiers resisted and he changed his mind - and supposedly paraded fake captives.
+  - The senate conspired with the Praetorian Guard to kill him.
+- Claudius, brother of Germanicus, uncle of Caligula, succeeded as emperor after securing support of the Praetorian Guard and foiling Roman Senatorial Republic plans. He was underestimated by opponents, and wasa  competent emperor. He expanded the empire into Brittannia and added Eastern provinces. Had a troubled family life, where his ambitious wife Messalina cuckolded him and eliminated rivals before being killed. In her stead, he married her rival and his neice, Agrippina sister of Caligula.
+- Nero, son of Agrippina, step son of Claudius came to power. He expanded and consolidated teh empire. Got his mother overbearing mother Agrippina murdered. Became more vain. Became unpopular after the great fire of Rome. A military coup and adversarial senate let to his suicide.
