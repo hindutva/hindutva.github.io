@@ -14,15 +14,15 @@ In the Roman republic, every notable person seeking greater power and reputation
   - Convinced the wealthy merchant Crassus not to retreat, to do a suprise attack and defeat the huge army of Spartacus.
   - Lost his wife Capurnia to illness.
   - Took advantage of the rivalry and the resulting stalemate between Crassus and Pompei to broker a peace by getting himself elected Consul of the Senate after gaining Pompei's trust by giving his daughter Julia in marriage. (From his father's fall, he had was wary of being on the loosing side of another civil war - so he thought beyond loyalty to Crassus.)
-  - Conquered Gaul, studying and crushing local resistance and capturing Vercingetorix after a remarkable Battle of Alesia/
-  - Even campaigned in Britannia
-  - Defeated Pompei Magnus
-  - Conquered Egypt, fell in love with intelligent and manipulative Cleopatra
-  - Returned to Rome to be offered the throne, but was murdered by Senators led by Brutus who were afraid of his rising popularity.
+  - When sent off as a governor to contain his growing influence - conquered Gaul, studying and crushing local resistance and capturing Vercingetorix after a remarkable Battle of Alesia, which involved attrition and building a barricade around a barricade to fight enemies on two sides. Even campaigned in Britannia.
+  - All the while, he raised his standing in Rome by sending periodic enthralling accounts of the conquest, written in third person. A frustrated Crassus went on the Parthian conquest seeking glory and died instead.
+  - When Pompei Magnus and the senate recalled him, he instead crossed the Rubicon with a legion, forcing them to flee. Rather than enter Rome, he tried to cut them off at Brundisium before they gather an army in Greece, but failed. Still, he got to building ships and landed at Greece - thankfully before Marcus Antonius landed with the remaining half. There his superior strategy and better forces won the day. 
+  - Then chased Pompei to Egypt, came under effective house-arrest of the Pharaoh. Then fell in love with intelligent and manipulative Cleopatra and father Caesarean. He then returned to Rome to fix the unrest and food shortages (Marcus Antonius had proved incompetent). Then.
+  - Fixed himself as dictator, implemented many far-sighted reforms, including public works projects, but was murdered by Senators led by Brutus (trusted son of his mistress, but descendent of the founder of the Republic) who were afraid of his imperial ambitions.
 - Kaiser (Caeser) Augustus Octavian, first emperor, avenger of his adopted father's murder, bringer of virtue and strength.
   - Got rid of critics such as Cicero.
-  - He wisely sidelined the less disciplined soldier Marcus Antonius (based in Egypt, loving Cleopatra) and routed him.
-  - As part of the succession arrangements, Augustus adopted Tiberius on 26 June AD 4, but first required him to adopt Germanicus, thus placing him next in the line of succession after Tiberius.
+  - He wisely sidelined the less disciplined soldier Marcus Antonius (based in Egypt, loving Cleopatra) and routed him when the latter went to the extant of naming Caesarion the successor of Julius.
+  - As part of the succession arrangements, Augustus adopted Tiberius on 26 June AD 4, but first required him to adopt great Germanicus, thus placing him next in the line of succession after Tiberius.
 - Germanicus, brilliant General,
   - who avenged and recovered the three lost eagles from the ambushed legions, designated successor of Tiberius, raised imperial suspicions by his independent actions there,
   - recalled and sent to Asia, reorganized various client kingdoms,
