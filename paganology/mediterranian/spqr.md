@@ -18,7 +18,8 @@ In the Roman republic, every notable person seeking greater power and reputation
   - All the while, he raised his standing in Rome by sending periodic enthralling accounts of the conquest, written in third person. A frustrated Crassus went on the Parthian conquest seeking glory and died instead.
   - When Pompei Magnus and the senate recalled him, he instead crossed the Rubicon with a legion, forcing them to flee. Rather than enter Rome, he tried to cut them off at Brundisium before they gather an army in Greece, but failed. Still, he got to building ships and landed at Greece - thankfully before Marcus Antonius landed with the remaining half. There his superior strategy and better forces won the day. 
   - Then chased Pompei to Egypt, came under effective house-arrest of the Pharaoh. Then fell in love with intelligent and manipulative Cleopatra and father Caesarean. He then returned to Rome to fix the unrest and food shortages (Marcus Antonius had proved incompetent). Then.
-  - Fixed himself as dictator, implemented many far-sighted reforms, including public works projects, but was murdered by Senators led by Brutus (trusted son of his mistress, but descendent of the founder of the Republic) who were afraid of his imperial ambitions.
+  - Fixed himself as dictator, implemented many far-sighted reforms, including public works projects, but was murdered by Senators led by Brutus (trusted son of his mistress, but descendent of the founder of the Republic) who were afraid of his imperial ambitions just before he was to take off on his Parthian campaign.
+  - Despite leaving only 1 offspring and suffering in later life from strokes/ epilepsy, raised SPQR led firmly by his Gens Julia to such great heights!
 - Kaiser (Caeser) Augustus Octavian, first emperor, avenger of his adopted father's murder, bringer of virtue and strength.
   - Got rid of critics such as Cicero.
   - He wisely sidelined the less disciplined soldier Marcus Antonius (based in Egypt, loving Cleopatra) and routed him when the latter went to the extant of naming Caesarion the successor of Julius.
@@ -51,3 +52,7 @@ In the Roman republic, every notable person seeking greater power and reputation
   - The senate conspired with the Praetorian Guard to kill him.
 - Claudius, brother of Germanicus, uncle of Caligula, succeeded as emperor after securing support of the Praetorian Guard and foiling Roman Senatorial Republic plans. He was underestimated by opponents, and wasa  competent emperor. He expanded the empire into Brittannia and added Eastern provinces. Had a troubled family life, where his ambitious wife Messalina cuckolded him and eliminated rivals before being killed. In her stead, he married her rival and his neice, Agrippina sister of Caligula.
 - Nero, son of Agrippina, step son of Claudius came to power. He expanded and consolidated teh empire. Got his mother overbearing mother Agrippina murdered. Became more vain. Became unpopular after the great fire of Rome. A military coup and adversarial senate let to his suicide.
+- Julian the apostate, the last pagan emperor of Rome, likely murdered by a Christian.
+  - A friend of the great Sallustius.
+  - Of him, Libanius said: "I have mentioned representations (of Julian); many cities have set him beside the images of the gods and honour him as they do the gods. Already a blessing has been besought of him in prayer, and it was not in vain. To such an extent has he literally ascended to the gods and received a share of their power from him themselves."
+
