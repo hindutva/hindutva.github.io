@@ -52,7 +52,8 @@ In the Roman republic, every notable person seeking greater power and reputation
   - The senate conspired with the Praetorian Guard to kill him.
 - Claudius, brother of Germanicus, uncle of Caligula, succeeded as emperor after securing support of the Praetorian Guard and foiling Roman Senatorial Republic plans. He was underestimated by opponents, and wasa  competent emperor. He expanded the empire into Brittannia and added Eastern provinces. Had a troubled family life, where his ambitious wife Messalina cuckolded him and eliminated rivals before being killed. In her stead, he married her rival and his neice, Agrippina sister of Caligula.
 - Nero, son of Agrippina, step son of Claudius came to power. He expanded and consolidated teh empire. Got his mother overbearing mother Agrippina murdered. Became more vain. Became unpopular after the great fire of Rome. A military coup and adversarial senate let to his suicide.
+- Marcus Aurelius, the philosopher emperor, who together with his co-emperor Lucius Verus held the empire firmly together against Germanic and Parthian attacks, a rebellion by an eastern general. But in an idiotic move, made his unworthy natural son Commodus his successor - rather than adopting someone competent like his immediate predecessors.
+- Hadrian, gave up hard-to-defend Mezopotamia, put down pesky revolts, first emperor to extensively tour the provinces, donating money for local construction projects (including the famous wall in Britannia). 
 - Julian the apostate, the last pagan emperor of Rome, likely murdered by a Christian.
   - A friend of the great Sallustius.
   - Of him, Libanius said: "I have mentioned representations (of Julian); many cities have set him beside the images of the gods and honour him as they do the gods. Already a blessing has been besought of him in prayer, and it was not in vain. To such an extent has he literally ascended to the gods and received a share of their power from him themselves."
-
