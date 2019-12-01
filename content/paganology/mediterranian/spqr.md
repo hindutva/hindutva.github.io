@@ -10,11 +10,11 @@ In the Roman republic, every notable person seeking greater power and reputation
 ## Leaders
 - Gaius Julius Caesar
   - raised in the wealthy patrician gens Julia, his family lost everything because the father sided the loosing side in a civil war.
-  - Joined the army to regain prestige and wealth, became a seasoned soldier.
+  - Joined the army as a footsoldier to regain prestige and wealth, became a seasoned leader.
   - Convinced the wealthy merchant Crassus not to retreat, to do a suprise attack and defeat the huge army of Spartacus.
   - Lost his wife Capurnia to illness.
   - Took advantage of the rivalry and the resulting stalemate between Crassus and Pompei to broker a peace by getting himself elected Consul of the Senate after gaining Pompei's trust by giving his daughter Julia in marriage. (From his father's fall, he had was wary of being on the loosing side of another civil war - so he thought beyond loyalty to Crassus.)
-  - Conquered Gaul, studying and crushing local resistance and killing Vercingetorix
+  - Conquered Gaul, studying and crushing local resistance and capturing Vercingetorix after a remarkable Battle of Alesia/
   - Even campaigned in Britannia
   - Defeated Pompei Magnus
   - Conquered Egypt, fell in love with intelligent and manipulative Cleopatra
