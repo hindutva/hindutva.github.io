@@ -7,6 +7,8 @@ title: Anti-ghazis (north)
 
 - chach of Aror, a brAhmaNa who took over the sindhi empire and consolidated it by marriages, arms and appointments - faced the initial arab attack.
 - dAhira-sena, son of chach, who valiantly fought Arab invaders (supported by local betrayers, including [bauddha chieftains](../../../../rivals/aananda-addiction.md)) to his death with his queen lADI bAi, an upAsaka of hingalAj devI.
+- Hamirji Gohil, 16 year old newly married chieftain of Lathi, who sacrificed his life in 1299 defending the Somnath temple from the attack of Alauddin Khalji .
+  - His cenotaph still stands at the entrance to the fabled somnath temple. Hamirji had said, "Bhale koi aave na aave maari saathe, pan hoon jais Somnath ni sakhate" (Whether anyone comes or not comes with me, but I will go to protect Somnath).
 - shubhakara-simha,  a nAstIka kShatriya of IkShvAku descent, who rose to military leadership at 10 and kingship at 13, who quelled fraternal rebellion, defended suvastu/ oDDiyAna \[[MT](https://manasataramgini.wordpress.com/2006/05/01/a-brief-history-of-shubhakara-simha/)\] from the marauding muslims, (unfortunately) took premature sannyAsa, became an accomplished mantravAdin, became an AchArya to the chIna-s, used mantra-bala to remedy draught in his native mAlvA, help his ship out of a calm, defeat muslim pirates.
 - lalitAditya muktapIDa, emperor of kashmIra, defeater of arabs in sindh, dardistAn, transoxania; Who kept the Tibetan empire at bay with Tang help, patron of arts and bhavabhUti.
     - (According to Alberuni, a festival was held on the second day of Chaita (March) every year for centuries to celebrate the victory of King Mutthai over the Turks.) 
