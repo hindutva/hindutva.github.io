@@ -5,6 +5,7 @@ title: Rites
 ## Adoring deities and spiritis
 - goma / homa
     - to vaishravaNa, in front of an image of marIchi, by kAgeTora/ Uesugi Kenshin a daimyo of the Sengoku (Heaven and Earth 天と地と) [YT](https://www.youtube.com/watch?v=n4AV_Gv_59k&feature=youtu.be), [YT_open](https://www.youtube.com/watch?v=QrriW9gFXsk) (identification by [MT](https://twitter.com/yenkak/status/630249442613051392)), also a devotee of vaishravaNa.
+    - shiNTo adaptation - [YT](https://www.youtube.com/watch?v=ooEKLqlT7ss). This was probably by Yoshida Kanetomo as well.
 - Offering hair - kAgeTora [YT](https://youtu.be/n4AV_Gv_59k?list=WL&t=4526).
 - Adoring the spirits of the dead
     - TakeDa [YT](https://youtu.be/n4AV_Gv_59k?list=WL&t=3962).
