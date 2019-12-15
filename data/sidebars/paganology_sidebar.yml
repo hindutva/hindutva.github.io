@@ -40,6 +40,9 @@ contents:
       - title: Geopolitics
         contents:
           - url: dir://paganology/japan/geopolitics/
+      - title: Spirituality
+        contents:
+          - url: dir://paganology/japan/spirituality/
       - url: dir://paganology/japan/
   - title: Hindutva
     url: /main/hinduism/introduction/
