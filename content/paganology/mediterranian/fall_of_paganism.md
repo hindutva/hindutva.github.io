@@ -15,7 +15,14 @@ title: Fall of paganism
 - Christian exaggerations - [C Moss](https://www.amazon.com/Myth-Persecution-Christians-Invented-Martyrdom-ebook/dp/B0089LOOF4/ref=asap_bc?ie=UTF8)
 
 ## Robust intellectual response to Christianity
-The neo-platonist tradition and lineage is described in [the platonist page](../philosophy/platonism/).
+- The neo-platonist tradition and lineage is described in [the platonist page](../philosophy/platonism/).
+
+## Julian's efforts
+- "He sought to revitalise the appeal of paganism through the introduction of a similar charitable system to the Christian church, the restoration of grand sacrifices and ancient traditions and publicly proclaimed that the empire should be tolerant towards both pagans and Christians. However, coupled with this positive evolution of paganism, he also sought to undermine the church by encouraging the growth of the schisms which had formed through different interpretations of the Bible and he ensured that any damage caused to pagan temples resulted in harsh punishments for Christians and churches in the locality. As emperor, he also could promote pagans rather than Christians to important positions within the civil and military bureaucracies, allowing pagans to once again enjoy a political advantage over their rivals."
+- In AD362 Julian banned Christians from teaching using pagan literature. (Reminds one of the 2019 BHU muslim sanskrit literature prof case.)
+  - "The classic texts, such as the Aeneid and Iliad, were to be taught only by pagans, while the edict stated that ‘if they [Christians] want to learn literature, they have Luke and Mark’."
+  - "This edict was a major financial blow for Christian teachers, potential students, who wanted to progress through Roman society, needed a classical education and both Christian and pagan parents were forced to employ pagans to teach their children."
+  - "Even for Julian’s most ardent supporter, the historian Ammianus, the edict was labelled a ‘harsh act which should be buried in lasting oblivion’ and was listed by the author amongst the failings of Julian’s regime."
 
 ## Christian appropriation
 - Appropriation of classical (hellenic) thought
