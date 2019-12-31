@@ -58,8 +58,6 @@ Generally, hindus freely adapt and develop newer technologies (cotton clothes, g
 
 In very rare cases, this is taken to luddite extremes such as a refusal to use iron implements in a sacrifice or even in regular eating or drinking.
 
-  
-
 ## Secondary nature of beliefs
 
 Amongst hindu-s, beliefs are far less important than in the abrahamisms.
