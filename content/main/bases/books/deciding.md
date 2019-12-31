@@ -15,7 +15,7 @@ title: Deriving knowledge
         - the historical and current practices and understandings of respected role-models
         - direct observation and experience.
     - The differences between the context of creation and one's own situation.
-- Also see notes on meanings of mantra-s in this [external page](../../../self-cultivation/mantra-yantra/).
+- Also see notes on meanings of mantra-s in [V's mantra page](https://vvasuki.github.io/saMskAra/kalpa/general/ArAdhanam/mantra-yantra/).
 
 ## Multi-level understanding, multiple appropriate meanings
 
