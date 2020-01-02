@@ -25,10 +25,10 @@ A note on false generalizations based on the above : [varNa theory](../../social
 
 ## nAstika corrosion of dharma in general
 
-The nAstika-s are corrosive to dharma (more so than vedAnta ).
+The nAstika-s are corrosive to dharma (far more so than vedAnta ).
 
 - Their kingship thought lacks aggression. parAkrama, clearly engendered by vaidika rituals like rAjasUya and ashvamedha. At best, they practice self defense.
-- They subvert the Arya conservativism of the veda-s and brAhmaNa-s (particularly in later days).
+- Being a counter-religion, they subvert the Arya conservativism of the veda-s and brAhmaNa-s (particularly in later days).
 - hindu-devatA-subversion [here](../../tattvam/deva/index/).
 - At the same time:
     - unlike even many Astika systems, they pay high regard to Indra.
@@ -45,8 +45,7 @@ Confucian intellectuals such as Han Yu railed against Buddhism for undermining t
 "The doyen of the vajrayAna bauddhas (padmavajra) has a rather devious advice in his guhyasiddhi for the bauddha initiate who is looking for a consort from the antyaja (avarNa) class to do certain buddhist tAntrika practices with." - [IMG1](../../../images/snippets/padmavajra-guhyasiddhi-antyaja-cheating-1.jpg), [IMG2](../../../images/snippets/padmavajra-guhyasiddhi-antyaja-cheating-translation.jpg)
 
 ### Sindh betrayal
-- "After a week the army of Mohmed bin Qasim moved towards Nirun Kot. The Buddhist governor entered into a secret pact with advacing Arab army, but for pretence sake held on for five days. After five days he publicly apologised to Mohmed bin Qasim and welcomed Arab army. He even wrote a letter to the governor of Sehwan urging him to surrender to Arab army pleading that being followers of Buddhist religion the bloodshed is against their creed and the principle of non violence should be adhered to." \[[Sindhology](http://www.sindhology.org/images/books_sindhology/History%20of%20Sindh%20Page%2021%20to%20160-Mohan%20Gehani.pdf)\]
-- "There also was a Samaní, who was chief of the rest of the inhabitants. In the fort the nephew of Dáhir was governor; his name was Bajhrá, the son of Chandar. All the Samanís assembled and sent a message to Bajhrá, saying, we are násik devotees. Our religion is one of peace and quiet, and fighting and slaying is prohibited, as well as all kinds of shedding of blood. You are secure in a lofty place, while we are open to the invasions of the enemy, and liable to be slain and plundered as your subjects. We know that Muhammad Kásim holds a farmán from Hajjáj, to grant protection to every one who demands it. We trust, therefore, that you will consider it fit and reasonable that we make terms with him, for the Arabs are faithful, and keep their agree­ments. " \[chachnAma, [PIT](http://persian.packhum.org/persian/main?url=pf%3Ffile%3D80201011%26ct%3D40%26rqs%3D3%26rqs%3D29%26rqs%3D52%26rqs%3D64%26rqs%3D97%26rqs%3D100%26rqs%3D117%26rqs%3D170%26rqs%3D189)\]
+See separate [page here](../../history/sindh_betrayal/).
 
 ### Iconoclasm
 - "It is worth noting the statements of the Tibetan lamas, dharmasvAmin and tAranAtha, that the sthaviravAdin-s from lankA and the sindhu were at the forefront of demolishing and image of the heruka at bodhagaya and burning vajrayAna tantra-s. ...  Second, the tantra-s of the kubjikA-mata record the persecution of Astika-s by the Lankan tAthAgata-s. This streak has been seen more recently among the modern Lankan bikkhu-s. ... The sthaviravAdin-s in shrIlankA did not encourage revival of worship after the Christian assaults on the devAlaya of viShNu at Devinuvara and rAkShasAlaya of vibhIShaNa at Colombo. This resulted in the loss of these traditions. " \[[MT17](https://manasataramgini.wordpress.com/2012/04/23/an-indigo-south-asian-hemus-salt-and-other-interlocutions/)\] 
