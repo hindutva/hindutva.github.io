@@ -34,7 +34,10 @@ In classical Indian literature "the Muslims, who were not only present in India 
 From [Heid1998](https://journals.ub.uni-heidelberg.de/index.php/jiabs/article/viewFile/8878/2785): In Sanskrit literature the Kalacakra tantra is unique in presenting a fairly comprehensive and quite accurate portrayal of Islamic beliefs and practices. \[[WP](https://agnimaan.wordpress.com/2015/06/08/portrayal-of-muslims-in-kalachakra-tantra/)\]
 
 ## Heathenizing Abrahamists
-
+- Recovery of Mansur.
+    - Mansur was the son of a first gen Zoroastrian convert to Islam. At Gujarat where his unconverted relatives had fled, he was trained in haTha Yoga by nAthas.
+    - Mansur was accused of leaving Islam. Mansur didn't deny the charge but kept saying "An al Haq" (I am truth) even as he was executed by the Caliph.
+    - while contemporary Sufis denounced Mansur, later Sufis accepted him.
 - There was some extra-military response to Islam during muslim reign \[[MT](http://manasataramgini.wordpress.com/2014/02/04/some-notes-on-the-extra-military-aspects-of-the-islamo-hindu-confrontation/)\], involving conversion of muslims, apostacies of Akbar and Dara Shukoh etc..
     - Apostasy of Akbar: [MT](http://manasataramgini.wordpress.com/2014/02/04/some-notes-on-the-extra-military-aspects-of-the-islamo-hindu-confrontation/) and [B](http://bharatendu.com/2009/07/06/akbar-transition-5/).
 - Tuglaq times: " brAhmaNa of Delhi had constructed a wooden seal on which were engraved the pictures of Hindu deities. Large numbers of Hindus resorted to his house to worship the seal. He had also converted Moslem women to the Hindu polytheism." [MT](http://manasataramgini.wordpress.com/2014/02/04/some-notes-on-the-extra-military-aspects-of-the-islamo-hindu-confrontation/)
