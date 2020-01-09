@@ -3,7 +3,7 @@ title: Conversion
 ---
 
 
-## How Islam attracts converts
+## How Islam attracts and retains converts
 
 - Examples of converts are noted [here](../../../../hinduism/benefits/).
 
@@ -18,6 +18,7 @@ title: Conversion
 - Simple practice
     - 5 things to do, 5 prayers, 1 fast
     - Rigid structure for those who seek it.
+- Timely and effective justice system via sharia courts.
 - Anti hindu rhetoric
     - Attack "weak" points
         - "superstition and idol centric ritualism"
