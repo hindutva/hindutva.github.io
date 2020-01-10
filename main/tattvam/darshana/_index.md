@@ -1,5 +1,5 @@
 ---
-title: +Intro विचारधाराः
+title: +Views विचारधाराः
 ---
 
 
