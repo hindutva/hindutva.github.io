@@ -24,6 +24,7 @@ The influence of (vedantic / yogic) asceticism or occidental condition causes ma
 ### Intercourse / सम्भोगे
 - Injunctions like AshvalAyana's “ऋतौ भार्यामुपेयात्” make it clear that a gRhastha is *required* to have sex with his wife during every fertile period. 
 - Some people may worry - "how to prevent the slippery slope to hedonism". However, one can safely trust the sages and well established shAstra-s. If one cites the shAstra-s to have sex often, one should also observe the required fasts and rituals (eg maintain agni etc..) enjoined by the same shAstra-s.
+- The vedAntin curailment/ ideal (consistent with their general nivRtti) is: "लोके व्यवायामिषमध्यसेव नित्या हि जन्तोर्न हि तत्र चोदना । व्यवस्थितिस्तेषु विवाहयज्ञ सुराग्रहैरासु निव्त्तिरिष्टा ॥".
 
 ## Spiritual highs
 One needs joy, satisfaction, and strength to follow and achieve the various [goals of life](../../tattvam/puruShArtha/), including [dharma](../../social-cultivation/dharma/). Spirituality (a focus on the development and maintenance of "good" mental states) is then an essential component of hindu self cultivation.
