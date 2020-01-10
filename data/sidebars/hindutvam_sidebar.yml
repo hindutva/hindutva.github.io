@@ -6,139 +6,34 @@ title: Hindutvam
 contents:
   - title: Hinduism
     contents:
-      - title: Intro
-        url: /main/hinduism/
-      - title: Religion?
-        url: /main/hinduism/religion.md
-      - title: Benefits
-        url: /main/hinduism/benefits.md
-
+      - url: recdir://main/hinduism/
   - title: प्रमाणानि Bases
     contents:
-      - title: Holy Books
-        contents:
-          - url: dir://main/bases/books/
-      - title: शिष्टः Role-models
-        url: /main/bases/elders.md
-      - title: प्रत्यक्षम् Direct witness
-        url: /main/bases/pratyaxa.md
-      - title: सर्वज्ञता Omniscience
-        url: /main/bases/omniscience.md
-
+      - url: recdir://main/bases/
   - title: Suchness तत्त्वम्
     contents:
-      - url: dir://main/tattvam/
-      - title: देवाः Deities
-        contents:
-          - url: dir://main/tattvam/deva/
-          - title: Hierarchy
-            contents:
-              - url: dir://main/tattvam/deva/hierarchy/
-      - title: पुरुषार्थाः Goals of life
-        contents:
-            - url: dir://main/tattvam/puruShArtha/
-      - title: दर्शनानि Viewpoints
-        contents:
-          - url: dir://main/tattvam/darshana/
+      - url: recdir://main/tattvam/
   - title: Self-cultivation संस्काराः
     contents:
-      - title: Rituals
-        contents:
-          - url: dir://main/self-cultivation/ritual/
-      - title: Communal support
-        contents:
-          - url: dir://main/self-cultivation/communal-support/
-      - url: dir://main/self-cultivation/
+      - recurl: dir://main/self-cultivation/
   - title: Social cultivation
     contents:
-      - title: धर्मः dharma
-        contents:
-          - url: dir://main/social-cultivation/dharma
-      - url: dir://main/social-cultivation/
-      - title: Violence
-        contents:
-          - url: dir://main/social-cultivation/violence
-      - title: Caste, Clan जातिः वर्णः च
-        contents:
-          - url: dir://main/social-cultivation/clan/
-          - title: Ethnic shifts
-            contents:
-              - url: dir://main/social-cultivation/clan/ethnic-shifts/
-          - title: Theory
-            contents:
-              - url: dir://main/social-cultivation/clan/theory/
-          - title: Practice
-            contents:
-              - url: dir://main/social-cultivation/clan/practice/
+      - url: recdir://main/social-cultivation/
   - title: अर्थः Resources
     contents:
-      - url: dir://main/resources/
+      - url: recdir://main/resources/
   - title: Rivals वैरिणः
     contents:
-      - title: "Abe disease"
-        contents:
-          - title: On Islam मरून्मादः
-            contents:
-              - url: dir://main/rivals/abe-disease/islam/
-          - title: Corpse cult प्रेतोन्मादः
-            contents:
-              - url: dir://main/rivals/abe-disease/zombie-cult/
-          - url: dir://main/rivals/abe-disease/
-      - title: 0-theism
-        contents:
-        - url: dir://main/rivals/0-theism/
-      - title: "Dubious bAba-isms"
-        contents:
-          - url: dir://main/rivals/dubious-bAbaisms/
-      - title: Idiot Intellectualism
-        contents:
-          - url: dir://main/rivals/iyi/
-      - title: Academic subversion
-        contents:
-          - url: dir://main/rivals/academia/
-          - title: Misrepresentation
-            contents:
-              - url: dir://main/rivals/academia/misrepresentation/
-      - title: Dirty rags
-        contents:
-          - url: dir://main/rivals/rags/
-      - url: dir://main/rivals/
+      - url: recdir://main/rivals/
   - title: Polity राजनीतिः
     contents:
-      - url: dir://main/polity/
-      - title: Post-brit rAj
-        contents:
-          - url: dir://main/polity/sick-india/
-      - title: Non-India
-        contents:
-          - url: dir://main/polity/non-india/
-      - title: परैः सम्बन्धः External relations
-        contents:
-          - url: dir://main/polity/external-affairs/
-          - title: ID
-            contents:
-              - url: dir://main/polity/external-affairs/id/
-          - title: Ingestion
-            contents:
-              - url: dir://main/polity/external-affairs/ingestion/
-          - title: Defence
-            contents:
-              - url: dir://main/polity/external-affairs/defence/
-          - title: Tolerance
-            contents:
-              - url: dir://main/polity/external-affairs/tolerance/
+      - url: recdir://main/polity/
   - title: History इतिहासः
     contents:
-      - url: dir://main/history/
-      - title: Persons व्यक्तयः
-        contents:
-          - url: dir://main/history/persons/
-          - title: क्षात्रम् Polity
-            contents:
-              - url: dir://main/history/persons/xatra/
+      - url: recdir://main/history/
   - title: Paganology
     url: /paganology/
   - title: Home
     url: /
-  - title: <i class="fas fa-hand-holding-heart"></i>Donate!
-    url: /dharma-via-hindutva/
+#  - title: <i class="fas fa-hand-holding-heart"></i>Donate!
+#    url: /dharma-via-hindutva/
