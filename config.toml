@@ -10,6 +10,8 @@ disablePathToLower = true
   contactLink = "https://github.com/hindutva/hindutva.github.io/issues/new"
   env = "production"
   disqusShortcode = "hindu-vichaarah"
+  background_color_class = "bg-light-red"
+  body_classes = "bg-washed-yellow"
 
 [markup.goldmark.renderer]
   unsafe= true

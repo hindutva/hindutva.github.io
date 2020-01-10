@@ -15,7 +15,7 @@ contents:
       - url: recdir://main/tattvam/
   - title: Self-cultivation संस्काराः
     contents:
-      - recurl: dir://main/self-cultivation/
+      - url: recdir://main/self-cultivation/
   - title: Social cultivation
     contents:
       - url: recdir://main/social-cultivation/
