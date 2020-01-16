@@ -10,3 +10,6 @@ title: Pervasive spirituality‎
 
 ## Family
 - Japan 2017: just 2% of babies are born out of wedlock. (W-Germany: ~25%, E-G: >50%, UK >45%, US~40%).
+
+## Ancestors
+"Hence, Noh has deep ties to the gods... I go to my ancestors graves at least once a month. I report to them having completed successful Noh plays and also inform them about upcoming performances..." - Michishige Udaka 宇高通成
