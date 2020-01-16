@@ -24,8 +24,17 @@ Consensus - "The Japanese, we are told, debate a proposed decision throughout th
 - " it satisfies two apparently mutually contradictory needs: (a) job and income security, and (b) flexible, adaptable labor forces and labor costs. "
 - "It is the psychological conviction of job and income security that underlies what might be the most important “secret” of the Japanese economy: cheerful willingness on the part of employees to accept continuing changes in technology and processes, and to regard increasing productivity as good for everybody."
 
+## Training
+- "Continuous training: The secret may lie in what the Japanese call “continuous training.” This means, first, that every employee, very often up to and including top managers, keeps on training as a regular part of his job until he retires. .. the Japanese employee is, for the most part, trained not only in his job but in all the jobs at his job level, however, low or high that level is."
 
-## Mentoring
+### Pros and cons
+- "For example, the young, technically trained people—scientists and engineers-resent it bitterly and resist it rather well. They want to work as scientists and engineers and are by no means delighted when asked to learn accounting or when shifted from an engineering job into the personnel department."
+- "A Japanese employer who wants to introduce a new product or machine does so in and through the training session. As a result, there is usually no resistance at all to the change, but acceptance of it. ... “bugs” in a new process are usually worked out, or at least identified, before it goes into operation on the plant floor. "
+- "But the Japanese keep on training. And sooner or later, their “learning curve” starts breaking above the plateau which we in the West consider permanent. It starts to climb again, not because a man works harder, but because he starts to work “smarter.”"
+
+
+
+### Mentoring
 Managerial godfathers: " every young managerial employee knows who his godfather is, and so do his boss and the boss’s boss. ... He is expected to know the young man, see him fairly regularly, be available to him for advice and counsel, and, in general, look after him. .. The godfather sits with the top management and discusses the young people."
 
 ## Operational innovations
