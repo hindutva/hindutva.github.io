@@ -32,10 +32,17 @@ Consensus - "The Japanese, we are told, debate a proposed decision throughout th
 - "A Japanese employer who wants to introduce a new product or machine does so in and through the training session. As a result, there is usually no resistance at all to the change, but acceptance of it. ... “bugs” in a new process are usually worked out, or at least identified, before it goes into operation on the plant floor. "
 - "But the Japanese keep on training. And sooner or later, their “learning curve” starts breaking above the plateau which we in the West consider permanent. It starts to climb again, not because a man works harder, but because he starts to work “smarter.”"
 
-
-
 ### Mentoring
-Managerial godfathers: " every young managerial employee knows who his godfather is, and so do his boss and the boss’s boss. ... He is expected to know the young man, see him fairly regularly, be available to him for advice and counsel, and, in general, look after him. .. The godfather sits with the top management and discusses the young people."
+- Managerial godfathers: " every young managerial employee knows who his godfather is, and so do his boss and the boss’s boss. ... He is expected to know the young man, see him fairly regularly, be available to him for advice and counsel, and, in general, look after him. .. The godfather sits with the top management and discusses the young people."
+- "In other words, godfathers are people who know, having been passed over at age 45 for the top management spots, that they are not going to “make it” in their own organizations. Therefore, they are not likely to build factions of their own or to play internal politics."
+- " the godfather function is not a separate job, is not a part of personnel work, and is not entrusted to specialists, but is discharged by experienced, respected, and successful management people."
+- "A supervisor tries to hang on to a good man and not let him go. He will not say, “You have learned all there is to learn in this place.” He will not say, “You are doing all right, but you really don’t belong here.” He will not ask a young man, “Where do you want to go? What kind of work do you want to do? How can I help you to get there?”"
 
 ## Operational innovations
 - Point and call system [YT](https://www.youtube.com/watch?v=9LmdUz3rOQU).
+
+## Staffing, appraisal
+- "Superiors do not choose their subordinates: the personnel people make personnel decisions, as a rule, often without consulting the manager to whom a subordinate is being assigned. "
+- "This process goes on for 20 to 25 years, during which all the emphasis seems to be on conforming, on doing what one is being asked to do, and on showing proper respect and deference. Then suddenly, when a man reaches 45, the Day of Reckoning arrives, when the goats are separated from the sheep. A very small group of candidates is picked to become “company directors”—that is, top management. They can stay in management well past any retirement age known in the West"
+
+
