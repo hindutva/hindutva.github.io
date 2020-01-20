@@ -43,7 +43,7 @@ it itself asserted: science, university discipline, humanities, European traditi
 - One must ask oneself how much one's welfare coincides with theirs.
 
 ## Revulsion towards Hindutva
-  
+See [hindutva-revulsion page](../hindutva-revulsion/) here.
 
 ## Misrepresentation of the \*core\* of hindu ethos, subversion of hindu psyche-s
 See [here](../misrepresentation/).  
@@ -94,6 +94,10 @@ See [here](../../u-turn/).
 - What these aliens consider "vitally important" (often for the purpose of their livelihood, though hypocritically masked in terms of grander purposes) is not necessarily that important to hindus.
 - If Indian government and education system does not value such knowledge, it is precisely because of the value system that Sheldon represents - where "secularism" (a post-christian christian virtue which is meaningless and even poisonous for pagans) and "study without practice" (the dry end of the dry-scholar/ practitioner/practitioner-scholar spectrum)  reign supreme.
 - While Indian education system has its problems, there are quite a few Sanskrit universities and institutions, where traditional knowledge systems are still studied.
+
+## Disparagement of Hindu accomplishments
+- Examples from history of mathematics resulting in dismissal, derision: [rAma\_pi\_16](https://www.youtube.com/watch?v=dam2rZos5Zo#t=74), [rAma15](https://www.youtube.com/watch?v=hh_h2R4mkbc).
+
 
 ## Pending investigations
 

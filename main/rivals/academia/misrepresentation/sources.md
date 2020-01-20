@@ -47,7 +47,7 @@ title: Misinterpretation causes
 - History of the system
     - "Area Studies began after WWII as a program to encourage university-level training and research (apparently previously largely neglected) into non-Western areas of the world for the purpose of responding to the threat of communist expansion as well as the consequences of the collapse of the British empire and other colonial systems. Starting from 1956, the US government under Title Sixth of the Higher Education Act funds 125 university-based area studies units. UC Berkeley’s South Asia area studies program, for instance, receives $3.5 million/year. In its Cold War form, area studies was intended as an extension of the US foreign policy and the work of both the CIA and the State Department—this is not a conspiracy theory, but commonly acknowledged and debated among scholars themselves. Much of the study of India’s history, religion and present society takes place within South Asia area studies, with its legacy focus on politics, economics, social injustice and conflict." - arumuganAthasvAmin.
 
-- An anti-hindu pro-western civilizational bias.
-    - Examples from history of mathematics resulting in dismissal, derision: [rAma\_pi\_16](https://www.youtube.com/watch?v=dam2rZos5Zo#t=74).
-    - This was starkly evident in the early days: [MT_TW](https://twitter.com/blog_supplement/status/707818465801986048/photo/1).
-    - "Orientalist attitude toward India that American academics have inherited from the 19th century European scholars—it’s the working principle that the “natives” are incapable of understanding their own culture as famously explained in Edward Said’s book, Orientalism." - AR.
+## An anti-hindu pro-western civilizational bias.
+- Examples from history of mathematics resulting in dismissal, derision: [rAma\_pi\_16](https://www.youtube.com/watch?v=dam2rZos5Zo#t=74), [rAma15](https://www.youtube.com/watch?v=hh_h2R4mkbc).
+- This was starkly evident in the early days: [MT_TW](https://twitter.com/blog_supplement/status/707818465801986048/photo/1).
+- "Orientalist attitude toward India that American academics have inherited from the 19th century European scholars—it’s the working principle that the “natives” are incapable of understanding their own culture as famously explained in Edward Said’s book, Orientalism." - AR.
