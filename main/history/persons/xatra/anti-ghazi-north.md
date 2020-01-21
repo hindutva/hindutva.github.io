@@ -92,3 +92,4 @@ title: Anti-ghazis (north)
   - Still, he who helped the tens of thousands of soldiers & civilians fleeing Panipat.
 - Jawahar Singh (r. 1763–1768), who briefly captured Delhi and beat Najib-ud-daula, who facilitated the sacred bath of his proud mother Kishori in Jayapura, asserted independence from both the rAjaputras and marATha-s. 
 - Ranjit Singh (2 May 1745 – 6 December 1805), who beat back muslim mogol occupation, tried to support loosing maratha side upon asserting independence from them, ultimately bowing to the British.
+- Tikka Lal Tiploo, lawyer, activist, arrested SIX times by JK Govt. Perhaps the most vociferous voice for Kashmiri Hindus, Gunned down in his own mohalla, In Habba Kadal, Srinagar on Sep 14, 1989. Despite the threats and the violence, he was cremated with huge numbers of KPs in attendance. "Maa says that not a single Hindu ate a meal that day in the valley. "
