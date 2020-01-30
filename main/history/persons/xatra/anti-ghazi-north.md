@@ -82,7 +82,7 @@ title: Anti-ghazis (north)
 
 ## Jat rebels
 - Gokula Singh, died 1670 AD, who organized the Jat refusal to pay taxes and rebellion.
-- Raja Ram Singh (1670–1688), chieftain of Sinsini, who, to avenge the death of Gokula, Raja Ram looted Akbar's tomb and dragged Akbar's bones and burned them with the help of Ahir Zamindars of Braj, killed upon Awrangzeb's orders.
+- Raja Ram Singh (1670–1688), chieftain of Sinsini, who, to avenge the death of Gokula, Raja Ram looted Akbar's tomb and dragged Akbar's bones and burned them with the help of Ahir Zamindars of Braj, looted the mausoleum of Awrangzib’s parents, better known as Taj Mahal, stripping it of the precious stones, while the emperor’s uncle Shaista Khan, who was earlier humbled by Shivaji, now the Governor of Agra, helplessly looked on, fatally shot on 4 July 1688.
 - Maharaja Suraj Mal (February 1707 – 25 December 1763) or Sujan Singh,  whose forces competed and cooperated with marATha-s and beat back mogols to establish an independent state.
   - SJ joined Bhau with 10K troops towards Delhi. Marathas captured Delhi on 22 July 1760.
   - SJ promised Imad the Delhi Fort and Wazir's post. Bhau had refused having imad as wazir as he'd abandoned the fort twice without giving a fight, and as decided by nAnAsaheb.
