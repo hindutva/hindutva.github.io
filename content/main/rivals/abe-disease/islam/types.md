@@ -2,6 +2,28 @@
 title: Types
 ---
 
+## Legal divisions
+{{< figure src="../images/Maddhab_Map2.png" title="Maddhab map" >}}
+
+- Indian Muslims are largely Hanafi except Kerala where most are Shafi'i.
+- Current Islamic jurisprudence largely affirms the purported intolerant attitudes.
+
+### Prominent sunni schools
+
+- Hanbali jurisprudence is considered very strict and conservative, especially regarding questions of creed. Hanbali school holds that the two primary sources of Islamic law are the Qur'an and the prophetic tradition; the Hanbali school is known for its strong emphasis on verifying and utilizing the latter on equal ground with the former, whereas other schools granted the tradition a secondary role.
+- Hanafi : The sources from which the Hanafis derive Islamic law are, in order of importance and preference: the [Qur'an](http://en.wikipedia.org/wiki/Qur%27an), the authentic narrations of the Muslim prophet [Muhammad](http://en.wikipedia.org/wiki/Muhammad) ([hadith](http://en.wikipedia.org/wiki/Hadith)), consensus of the Muslim community ([ijma](http://en.wikipedia.org/wiki/Ijma)), analogical reasoning ([qiyas](http://en.wikipedia.org/wiki/Qiyas)), juristic discretion ([istihsan](http://en.wikipedia.org/wiki/Istihsan)) and the customs of the local population enacting said law ([urf](http://en.wikipedia.org/wiki/Urf)).
+- Shafi'i: In hierarchical order, the usul al-fiqh consist of: the Quran, the Sunnah of the Islamic prophet Muhammad, ijmā' ("consensus"), and qiyas ("analogy").
+- Maliki:
+    -  Mālik regarded the practices of Medina (the first three generations) to be a superior proof of the "living" sunnah than isolated, although sound, hadiths.
+- The Zahiri school of thought recognizes three sources of the Islamic law within the principles of Islamic jurisprudence. The first is the Qur'an, considered by Muslims to be the verbatim word of God; the second consists of the prophetic as given in historically verifiable reports, which consist of the sayings and actions of the Islamic prophet Muhammad; the last is absolute consensus of the Muslim community.
+
+### Prominent shia schools
+
+- Jaʿfari school: The time and space bound rulings of early jurists are taken more seriously in this school. It differs from the four schools or [madhhabs](http://en.wikipedia.org/wiki/Madhhab) of Sunni [jurisprudence](http://en.wikipedia.org/wiki/Fiqh) in its reliance on [ijtihad](http://en.wikipedia.org/wiki/Ijtihad), as well as on matters of inheritance, religious taxes, commerce, personal status and the allowing of temporary marriage or[mutʿa](http://en.wikipedia.org/wiki/Nikah_mut%E2%80%98ah).
+        - Zaidiyyah: In matters of Islamic jurisprudence, the Zaydis follow Zayd ibn ’Ali's teachings which are documented in his book Majmu’ al-Fiqh.
+        - Abathi
+    - "These schools share many of their rulings, but differ on the particular hadiths they accept as authentic and the weight they give to analogy or reason (qiyas) in deciding difficulties."
+
 ## Political demography of muslims
 
 - WikiIslam statistics [here](http://wikiislam.net/wiki/Muslim_Statistics).
