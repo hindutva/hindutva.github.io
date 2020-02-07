@@ -16,8 +16,9 @@ title: Iconoclasm
 
 ## North Europe
 ### England and Ireland
-- Bede account : [TW](https://twitter.com/blog_supplement/status/609518656482095104).
+- See Bede's account in [digestion](।/digestion/) page.
 - [IR15](http://www.belfasttelegraph.co.uk/news/northern-ireland/christian-extremists-steal-statue-of-celtic-sea-god-from-mountain-top-in-northern-ireland-30929777.html)
+
 
 ### Sweden
 - Adalward's designs. \[[TW](https://twitter.com/Rjrasva/status/603946356345024513)\]
@@ -45,6 +46,9 @@ title: Iconoclasm
 ## Africa
 - Nigeria
   - 2015 shrine attack [here](http://www.bloomberg.com/news/articles/2015-05-21/christians-mimic-islamists-in-attacks-on-nigerian-cultural-sites).
+
+## Persia
+See separate page.
 
 ## India
 Considered separately.

@@ -23,7 +23,6 @@ Doctrine of "discovery" - appropriation of non-christian territory.
 - 1823: US Supreme Court case Johnson v. M’Intosh made “discovery doctrine” explicit in US law. The court denied individuals permission to buy land from American Indian tribes \[nations\]. Under the doctrine, the court assumed only a sovereign United States could acquire the land, should the Indians choose to sell. In this decision, Indians were given a limited right of “occupancy” without full title to their own land, and could thus lose their land if they could not prove continuous occupancy. The doctrine was reframed in secular terms, in which the criterion for sovereignty became “cultivators of land” instead of “Christians.”
 - 1955: US Supreme Court case Tee-Hit-Ton Indians v. United States  relied on the doctrine of discovery. The court ruled that because “Tee-Hit-Tons were in a hunting and fishing stage of civilization” they had only a limited right of occupancy, and therefore the US was not required to reimburse the Tee-Hit-Ton for timber harvested from their land.
 
-
 ## Subversive missionaries
 - Past: [S15](https://storify.com/Ichimaru6174/christian-missionaries-colonialism?awesm=sfy.co_p0YNJ&utm_medium=sfy.co-twitter&utm_campaign=&utm_content=storify-pingback&utm_source=t.co).
 - portuguese jesuits in matupa empire of zimbabwe \[[AJ](http://academicjournals.org/article/article1381911925_Nicolaides.pdf)\]
@@ -33,4 +32,3 @@ Doctrine of "discovery" - appropriation of non-christian territory.
 - Akha people of Thailand: "Prisoners of a white God". \[[video](http://www.youtube.com/watch?v=2c5Xa5EOfuk)\]
 - Stolen generation of Australia. \[[page](http://t.co/1Z2ZtRGMbX)\]
 - Canadian Indian residential school system \[[wiki](http://en.wikipedia.org/wiki/Canadian_Indian_residential_school_system)\]
-
