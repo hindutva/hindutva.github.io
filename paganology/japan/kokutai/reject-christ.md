@@ -26,7 +26,7 @@ title: Fight against Christianity
     - death if that fails,
     - checking prostitutes \[[T](https://twitter.com/Rjrasva/status/604434746475728898)\]
 - Watching for reversion
-    - domestic surveillance of descendants for many generations,
+    - domestic surveillance of descendants for many generations, ("After the examination was fully institutionalized in 1687, direct descendants of discovered Kirishitan were carefully supervised for seven generations for men and four generations for women." - Ikuo Higashibaba)
     - public awareness through anti-christian events (which involved Public testing)
 - Guarding against repeat ignitions from outside
     - closing the country,
