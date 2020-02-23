@@ -9,6 +9,9 @@ Islam is the third major strain of Abraham's disease, where a "bug" in the previ
 
 ## Disclaimers and clarifications
 
+<div class="videoEmbed"  caption="" src="https://www.youtube.com/watch?v=qtVJe4eFGDk"></div>
+
+
 - We are not saying that all muslims are bad people - many are sensible enough not follow the example of their prophet or strictures of Qur'an. Yet, we say that Islam is a vile ideological disease, and should be contained for our own sake.
 - Please don't presume to psychoanalyze me and read hatred of muslims. On the contrary, we have no problems empathizing with Muslims at a human level. It is by a good accident of birth that I was not born a muslim. Many of us grew up with muslim friends, and have had many polite (sometimes frank) conversations with muslims.
     - We have received help from and have helped muslims. Further, we understand that Islam is not the only motivator of the good and bad actions of muslims.
