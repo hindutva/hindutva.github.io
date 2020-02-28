@@ -13,7 +13,7 @@ unicode_script: devanagari
 \[[WI](https://en.wikipedia.org/wiki/Dungan_Revolt_(1862%E2%80%9377))\]
 ### Prelude
 - Panthay 17 yr rebellion with heavy Mohammedan element, overlapped with Dungan jihad.
-- "Jahangir Khoja→Panthay Rebellion (1 mill dead)→1st Dungan (8-12 mill dead)1862–77 →2nd Dungan (1895 during 1st S-J war)"
+- "Jahangir Khoja→Panthay Rebellion (1 mill dead)→1st Dungan (8-12 mill dead) 1862–77 →2nd Dungan (1895 during 1st S-J war)"
 - Religious motivations
     - sUfi rAshidIn khwAja \[[TW](https://twitter.com/search?src=typd&q=from%3Arjrasva%20dungan)\].
     - Other notes: [TW1](https://twitter.com/Rjrasva/status/584697294471221249).
