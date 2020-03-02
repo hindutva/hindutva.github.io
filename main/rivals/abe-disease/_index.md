@@ -1,5 +1,5 @@
 ---
-title: +Abrahamisms generally
+title: +Abrahamisms
 ---
  
 
