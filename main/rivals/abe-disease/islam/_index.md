@@ -1,5 +1,5 @@
 ---
-title: +Islam
+title: +Islam मरून्मादः
 ---
 
 TL;DR : Muslim society is undesirable, despite a supposedly tolerant yet silent majority.
