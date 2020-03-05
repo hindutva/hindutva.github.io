@@ -1,5 +1,5 @@
 ---
-title: +Intro
+title: +Atheism
 ---
 
 ## As a maturation of Abrahamism
