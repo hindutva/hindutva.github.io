@@ -2,7 +2,83 @@
 title: Opindia Fake news
 ---
 
-We copy the below from [opindia.com](https://www.opindia.com/page/2/?s=Lies+spread), a news analysis site - just in case that website goes away in the future. 
+We copy the below top-fake-news-lists from [opindia.com](https://www.opindia.com/page/2/?s=Lies+spread), a news analysis site - just in case that website goes away in the future. 
+
+## 2019
+
+- 1\. [The Wire uses 2015 survey and laces it with lies to say mental health issues on the rise in Kashmir post abrogation of Article 370](https://www.opindia.com/2019/09/the-wire-uses-2015-survey-and-laces-it-with-lies-to-say-mental-health-issues-on-the-rise-in-kashmir-post-abrogation-of-article-370/)
+
+The report resorts to a classic propaganda method. It tries to add useless information in order to obfuscate from what the headline claims, that is, mental health deteriorating after the abrogation of Article 370. While the article includes a host of useless information that has nothing to do with the subject, it then uses conjecture and speculation to tie it all together and somehow, assert that Kashmiris are facing mental health issues after the abrogation of Article 370.
+
+The Wire headline clearly asserts that there is a mental healthcare crisis in the state owing to the decision of the central government, however, at the very outset of the article, The Wire simply admits that it is a mere prediction by doctors, who have not been named in the entire article. They then proceed to spin a yarn that would leave the readers dizzy. The Wire talks about a 2015 survey that they use as an indication of the mental health issues prevalent in Kashmir.
+
+\- article continues after ad - (adsbygoogle = window.adsbygoogle || \[\]).push({}); \- article resumes -
+
+The Wire article uses the statement of an anon physician to make a conclusion that the data does not support. Firstly, The Wire article proclaims that the number of health issue cases have gone up since the abrogation of Article 370. Then, they quote a physician to say that the actual effect of the move on mental health will be visible only a few years from now. Then, they use the lie about Kashmiris having no access to healthcare to insinuate that while mental health issues have increased, the cases in August are low because of no access to healthcare, however, since the cases were even lower in May and the highest in June, the data is inconclusive.
+
+- 2\. [Shekhar Gupta and The Print sell their soul, blame Yediyurappa for a Kumaraswamy era scandal that names Congress leaders](https://www.opindia.com/2019/08/shekhar-gupta-and-the-print-sell-their-soul-blame-yediyurappa-for-a-kumaraswamy-era-scandal-that-name-congress-leaders/)
+
+Most people had imagined that the Media industry had already fallen as far as they possibly could deep into the abyss of irresponsibility, paid news, propaganda and just blatant lies. However, Shekhar Gupta, the chief of Editors Guild and his ‘news’ portal The Print come as a stench of the rotting soul when they manage to stoop further at every given opportunity. Shekhar Gupta and The Print managed to blame the Yediyurappa government that was recently sworn in Karnataka for a scandal that had broken during the tenure of JDS’ Kumaraswamy and names Congress leaders like Ahmed Patel.
+
+While Tweeting a line from the transcript that said ‘Ahmed Patel said I will make him commissioner, Revanna will support’, Shekhar Gupta, the head of The Print and chief of Editors Guild, went on to peddle lies and allege that this was the first scandal that had hit the newly sworn-in Yediyurappa government. The line tweeted by Shekhar Gupta himself mentions senior Congress leader Ahmed Patel who is close to Sonia Gandhi and Rahul Gandhi and Revanna, who is the brother of former Karnataka Chief Minister from JDS, HD Kumaraswamy. The Print story itself started off by spreading lies and telling its readers that this scandal has turned the heat up on the BJP government in Karnataka.
+
+- 3\. [How media glossed over the fact that dancers were asked to strip at an Eid celebration and not just any ‘cultural event’](https://www.opindia.com/2019/06/how-media-glossed-over-the-fact-that-dancers-were-asked-to-strip-at-an-eid-celebration-and-not-just-any-cultural-event/)
+
+In a horrific incident, girls of the rainbow dance group were invited to perform for an event celebrating Eid and were then heckled by a mob and forced to strip naked and dance. One vehicle of the dance group was also attacked by axes and steel digger bars, causing substantial damage to the vehicle.
+
+The Rainbow dance group’s director Arup D Rabha filed an FIR with Boko police station regarding the incident, where he has named Kuddus Ali, Sayed Khan, Atikul Islam, Samajuddin, Jeherul Islam and Abbas Ali, along with all the members of the organising committee of the event as the accused in the case. Shahrukh Khan and Subahan Khan were arrested as well.
+
+The reportage surrounding this horrific incident was nothing short of shameful, to say the least. The Media has conveniently glossed over the fact that the horrific incident actually took place during an Eid celebration, staying true to their tradition of underreporting crimes related to the minority community.
+
+- 4\. [ECI explains in detail why reported ‘mismatch’ of data and allegations of ‘ghost votes’ being polled is fake news](https://www.opindia.com/2019/06/eci-explains-in-detail-why-reported-mismatch-of-data-and-allegations-of-ghost-votes-being-polled-is-fake-news/)
+
+Website NewsClick.com had published a malicious report peddling the ‘EVM hacked’ theory. The report alleged that thousands of phantom votes are suspected in several Lok Sabha constituencies in Bihar, UP, Delhi and MP. The website, which is a promoter of dubious Hate Crime Watch in association with FactChecker.in, says they analysed eight constituencies, where they found that excess votes recorded in these seats are more than the winning margin. OpIndia had [fact-checked the NewsClick report](https://www.opindia.com/2019/05/propaganda-website-newsclick-alleges-discrepancies-in-election-results-based-on-fake-data/) to show how these conclusions were drawn based on fake data using provisional data on the ECI website as the final voter turnout numbers. Later, the ECI issued a detailed clarification as well.
+
+- 5\. [Times of India spreads fake news, says Meerut student Umam Khanam was “harassed” for “not wearing a BJP cap”](https://www.opindia.com/2019/04/times-of-india-spreads-fake-news-says-meerut-student-umam-khanam-was-harassed-for-not-wearing-a-bjp-cap/)
+
+Times of India, one of the leading publications of the country, which often indulges in propagating fake news, was yet again caught peddling half-truths regarding the suspension of 22-year old Meerut Law Student.
+
+In a report, Times of India journalist Piyush Rai resorted to false propaganda to target the BJP by reporting that the 22-year old Meerut Law College student was suspended after she refused to wear a BJP cap. He further claimed that the “inebriated” students who had allegedly molested Umam Khanam for ‘refusing to put on a BJP cap’ were also rusticated.
+
+However, ground reports by Swati Goel Sharma of Swarajya and conversations OpIndia had with Khanam’s classmates proved conclusively that the entire thing was a giant hoax. In due course, the series of events as they panned out exposed the lies spread by TOI as well.
+
+- 6\. [Winner of Nobel Prize in Economics rubbishes ThePrint report about him helping Rahul Gandhi on election promises](https://www.opindia.com/2019/02/winner-of-nobel-prize-in-economics-rubbishes-theprint-report-about-him-helping-rahul-gandhi-on-election-promises/)
+
+On 31st January, ThePrint ran a report by one D. K. Singh who claimed that Angus Deaton, a British economist who won the Nobel Prize in Economics in 2015 along with French economist Thomas Piketty were advising the Congress on its minimum income guarantee program.
+
+ThePrint states that according to party leaders, the party reached out to the two economists since Rahul Gandhi had “studied their work”. However, when OpIndia reached out to Deaton, he denied being associated with Congress or Rahul Gandhi. In a one-line email, Deaton said that he has had no contact with Congress on this or anything else.
+
+The French economist Thomas Piketty, however, did confirm “exchanging with Congress about how much it would cost and how to implement this”. He added that “it is high time to move from the politics of caste conflict to the politics of income and wealth redistribution.” Thus, Shekhar Gupta’s ThePrint ran a story without confirming or verifying independently with the Nobel laureate and based it on what Congress leaders fed the journalist.
+
+- 7\. [The Print indulges in scaremongering, spreads fake news about the shortage of polio vaccine in the country](https://www.opindia.com/2019/01/the-print-indulges-in-scaremongering-spreads-fake-news-about-shortage-of-polio-vaccine-in-the-country/)
+
+On January 24, 2019, The Print published a rather alarming report saying that India doesn’t have polio vaccine for the next round of immunization. The report said that the country is facing acute shortage of polio vaccines, and due to that reason, the Modi government has indefinitely postponed the next polio immunization on February 3. According to The Print, there was a shortage of both types of vaccines, OPV and IPV (Oral Poliovirus Vaccine and Inactivated Poliovirus Vaccine, which is given by injection).
+
+The report published by The Print was fake, the government clarified that there was no shortage of polio vaccine in the country, and the immunisation programme had not been postponed indefinitely. They later updated their article with the clarification from the ministry, but the fake claims that they made in the report were still there.
+
+- 8\. [‘](https://www.opindia.com/2019/09/abhisar-sharma-chitra-tripathi-chandrayaan-fake-image-modi/)[Journalist’ Abhisar Sharma spreads fake news by morphing images to target other journalist, deletes after getting caught](https://www.opindia.com/2019/09/abhisar-sharma-chitra-tripathi-chandrayaan-fake-image-modi/)
+
+In his show on HW Network, a platform used by molestation accused Vinod Dua to propagate fake news as well, Abhisar Sharma edited images of the content of a show to target Aaj Tak journalist Chitra Tripathi. He posted a propaganda video to question the silence of some of the journalists after another controversial journalist and hero of Indian ‘liberal-secular’ media – Ravish Kumar won the Ramon Magsaysay award.
+
+Questioning their integrity, Abhisar Sharma put out an image of a show hosted by Chitra Tripathi in which it can be seen that the title card of the show has been carefully edited out by Abhisar Sharma to convey that the anchor credited Prime Minister Modi for the success of Chandrayaan-2 mission. However, in reality, there was no reference to PM Modi in the show.
+
+Chitra Tripathi’s show on Aaj Tak had a title “Ab Chaand Hamara Mutti Mein (Now, the moon is within our reach)”. But, Abhisar Sharma, who has an inherent hatred towards Prime Minister edited out the title part to “Ab Chaand Modi ki Mutti Mein (Now, the moon is within Modi’s reach) to target Chitra Tripathi.
+
+- 9\. [Shivam Vij and The Print brazen out allegations of inventing quotes, Shekhar Gupta says ‘we need to own up to failures’](https://www.opindia.com/2019/12/shivam-vij-lies-shekhar-gupta-led-the-print-brazen-it-out/)
+
+Well, Shekhar Gupta did not say ‘we need to own up to failures’. Certainly not in the context of Shivam Vij, contributing editor of Shekhar Gupta led The Print who concocted quotes and then brazened it out. Shekhar Gupta actually said this in 2007 when he was with the Indian Express. But since The Print believes in attributing decade-old quotes to current scenarios, we thought it would be a fun exercise to see how time changes context.
+
+Shivam Vij, the contributing editor of The Print, has been accused of inventing a quote out of thin air for his report titled ‘Why Kashmiri Pandits may never return to the Valley’. Shivam Vij used a conversation he claims to have had with author Arvind Gigoo in order to peddle his agenda. The son of the Kashmiri Pandit “quoted”, Siddhartha Gigoo, came out on Twitter and accused Shivam Vij of lying, saying that his father never gave such a quote and has never spoken to The Print.
+
+Shivam Vij claimed that the quote is accurate and was taken in 2010-2012. That is almost a decade ago when terrorism in Kashmir was at its peak. When Gigoo confronts Vij, shamelessly and brazenly, Vij asks Gigoo if ‘he has gone crazy’. The Print and Shivam Vij seem to be of the opinion that a decade-old opinion when the times and situations were different can simply be quoted out of context to suit their current propaganda. After this shameless display of arrogance by The Print and Shivam Vij, the publication led by Shekhar Gupta sneakily changed the paragraph where Arvind Gigoo was quoted.
+
+- 10\. [Half a million or 1 million? While media peddles fantastical claims, here are the actual number of troops deployed in Jammu and Kashmir](https://www.opindia.com/2019/08/half-a-million-or-1-million-while-media-peddles-fantastical-claims-here-are-the-actual-number-of-troops-deployed-in-jammu-and-kashmir/)
+
+One of the pet propaganda theory which emanated long back from Pakistan is that India has 700,000 troops deployed in Kashmir valley with the express purpose of holding down the people of Kashmir. As Ajai Shukla notes in a piece on this very subject: “Pakistani propaganda and Kashmiri human rights organisations, such as the influential J&K Coalition of Civil Society, repeatedly state that India controls Kashmir by deploying 700,000 security-men across the state. It is often alleged that half the Indian Army is based in J&K”.
+
+However, the situation has now further evolved. The latest number of Indian security personnel in Jammu & Kashmir is 1 million! Yes, that’s 1,000,000 troops deployed in Jammu & Kashmir with the express purpose to hold the local population, according to media that doesn’t much care about facts. Some others have a more nuanced approach; they claim that 500,000 or half a million troops are deployed in Kashmir (as against Jammu & Kashmir) to hold the province and ‘subjugate’ the local population.
+
+However, the actual numbers are very different. Read our story.
 
 ## 2018
 
