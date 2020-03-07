@@ -71,7 +71,13 @@ It is natural for NYT, Newyorker, BBC etc.. to write from the perspective of USA
 - [https://www.opindia.com/](https://www.opindia.com/) , a fact-checking site edited by [@UnSubtleDesi](https://twitter.com/UnSubtleDesi) as of 2020.
 - [https://www.pgurus.com/](https://www.pgurus.com/) for occasional exposes and opinions.
 - [Organizer - the RSS mag](https://www.organiser.org/index.html)
-- [http://indiafacts.org/](http://indiafacts.org/) for opinion pieces.
+- [http://indiafacts.org/](http://indiafacts.org/) for opinion pieces and annual Hindu human rights reports. 
+- [https://www.hinduhumanrights.info/](https://www.hinduhumanrights.info/) (Not to be confused with similar looking enemy run URL https://www.hindusforhumanrights.org/ ) 
+- [https://indictales.com/](https://indictales.com/) for opinion pieces.
+
 
 ### Video channels
-- YT: [Upword](https://www.youtube.com/channel/UChYyq0Rp017VYEQzrxOuSmQ), Rajiv Malhotra. 
+- Lots of them on YouTube.
+- YT: [Upword](https://www.youtube.com/channel/UChYyq0Rp017VYEQzrxOuSmQ)
+- Rajiv Malhotra channel.
+- Srijan foundation.
