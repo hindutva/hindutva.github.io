@@ -15,6 +15,7 @@ Details follow.
 
 - "Good" acts of muslims towards kufr, even when taken at face value (ie not taqiyyah), are notable precisely because they are extraordinary.
 - Islam severely impedes the ability of muslims to sympathize with kufr interests, just as loss of a limb severely impedes the ability of handicapped people to do mountaineering. What is perfectly natural for a normal healthy person is extraordinary for such a person. The extraordinary muslim who is good to kufr interests may be noted with excitement just as the extraordinary handicapped person climbing mount Everest. It is foolish to conclude from such examples that polio or the resulting "loss of limb" is no serious impediment to movement (let alone mountaineering).
+- See muslim typography [here](../types/).
 
 ### Limited potency of the mildly infected
 
@@ -22,6 +23,7 @@ Details follow.
 - So, while some may make some statements sympathizing with victims of jihaadi attacks, condemning terrorists - they hardly take to arms at a rate sufficient to neutralize their anti-kufr jihadi warriors. So, the net effect of Islam remains negative to the kufr population.
 - Rather, they tend to mostly cooperate (with or without misgivings) in heinous acts. So, it certainly matters what the RoP holy books say.
 - But, their "moderation" has very weak theological basis/ solid clerical support, as explained in a separate section.
+- Related streams: [#u3mob](https://twitter.com/search?q=%23u3mob&f=live)
 
 ![](../images/islamist_maNDalas.png)
 

@@ -27,6 +27,7 @@ title: Types
 ## Political demography of muslims
 
 - WikiIslam statistics [here](http://wikiislam.net/wiki/Muslim_Statistics).
+- Related streams: [#u3mob](https://twitter.com/search?q=%23u3mob&f=live)
 - Islamists vs Jihadists
     - Islamists are in favor of establishing a muslim state and curb infiedels "eventually"; but they are not willing to start or participate in a revolution to accomplish it "right now". Jihadists, on the other hand, want to do it \*now\* and are willing to kill/ die for it.
         - Jihadi kid in kAshmIra [1](https://www.youtube.com/watch?v=kgFPt1FqulE).
