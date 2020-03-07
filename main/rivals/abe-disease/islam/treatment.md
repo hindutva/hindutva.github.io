@@ -31,6 +31,7 @@ RoP is a memetic (ie mental) disease of epidemic proportions. It CANNOT coexist 
 - Koenraad's recommendations [here](http://koenraadelst.blogspot.com/2014/12/the-gentle-cure-for-intolerance.html).
 
 ## Examples
+- Related streams: [#u3down](https://twitter.com/search?q=%23u3down&f=live)
 - 2019: Sri Lanka bannded burqa type face covering after bomb blasts involving females and cross-dressing escapades. [RW19](https://www.republicworld.com/world-news/rest-of-the-world-news/sri-lanka-bans-all-facial-covering-from-april-29-in-the-wake-of-serial-blasts). "Among the nations that have enacted a ban on the item are Chad, Cameroon, Gabon, Morocco, Austria, Bulgaria, Denmark, France, Belgium, and Xinjiang, a Muslim-majority province in northwestern China, the paper reported."
 - 2018: Rwanda banned mosques in the capital, Kigali, from using loudspeakers. \[[BBC18](http://www.bbc.com/news/world-africa-43413645)\]
 - 2015-16: Tajikistan. Tajikistan has 99% Muslim population. But the state is wary of Jihadism and doesn't allow Hijab for girls, no kids in mosques and no loudspeakers either. Mosques can't have sermons longer than 15 min. Long beards are banned too. [DM](https://www.dailymail.co.uk/news/article-3409790/Tajikistan-removes-headscarves-1-700-women-shaves-beards-13-000-men-tackle-jihadism.html?ito=amp_twitter_share-top).  Arabic name ban. \[[G](http://www.theguardian.com/world/2015/may/08/tajikistan-islam-arabic-names-crackdown)\]. Other measures \[[IMG](http://i.imgur.com/oW5k6sZ.png)\].
