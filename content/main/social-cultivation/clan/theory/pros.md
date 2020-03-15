@@ -62,8 +62,8 @@ Not to deny exceptions (eg: Narendra Modi), of course, but as a general rule.
 - Some occupations were considered unclean and untouchable. Eg: Skinning dead animals, ferrying sewage. This violated popular notions of ritual purity in several paths of hindu self-cultivation.
 
 ## Self interest
-    - It was in the interest of powerful jAti-s to maintain their power by denying others a fair chance to compete in their specialized roles. This self interest, though real, finds no theological basis as a valid source of the jAti system.
+- It was in the interest of powerful jAti-s to maintain their power by denying others a fair chance to compete in their specialized roles. This self interest, though real, finds no theological basis as a valid source of the jAti system.
 
 ## Some origin stories
-    - \[[AS94](http://www.jstor.org/stable/606171?seq=1#page_scan_tab_contents)\] refers to puruSha-sUkta and dharmashAstra-s, a shUdra bhaTTa account and a vaishya agarvAla bhaTTa account
+- \[[AS94](http://www.jstor.org/stable/606171?seq=1#page_scan_tab_contents)\] refers to puruSha-sUkta and dharmashAstra-s, a shUdra bhaTTa account and a vaishya agarvAla bhaTTa account
 
