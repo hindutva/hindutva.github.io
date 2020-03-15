@@ -57,6 +57,8 @@ The **vaidika ideals** (../deva-s, xAtra, dharma, brahman, yajna ... mentioned i
 - Elsewhere they freely migrated (often upon invitation), bringing with them the attractive vaidika ideals and practices.
 - This facilitated the gradual Aryanization (= vedicization) of the host populations - even in the languages.
 - This was accompanied by brAhmaNa-s additionally learning (and even mastering) the local  languages and practices - to the extant of becoming active in their preservation and flowering. Eg. brAhmaNa participation in early tamiL, kannaDa and telugu literature.  
+- Later on, brAhmaNa-s would prove critical in resisting Christianity and Islam.
+    - Francis Xavier: "If it were not for the opposition of the Brahmins, we should have them all embracing the religion of Jesus Christ." ([FX](https://archive.org/details/LifeLettersOfStFrancisXavierV1/page/n189/mode/2up) Letter to the Society at Rome - 31 December 1543)
 
 #### Examples and analogies:
 - Andhra
