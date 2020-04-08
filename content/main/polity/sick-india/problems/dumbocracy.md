@@ -8,6 +8,7 @@ Here we examine problems of democracy and briefly consider alternative systems o
 - The "one person one vote" paradigm prominent in democracies rests on an unnatural, false assumption: That all men are equal in their abilities and judgement.
 - Politicians compete for attention and approval of masses (who in heterogeneous countries like India tend to be bottom heavy - ie dominated by incompetents). So, their legislative goals and administration becomes flawed.
     - "As ordinary citizens are encouraged to take part in the political life of the country, they have the power to directly influence the outcome of government policies through the democratic procedures of voting, campaigning and the use of press. The result is that government policies may be more influenced by non-specialist opinions and thereby the effectiveness compromised."
+    - Politicians spend far more time gathering money for reelection (not to mention their own retirement) than on sincere government. [US2019](https://bulletin.represent.us/much-time-congress-members-spend-fundraising/)
 - Political instability
     - this hinders general progress and business (which prefer stable guidelines)
     - This is exploited by our national and civilizational enemies.
@@ -19,7 +20,7 @@ Here we examine problems of democracy and briefly consider alternative systems o
     - Almost no truly effective organization is a democracy (esp. in our society). No company (let alone successful ones) is a democracy. No military is run democratically. Same with ISRO or police or administrative cadres.
 
 ## General assessments
-- DV Gundappa in his "maisUru divAnaru" part of "jNApaka-chitra-shAle": [audio-1.5x](https://archive.org/details/dvg-jnapaka-chitra-shaale-maisUrina-dIvAnaru-1.5x/24_Upasamhara_p1.mp3).
+- DV Gundappa in his "maisUru divAnaru" part of "jNApaka-chitra-shAle": [audio-1.5x p1](https://archive.org/details/dvg-jnapaka-chitra-shaale-maisUrina-dIvAnaru-1.5x/24_Upasamhara_p1.mp3), [p2](https://archive.org/details/dvg-jnapaka-chitra-shaale-maisUrina-dIvAnaru-1.5x/25_Rashtra_Samasthithiya_Mulasuthra_p1.mp3).
 - "Machiavelli put the idea that democracies will tend to cater to the whims of the people,  who follow false ideas to entertain themselves, squander their reserves, and do not deal with potential threats to their rule until it is far too late."
 
 ## Alternatives
