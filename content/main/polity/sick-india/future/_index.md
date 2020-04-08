@@ -5,9 +5,8 @@ title: +Future
 Whatever works is far more important than what sounds cool.
 
 ## Long term
-- Generally, our Abrahamistic (mostly muslim) brothers and sisters must be provided urgent help and treatment so as to rid them of their serious and dangerous memetic disease (more in the [treatment page](../../../rivals/abe-disease/islam/treatment/)).
-So what can be done to maximize our chances of victory? What is in our hands? 
-- We should clearly educate people (especially our families) about the nature of the dangerous memetic epidemic, the impossibility of long-term peaceful existence,  the urgent need to contain and treat the affected population. Our side should at least have as much clarity as the other side.
+- Generally, our Abrahamistic (mostly muslim) brothers and sisters must be provided urgent help and treatment so as to rid them of their serious and dangerous memetic disease (more in the [treatment page](../../../rivals/abe-disease/islam/treatment/)). So what can be done to maximize our chances of victory? What is in our hands? 
+    - We should clearly educate people (especially our families) about the nature of the dangerous memetic epidemic, the impossibility of long-term peaceful existence,  the urgent need to contain and treat the affected population. Our side should at least have as much clarity as the other side.
 - Having studied examples like contemporary and historic China, Tajikistan, Tokugawa Japan, Erdogan, Putin and growing modern orthodox influence in Israel, we should position clear-headed folks in important branches of the government, military, and administration. When the time comes, they should be ready to act decisively to secure and consolidate power; before proceeding with the treatment program. In other words, filling such posts must be given far more prestige than working for fancy corporations.
 
 ## Medium term
