@@ -4,7 +4,7 @@ title: kAshmIra
 
 
 ## Short term desiderata
-Article 370 repealed, that kAshmIri paNDits and any hindu-s willing to live there be resettled in kAshmIr with dignity.
+Article 370 should stay repealed, that kAshmIri paNDits and any hindu-s willing to live there be resettled in kAshmIr with dignity.
 
 ## Videos
 These Urdu Pakistani TV interviews with Pakistani journalist Najam Sethi summarizes my understanding of the situation (both the past and the present): [1](http://www.youtube.com/watch?v=9KwDFdevnyE) and [2](http://www.youtube.com/watch?v=Ye3NC0w4agQ). kAshmIri muslims seem to want freedom from India, while not joining Pakistan either. Terror spurt: ([India Today 1990](http://indiatoday.intoday.in/story/terrorism-takes-a-perilous-turn-in-kashmir/1/315063.html)). 
