@@ -27,4 +27,7 @@ Here we examine problems of democracy and briefly consider alternative systems o
 - Plato argues that only Kallipolis, an aristocracy led by the unwilling philosopher-kings (the wisest men), is a just form of government.
 - Mysore kingdom under the Wodeyars and their chief ministers (divAns) was one of the best administered states in the world. The chief minister was chosen based on merit from the administrative and engineering services, for a limited term. They tended to be highly effective, sincere, and incorruptible rulers. They were supported by an elected "prajA-pratinidhi-sabhA", who could only make suggestions to the chief minister who could dispense with the recommendations as he thought fit. The state of Karnataka which succeeded it pales in comparison.
 - See varNavatI [here](../../../../social-cultivation/clan/theory/fiction/varnavatii/).
+
+### Rigged democracies
+- Singapore has a strong de-ghettoisation policy: every electoral constituency is chinese majority; so less voice for malay islamists. The legacy of Lee Kuan Yew stays strong.
 - Share-based system: Every citizen living as of today (for example) gets a share in the nation. The total number of shares remains constant over time (just as in a company). Every time he has a child, he/ she forfeits a portion of his share to the child. Once he dies, his shares are divided among his children. So, if the muslim community grows from 10% to 50% in a hundred years, the problem is not as severe: they will continue to have only 10% share in the national political power.
