@@ -1,3 +1,3 @@
 ---
-title: Sick India
+title: +Sick India
 ---
