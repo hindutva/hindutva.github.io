@@ -15,10 +15,11 @@ Here we examine problems of democracy and briefly consider alternative systems o
 - Susceptibility to propaganda by manipulation of public opinion and opposition (see [subversion](../subversion/) page)
 - Corruption
 - Relatively more inefficient and harder to pivot.
-    - No company (let alone successful ones) is a democracy. 
+    - Almost no truly effective organization is a democracy (esp. in our society). No company (let alone successful ones) is a democracy. No military is run democratically. Same with ISRO or police or administrative cadres.
 
 ## General assessments
-- "Machiavelli put the idea that democracies will tend to cater to the whims of the people,[36] who follow false ideas to entertain themselves, squander their reserves, and do not deal with potential threats to their rule until it is far too late."
+- DV Gundappa in his "maisUru divAnaru" part of "jNApaka-chitra-shAle": [audio-1.5x](https://archive.org/details/dvg-jnapaka-chitra-shaale-maisUrina-dIvAnaru-1.5x/24_Upasamhara_p1.mp3).
+- "Machiavelli put the idea that democracies will tend to cater to the whims of the people,  who follow false ideas to entertain themselves, squander their reserves, and do not deal with potential threats to their rule until it is far too late."
 
 ## Alternatives
 - Plato argues that only Kallipolis, an aristocracy led by the unwilling philosopher-kings (the wisest men), is a just form of government.
