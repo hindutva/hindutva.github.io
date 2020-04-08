@@ -12,6 +12,7 @@ Here we examine problems of democracy and briefly consider alternative systems o
     - this hinders general progress and business (which prefer stable guidelines)
     - This is exploited by our national and civilizational enemies.
 - Short-termism
+- Susceptibility to intolerant demographically growing communities (eg. fanatical Muslims and Christians). This leads to the destruction of national ethos over generations.
 - Susceptibility to propaganda by manipulation of public opinion and opposition (see [subversion](../subversion/) page)
 - Corruption
 - Relatively more inefficient and harder to pivot.
@@ -23,3 +24,6 @@ Here we examine problems of democracy and briefly consider alternative systems o
 
 ## Alternatives
 - Plato argues that only Kallipolis, an aristocracy led by the unwilling philosopher-kings (the wisest men), is a just form of government.
+- Mysore kingdom under the Wodeyars and their chief ministers (divAns) was one of the best administered states in the world. The chief minister was chosen based on merit from the administrative and engineering services, for a limited term. They tended to be highly effective, sincere, and incorruptible rulers. They were supported by an elected "prajA-pratinidhi-sabhA", who could only make suggestions to the chief minister who could dispense with the recommendations as he thought fit.
+- See varNavatI [here](../../../../social-cultivation/clan/theory/fiction/varnavatii/).
+- Share-based system: Every citizen living as of today (for example) gets a share in the nation. The total number of shares remains constant over time (just as in a company). Every time he has a child, he/ she forfeits a portion of his share to the child. Once he dies, his shares are divided among his children. So, if the muslim community grows from 10% to 50% in a hundred years, the problem is not as severe: they will continue to have only 10% share in the national political power.
