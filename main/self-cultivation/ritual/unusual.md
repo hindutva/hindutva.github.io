@@ -59,7 +59,7 @@ Some unusual rituals involve some unusual components, some of which people may n
     - *‌ ४००-वर्षेभ्यो दीपोत्सवे स्फोटकादीनाम् प्रयोगो दृश्यत इति चित्रादिप्रमाणावलोकनेन स्पष्टम्। \[प्रमाण-[चित्राणि](https://www.quora.com/What-historical-connection-is-there-between-firecrackers-and-Diwali-When-did-Indians-start-bursting-crackers-and-how-did-it-become-a-part-of-our-culture/answer/Deep-Patel-77)\]
 
 ## Mock gambling
-    - Certain vaidika rituals
+- Certain vaidika rituals
 
 ## Unusual ritual equipment
 - Turbans
@@ -84,3 +84,7 @@ Some unusual rituals involve some unusual components, some of which people may n
     - "while true āvesa is full-fledged entering of a deity or force into another individual, thus altering his individuality completely, bhāvāvesa is a more specific experience, where the self-identity of the subject is not necessarily threatened." \[[IF16](http://indiafacts.org/brief-study-possession-hinduism-ii-spiritual-context/)\]
 - Christian version [FB16](https://archive.org/stream/apastamba/EkagniKandam#page/n13/mode/2up).
 
+## Drama
+### Prohibitions and support
+- ""kAvyAlApanshca varjayet" is often quoted by AlankArikas. They go into the defensive to prove that kAvya is not adhArmika. What Abhinvagupta quotes however from Manu is "kAmajo daSamo gaNaH" as being varjaneeya. In this group, he includes tauryatrikam as varjanIya. Tauryatrika includes nrtyageetavaadyam (tauryatrikam nRtyagItavAdyam nATyamidam trayam, Amarakosa)." (The smR^itikAra is only forbidding it for the king.)
+  - "Abhinavagupta says "etena kāmajo daśako gaṇaḥ (manu. 7-47) iti varjanīyatvena nāṭyasyānupādeyateti yatkecidāśaśaṅkire tadayuktīkṛtam". Natya brings kavya within its scope. Also, yājñavalkyasmṛtipurāṇādau cāsya praśaṃsā-bhūyastvaśravaṇāt (Abhinavagupta)"
