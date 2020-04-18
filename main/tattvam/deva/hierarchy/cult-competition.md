@@ -1,5 +1,5 @@
 ---
-title: Competition between cults of deities
+title: Competition among cults
 ---
 
 [![Rigveda deities](http://i.imgur.com/MiHbDlw.jpg)](https://twitter.com/blog_supplement/status/737037012390285312/photo/1) [![](https://pbs.twimg.com/media/C0ug3E8WIAE77EH.jpg)](https://twitter.com/blog_supplement/status/813921173390106624/photo/1)
