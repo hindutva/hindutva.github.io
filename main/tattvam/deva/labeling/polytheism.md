@@ -1,14 +1,20 @@
 ---
-title: Labeling
+title: Polytheism
 ---
 
-## Monotheism vs Polytheism
+## What is polytheism?
+- Polytheism is: "Any theological account in which the divine is not reducible to unity, but rather intrinsically plural."
 
-### Are hindu-s monotheists (in the abrahamist sense)?
+### Reducibility to unity
+- "Would the concept of the Trinity be an example of Divinity being intrinsically and irreducibly plural? Christians claim it is not (three persons, one substance)." 
+- "Polytheism can be understood in terms of all Gods being inherent in *each* God, rather than all Gods being inherent in *one* God. Some authors use the term "polycentric polytheism" to refer to this understanding." - Edward Butler
+
+
+## Are hindu-s monotheists (in the abrahamist sense)?
 - "The term "polytheism" does no conceptual violence to Hinduism, as monotheism clearly does. ... I was just struck by the emptiness of the claim, particularly given the tight etymological kinship between देव and θεός (- poly-devism -> poly-theism)." - EB
 - "Nowadays, very many Hindus will tell you that in essence, Hinduism is a monotheism. These Hindus are not even aware of the proper meaning of this word. Monotheism does not mean that you worship one God (already requiring a serious reinterpretation of the many Gods effectively worshipped by most Hindus, from the Vedic rishis on down), the way some Hindus choose one God to worship from among many, a phenomenon that scholars of religion call henotheism. Nor is it the inclusive oneness of a divine essence underlying all the gods, or monism, as enunciated in the profoundest Vedic verses. It means an exclusive worship of a jealous God banishing all others. Mono- does not mean “one”, as Hindus seem to think; it means “alone”, hence “not tolerating another”. It does not say: “Allah and Shiva are one”, it says: “Only Allah is true, burn Shiva.” So far, there is no such jealous God in Dharma." \[Koenraad Elst [here](http://koenraadelst.blogspot.in/2015/02/down-with-decolonization.html)\].
 
-### vaiShNava monotheism trope
+## vaiShNava monotheism trope
 
 "vaiShNavas are monotheist" is about as useful a characterization as "humans are apes". Point is that they are not "monotheistic" in the same sense as the desert madnesses. Clear significant points of deviation are:
 
@@ -22,12 +28,3 @@ Coming back to the immediate point - these sardaars show traits typical of secul
 
 Same applies to pAshupata-s and such shaiva-s.
 
-## (A)theism/ (a)dEvism?
-
-The English word God may to a hindu mean either a deity ([dEvatA](http://en.wikipedia.org/wiki/Deva_%28Hinduism%29)) or that which pervades everything ([brahman](http://en.wikipedia.org/wiki/Brahman)) (both of which are distinct from the Abrahamist notion of a true God). This leads to confusion while talking to Hindus. Hindu-s have a stronger need (because of unique conditioning) for distinguishing deva from brahman compared to say Egyptians or Japanese. So, their tendency to take God to mean brahman is quite understandable.
-
-This results in hindu-s confusingly (and to a certain extant, confusedly) identifying themselves as "monotheists" rather than polytheists, and calling their gods "demigods". This is misuse of an language (which is inadequate in the first place), given what these terms mean to others - like having to do arithmetic using the roman numerals rather than the hindu place-value numeric notation.
-
-The latter is mostly uncontrovertial, so we deal with the fomer.  
-
-Personal note: For all purposes practical to most atheists, I am an atheist (in that I don't believe in a god who orchestrates supernatural phenomena to answer prayers); yet in nearly all ways which matter to most theists, I am a theist.
