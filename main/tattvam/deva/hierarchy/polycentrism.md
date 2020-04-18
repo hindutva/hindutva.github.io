@@ -36,15 +36,6 @@ Definition: Mutual acknowledgement of certain multiple Gods (whatever the center
     - "Of a dramatist-philosopher-logician from 10th century, jayanta bhaTTa whose work serves as a prototype for the religion/counter-religion distinction and also alludes to the 'tacit recognition' we speak of..."
     - "nAvalar, a devout and orthodox shaiva teacher from shrI lanka who had to contend with western missionaries attacking shaivam. In a certain polemical treatise, he raises a question often asked by the Padres  "Why do you attack only us when there are others within your own religion who believe in gods other than shiva (viSNu, etc) as supreme?" nAvalar proceeds to answer along the lines that these deities are recognized by his own deity & therefore worshiping them is no fault while the "god" of the padres is not recognized; again, alluding to the 'tacit recognition' idea."
 
-## Distinction from monotheism
-- "These are not "pocket monotheisms" because they tacitly or explicitly presuppose that other Gods, who exist for them in a dependent status, can be and are experienced by others as at the center." \[[EB](https://endymions-bower.dreamwidth.org/56736.html)\]
-- " the degree of intimate entanglement that we see between diverse sects in a common polytheistic field, even where they display strong "single-pointedness", goes far beyond that of a congery of "wannabe monotheisms"." \[[EB](https://endymions-bower.dreamwidth.org/56736.html)\]
-
-## Risk in terms of understanding and classification
-- "A key reason that polytheisms will never be regarded by some as "proper" religions is because the full potential of a polytheistic field need not be present for any given individual worshiper (who may have a specific supreme deity as his focus)." \[[EB](https://endymions-bower.dreamwidth.org/56736.html)\]
-- "The monotheists and closeted monotheists will then argue that there is no such recognition (of polycentrism) and what one calls polytheism is simply an assemblage of "wannabe monotheisms"."  \[[EB](https://endymions-bower.dreamwidth.org/56736.html)\]
-- "this is the erasure of polytheisms as religions, that they are conceived as mere material assemblages that necessarily disintegrate under analysis. This means that only credal faiths can count as "religions"." \[[EB](https://endymions-bower.dreamwidth.org/56736.html)\]
-
 ## Importance of the polycentric discourse:
 - "Where the polycentric polytheistic field is explicitly articulated as such, we have the perfection of a philosophical discourse about religion, but this perfection is not a condition for the existence of polytheism as such, or for its essential polycentricity." \[[EB](https://endymions-bower.dreamwidth.org/56736.html)\]
 - "It is just that our thinkers & leaders are yet to fully grapple with this depth of discourse. Many of them would not be able to formulate a decent explanation of why this tacit recognition is more pronounced than one would give credit for & is indeed adequate." \[[EB](https://endymions-bower.dreamwidth.org/56736.html)\]
