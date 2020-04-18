@@ -3,7 +3,7 @@ title: +Abrahamisms
 ---
  
 
- ![](https://i.imgur.com/oqx33bV.jpg?1)
+![](https://i.imgur.com/oqx33bV.jpg?1)
 
 "If Hinduism is a single religion, consistency requires Judaism, Xianity & Islam be categorised as sects of a single religion." \- Stietencron  
 
@@ -19,6 +19,9 @@ With rare exceptions, all abrahamisms agree on some basic concepts. Abrahamisms 
   - BG [here](https://www.youtube.com/watch?v=MDNTP53TCxA), [here](https://www.youtube.com/watch?v=MDNTP53TCxA).
   - Also see [here](../../../tattvam/deva/index/).
   - Hegel's excellent observation [IMG](http://i.imgur.com/TLjScks.jpg), [prospects_folk](https://www.marxists.org/reference/archive/hegel/works/pc/tubingen.htm).
+
+### Counter religious nature
+- Abrahamisms = "Prophetic desert cults with replacement theology, where a later iteration abnegates the previous one. Mo's genius is to seal the possibility by declaring himself to be final."
 
 ### Restrictions on worship
 See [worship-restrictions](../worship-restrictions/) page.
@@ -88,7 +91,6 @@ See [worship-restrictions](../worship-restrictions/) page.
 - KE's summary: Christianity vs Hinduism/ paganism [1](http://www.hinduhumanrights.info/hinduism-and-paganism-the-christian-challenge/).
 - As a memetic virus or plasmid vs vertically inherited trait - MT [here](https://manasataramgini.wordpress.com/2013/07/20/khilonmada-charcha/).
 - Rabid dogs and the elephants - [KV16](https://agnimaan.wordpress.com/2015/12/19/rabid-dog-barks-at-the-elephant/).
-- Dark chock, milk chock, multi chock parody [TW17](http://i.imgsafe.org/3198c11164.jpg).  
 
 
 ## Effects on biological fitness
