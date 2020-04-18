@@ -14,7 +14,7 @@ title: +Hierarchy and Competition
 ### Mechanisms for establishing harmony
 Even though myths meant to help devotional practice and adoration centered on a certain deity show conflicts and even denigration of deities - they are not to be taken literally. The following mechanisms are used to effect harmony.
 
-- arthavAda and nahi-nindA-nyAya (../see [authority-contets](authority-contets/))
+- arthavAda and nahi-nindA-nyAya (see [authority-contets](authority-contets/))
 - The nature of myth
 - [Polycentrism](../Polycentris/) (described separately)
 
