@@ -10,7 +10,8 @@ title: Polytheism
 - "Would the concept of the Trinity be an example of Divinity being intrinsically and irreducibly plural? Christians claim it is not (three persons, one substance)." 
 
 #### Position of henotheism
-- Per this definition, monotheism can be thought to encompass henotheism where one reveres a single god as the only one in a given hymn and the others are at that time ignored.
+- See [henotheism](../henotheism/) page for intro.
+- Based on whether these Gods are considered fundamentally distinct, monotheism (by the "broader" reducibility test) or polytheism can encompass henotheism.
 - "Polytheism can be understood in terms of all Gods being inherent in *each* God, rather than all Gods being inherent in *one* God. Some authors use the term "polycentric polytheism" to refer to this understanding." - Edward Butler
 
 ### Stronger definition: aloneness in the God class

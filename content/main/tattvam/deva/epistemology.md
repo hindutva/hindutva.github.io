@@ -57,7 +57,7 @@ title: Essence
     - ayodhyA (in some kAvya)
 
 ## Deification and expansion
-Also see notes on absorption of foreign deities at the [deity competition page](../hierarchy/competition/).
+Also see notes on absorption of foreign deities at the [deity competition page](../hierarchy/cult-competition/).
 
 ### Transplantation into new shrines
 - Trinidad and Tobago
