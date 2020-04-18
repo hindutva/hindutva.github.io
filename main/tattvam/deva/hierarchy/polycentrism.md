@@ -19,6 +19,7 @@ Polycentrism is one way the harmony among the deva-s manifests itself.
 
 ### Polycentrism with full mutual metaphysical acceptance
 Different people may be centered on different such Gods (oft from a limited set), with mutual acceptance of such centerings showing the following traits:
+
 - It is of the "my mother is the best mother in the world" kind.
 - From a metaphysical perspective, there is no doubt that other centers than one's own can fully play the role of adoration "center".
 

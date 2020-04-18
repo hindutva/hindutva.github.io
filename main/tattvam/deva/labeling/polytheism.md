@@ -32,6 +32,8 @@ title: Polytheism
 - " the degree of intimate entanglement that we see between diverse sects in a common polytheistic field, even where they display strong "single-pointedness", goes far beyond that of a congery of "wannabe monotheisms"." \[[EB](https://endymions-bower.dreamwidth.org/56736.html)\]
 
 ## Is cult x monotheist?
+Recognition of "plausible supreme Godhood"  of deities of other cults is oft tacit ([EB](https://endymions-bower.dreamwidth.org/56736.html)). Just as "Hinduism" existed before the word came to be:  It is the marvellous genius of platonists and E Butler to have made it explicit.
+
 ### Is vaiShNavism monotheist?
 Vaishnavism is clearly not monotheist in the strong "alone God" sense. Clear significant points of deviation are:
 
