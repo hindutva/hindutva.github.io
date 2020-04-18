@@ -31,12 +31,13 @@ title: Polytheism
 - "These are not "pocket monotheisms" because they tacitly or explicitly presuppose that other Gods, who exist for them in a dependent status, can be and are experienced by others as at the center." \[[EB](https://endymions-bower.dreamwidth.org/56736.html)\]
 - " the degree of intimate entanglement that we see between diverse sects in a common polytheistic field, even where they display strong "single-pointedness", goes far beyond that of a congery of "wannabe monotheisms"." \[[EB](https://endymions-bower.dreamwidth.org/56736.html)\]
 
-## Is vaiShNavism monotheist?
-Vaishnavism is clearly not monotheist in the strong sense. Clear significant points of deviation are:
+## Is cult x monotheist?
+### Is vaiShNavism monotheist?
+Vaishnavism is clearly not monotheist in the strong "alone God" sense. Clear significant points of deviation are:
 
 - \* viShNu can appear in avatAra-s a multitude of whom are adored.
 - \* viShNu has a consort, a vehicle and innumerable servants and devotees who are also adored as being in the "God" class (though not as being in the "supreme God" class).
 - \* Even shiva, shakti, skanda etc.. are considered limited aspects of viShNu, and as such their adoration is not considered evil - merely inferior from one's own perspective. They are not characterized as "false gods" (in the sense of the semitic cancers). This is non-exclusivism.  
 
-## Is siddhAnta-shaivism monotheist?
+### Is siddhAnta-shaivism monotheist?
 Obviously not monotheist in the "strong sense". Not monotheist in the weak sense either! There are lots of beings who become "Shivas" equal in potency to the "primary active Shiva". More in the "[hierarchy/shaiva-siddhAnta-view](../hierarchy/shaiva-siddhAnta-view/)" page.
