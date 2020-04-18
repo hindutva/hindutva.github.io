@@ -10,7 +10,7 @@ sikhism has latent abrahamist tendencies. In a way, it is proto-islamophile-secu
     - hard core khAlistanis who don't even accept dahsam granth.
 
 ### Anti-hindu patterns
-Some disturbing patterns include:
+Many sardaars show traits typical of secularists - on the surface turned their backs on mosaic religion, while retaining the same disdain for heathens and their practices. In other words, the particular beliefs are different, but patterns in thoughts and practices remain like a poison dart stabbing heathen welfare. Some disturbing patterns include:
 
 - Equating hinduism with inimical abrahamisms
 - image worship (and many other hindu activities) are considered "superstition" - the video fits right in. (This should remind you of the anti-superstition = anti-hindu legislation of our sickular overlords). This often degenerates to active iconoclasm or tolerance of iconoclasm - (W1, [W2](https://en.wikipedia.org/wiki/Idolatry_in_Sikhism#Smiting_of_the_nose_of_Durga.27s_idol)) and mocking of hindu rituals (upanayana, tarpaNa by guru NAnak, durgA pUjA by some later guru according to some accounts).
