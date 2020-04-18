@@ -8,6 +8,9 @@ title: Polytheism
 
 #### Examination
 - "Would the concept of the Trinity be an example of Divinity being intrinsically and irreducibly plural? Christians claim it is not (three persons, one substance)." 
+
+#### Position of henotheism
+- Per this definition, monotheism can be thought to encompass henotheism where one reveres a single god as the only one in a given hymn and the others are at that time ignored.
 - "Polytheism can be understood in terms of all Gods being inherent in *each* God, rather than all Gods being inherent in *one* God. Some authors use the term "polycentric polytheism" to refer to this understanding." - Edward Butler
 
 ### Stronger definition: aloneness in the God class
@@ -22,6 +25,8 @@ title: Polytheism
 Vaishnavism is clearly not monotheist in the strong sense. Clear significant points of deviation are:
 
 - \* viShNu can appear in avatAra-s a multitude of whom are adored.
-- \* viShNu has a consort, a vehicle and innumerable servants and devotees who are also adored in about the same way as viShNu.
+- \* viShNu has a consort, a vehicle and innumerable servants and devotees who are also adored as being in the "God" class (though not as being in the "supreme God" class).
 - \* Even shiva, shakti, skanda etc.. are considered limited aspects of viShNu, and as such their adoration is not considered evil - merely inferior from one's own perspective. They are not characterized as "false gods" (in the sense of the semitic cancers). This is non-exclusivism.  
 
+## Is siddhAnta-shaivism monotheist?
+Obviously not monotheist in the "strong sense". Not monotheist in the weak sense either! There are lots of beings who become "Shivas" equal in potency to the "primary active Shiva". More in the "[hierarchy/shaiva-siddhAnta-view](../hierarchy/shaiva-siddhAnta-view/)" page. 
