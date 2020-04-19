@@ -1,5 +1,5 @@
 ---
-title: +Intro
+title: +Kokutai
 ---
 ### Development of kokutai
 
