@@ -2,7 +2,7 @@
 title: Polycentrism
 ---
 
-Polycentrism is one way the harmony among the deva-s manifests itself.
+Polycentrism is one way the strong harmony among the deva-s manifests itself. 
 
 ## Definition
 - "Polytheism can be understood in terms of all Gods being inherent in *each* God, rather than all Gods being inherent in *one* God. Some authors use the term "polycentric polytheism" to refer to this understanding." - Edward Butler
@@ -40,3 +40,6 @@ Definition: Mutual acknowledgement of certain multiple Gods (whatever the center
 ## Importance of the polycentric discourse:
 - "Where the polycentric polytheistic field is explicitly articulated as such, we have the perfection of a philosophical discourse about religion, but this perfection is not a condition for the existence of polytheism as such, or for its essential polycentricity." \[[EB](https://endymions-bower.dreamwidth.org/56736.html)\]
 - "It is just that our thinkers & leaders are yet to fully grapple with this depth of discourse. Many of them would not be able to formulate a decent explanation of why this tacit recognition is more pronounced than one would give credit for & is indeed adequate." \[[EB](https://endymions-bower.dreamwidth.org/56736.html)\]
+
+## References
+- [Gods and Brahman](https://www.indictoday.com/research/the-gods-and-brahman/)
