@@ -12,6 +12,7 @@ title: Polytheism
 #### Position of henotheism
 - See [henotheism](../henotheism/) page for intro.
 - Based on whether these Gods are considered fundamentally distinct, monotheism (by the "broader" reducibility test) or polytheism can encompass henotheism.
+- Connection with brahman - see [polycentrism](../../hierarchy/polycentrism/) .
 - "Polytheism can be understood in terms of all Gods being inherent in *each* God, rather than all Gods being inherent in *one* God. Some authors use the term "polycentric polytheism" to refer to this understanding." - Edward Butler
 
 ### Stronger definition: aloneness in the God class
