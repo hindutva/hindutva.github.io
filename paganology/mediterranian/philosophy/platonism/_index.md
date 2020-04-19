@@ -1,5 +1,5 @@
 ---
-title: +Intro
+title: +Platonism
 ---
 
 ## Intro
