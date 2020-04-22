@@ -6,6 +6,8 @@ title: +News rags
 ### General summary
 Many news outlets (English, Muslim etc.) have a very anti-hindu and anti-India bias. Hindus find it a complete (often painful) waste of time to even look at their articles, if they are about Hindus or India.
 
+- See [sphulinga/ragsAgainstH](https://sphulinga.wordpress.com/category/twitter/ragsAgainstH/) stream
+
 To quote [@nntaleb](https://twitter.com/nntaleb/status/1103000712970158086): 
 - “Newspapers have officially the right facts, but their interpretations are imaginary – and their choice of facts are arbitrary. They lie with right facts; a novelist says the truth with wrong facts.”, and
 - “Every single fact in the NYT is true. Every bit of news is flase.”

@@ -4,7 +4,7 @@ title: +IYI - Intro
   
 
 ## Characteristics
-
+- See [sphulinga/hdegenerates](https://sphulinga.wordpress.com/category/twitter/hdegenerates/) stream
 - Lack of "care for data" juxtaposing abstraction in high IQ people [MT15](https://manasataramgini.wordpress.com/2015/12/23/lutika-somakhyo%E1%B8%A5-pravada%E1%B8%A5/).
 - Lack of deep intelligence and respect (to the point of deep disaffection) for time-tested classical/ naturally selected thought despite education [NNT16](https://medium.com/@nntaleb/the-intellectual-yet-idiot-13211e2d0577#.lepgset6y), [OGS16](https://twitter.com/OGSaffron/status/796270938195165185).
     - ""Q: What is it that intellectuals find so attractive about Maoist, Naxalite, and separatist ideologies? A: They are intellectual in origin. " [OGS16](https://twitter.com/OGSaffron/status/796270938195165185).

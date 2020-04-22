@@ -8,6 +8,9 @@ title: Good-muslim con
 
 - avidyA (ignorance): "Good acts of some muslims towards kufrs prove the benignness of Islam."
 - vidyA (knowledge): "Considering both good and bad acts of muslims, Islam is a virulent memetic disease of epidemic proportions with an overwhelmingly net negative effect on the host kufr population."
+- See [sphulinga/u3mob](https://sphulinga.wordpress.com/category/twitter/u3mob/) stream
+- See [sphulinga/u3support](https://sphulinga.wordpress.com/category/twitter/u3support/) stream
+
 
 Details follow.
 
