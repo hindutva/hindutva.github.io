@@ -7,6 +7,8 @@ title: Christianity प्रेतमतम्
 
 - See [general evaluation here](../abe-disease/).
 - The classic baptist condemnation of Hiduism with concepts such as "true vs false gods", "importance of using the right name for god", devil-worship, the coming of the anti-christ etc.. [here](https://www.youtube.com/watch?v=r8nWky51XCc).
+- See [sphulinga/u2mob](https://sphulinga.wordpress.com/category/twitter/u2mob/) stream
+- See [sphulinga/u2down](https://sphulinga.wordpress.com/category/twitter/u2down/) stream
 
 ### Mutations
 

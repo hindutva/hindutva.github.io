@@ -31,6 +31,7 @@ RoP is a memetic (ie mental) disease of epidemic proportions. It CANNOT coexist 
 - Koenraad's recommendations [here](http://koenraadelst.blogspot.com/2014/12/the-gentle-cure-for-intolerance.html).
 
 ## Examples
+- See [sphulinga/u3down](https://sphulinga.wordpress.com/category/twitter/u3down/) stream
 - Related streams: [#u3down](https://twitter.com/search?q=%23u3down&f=live)
 - 2019: Sri Lanka bannded burqa type face covering after bomb blasts involving females and cross-dressing escapades. [RW19](https://www.republicworld.com/world-news/rest-of-the-world-news/sri-lanka-bans-all-facial-covering-from-april-29-in-the-wake-of-serial-blasts). "Among the nations that have enacted a ban on the item are Chad, Cameroon, Gabon, Morocco, Austria, Bulgaria, Denmark, France, Belgium, and Xinjiang, a Muslim-majority province in northwestern China, the paper reported."
 - 2018: Rwanda banned mosques in the capital, Kigali, from using loudspeakers. \[[BBC18](http://www.bbc.com/news/world-africa-43413645)\]
