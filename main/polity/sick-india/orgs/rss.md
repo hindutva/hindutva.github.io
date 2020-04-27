@@ -37,17 +37,21 @@ title: RSS
 - The RSS was founded in 1925 and its thinking has hardly evolved since then. Its “nationalism” is coloured by its genesis within an anti-colonial struggle as well as by then-popular European notions of a monolithic nation-state. It still glorifies Guru Golwalkar who died back in 1973, and has not produced any original ideologues ever since. \[[KE](http://centreright.in/2014/08/the-modi-governments-hindu-agenda/#.U_Ndlj2x3Ua)\]
 - The allegation that the RSS remained aloof from the freedom movement, however, is  answered with the detail about RSS volunteers’ participation in the Quit India agitation of 1942 (p.233-239) \[[KE](http://centreright.in/2014/08/the-modi-governments-hindu-agenda/#.U_Ndlj2x3Ua)\]
 
+### Media capability
+- "On the other hand, his peaceful and civilized but weak argumentation was a logical illustration of a deliberate policy pursued since the 1920s. It was in line with the old RSS's boy-scout mentality of disdain for all communication ("do well and don't look back"). Founder KB Hedgewar, who had started out as member of a revolutionary wing of the Freedom Movement, with secretive and purely oral communication to avoid discovery by the police, installed in his new organization a hostility to any concern for outside approval, and to the media and their narrative. A consequence today is that RSS spokesmen are gravely lacking in communication skills. On average, they have a far better case than their clumsy performance in interviews and TV debates would suggest." [KE](http://koenraadelst.blogspot.com/2017/11/western-tv-about-rss.html)
+- RSS comes across as an extremely slow learner, mostly taking the slander lying down and never developing a counter-strategy or acquiring the resources to turn the tables. \[[KE](http://centreright.in/2014/08/the-modi-governments-hindu-agenda/#.U_Ndlj2x3Ua)\]
+
 ## Effectiveness of RSS:
-- Protecting native traditions
-    - The common volunteers often do sterling work. Thus, the Gathering of the Elders is a beautiful example of international bridge-building with other pre-Christian communities, achieved by an overseas RSS office-bearer, Prof. Yashwant Pathak. A delegation from Arunachal Pradesh testified to me how a handful of RSS men had generated self-organization and mobilization for survival to the natives against the offensive of the Christian missionaries, and thus stopped conversions. \[[KE](http://koenraadelst.blogspot.be/2015/02/three-views-of-hindu-activism.html)\]
-    - A well-known journalist testified how in his district of Kanyakumari, the nervousness and fear of the Hindu community due to Christian aggression evaporated once the RSS became active there.  \[[KE](http://koenraadelst.blogspot.be/2015/02/three-views-of-hindu-activism.html)\]
-- Protecting Indian (esp. Hindu) lives
-    - Older people have told me about the good work and even self-sacrifice by RSS workers to save Partition victims or to defend Srinagar airport until the Indian troops arrived. As this book documents, RSS volunteers have gone out of their way to save Sikhs during the 1984 Congress-engineered pogrom against them (p.177-179).  \[[KE](http://koenraadelst.blogspot.be/2015/02/three-views-of-hindu-activism.html)\]
-- Leadership problems
-    - My meetings with RSS foot soldiers have mainly been positive. On the other hand, as SR Goel had observed, “the higher you go, the bigger the duffer you meet”. \[[KE](http://koenraadelst.blogspot.be/2015/02/three-views-of-hindu-activism.html)\]
-    - The cluelessness and inactivity on the Hindu front by the BJP ministers of the erstwhile Vajpayee and several state governments show the limited (or even reverse) effectiveness of the much-flaunted RSS grooming. \[[KE](http://koenraadelst.blogspot.be/2015/02/three-views-of-hindu-activism.html)\]
-- (Non)Reaction to slander
-    - RSS comes across as an extremely slow learner, mostly taking the slander lying down and never developing a counter-strategy or acquiring the resources to turn the tables. \[[KE](http://centreright.in/2014/08/the-modi-governments-hindu-agenda/#.U_Ndlj2x3Ua)\]
+### Protecting native traditions
+- The common volunteers often do sterling work. Thus, the Gathering of the Elders is a beautiful example of international bridge-building with other pre-Christian communities, achieved by an overseas RSS office-bearer, Prof. Yashwant Pathak. A delegation from Arunachal Pradesh testified to me how a handful of RSS men had generated self-organization and mobilization for survival to the natives against the offensive of the Christian missionaries, and thus stopped conversions. \[[KE](http://koenraadelst.blogspot.be/2015/02/three-views-of-hindu-activism.html)\]
+- A well-known journalist testified how in his district of Kanyakumari, the nervousness and fear of the Hindu community due to Christian aggression evaporated once the RSS became active there.  \[[KE](http://koenraadelst.blogspot.be/2015/02/three-views-of-hindu-activism.html)\]
+
+### Protecting Indian (esp. Hindu) lives
+- Older people have told me about the good work and even self-sacrifice by RSS workers to save Partition victims or to defend Srinagar airport until the Indian troops arrived. As this book documents, RSS volunteers have gone out of their way to save Sikhs during the 1984 Congress-engineered pogrom against them (p.177-179).  \[[KE](http://koenraadelst.blogspot.be/2015/02/three-views-of-hindu-activism.html)\]
+
+### Leadership problems
+- My meetings with RSS foot soldiers have mainly been positive. On the other hand, as SR Goel had observed, “the higher you go, the bigger the duffer you meet”. \[[KE](http://koenraadelst.blogspot.be/2015/02/three-views-of-hindu-activism.html)\]
+- The cluelessness and inactivity on the Hindu front by the BJP ministers of the erstwhile Vajpayee and several state governments show the limited (or even reverse) effectiveness of the much-flaunted RSS grooming. \[[KE](http://koenraadelst.blogspot.be/2015/02/three-views-of-hindu-activism.html)\]
     
     
 ## Mildness
