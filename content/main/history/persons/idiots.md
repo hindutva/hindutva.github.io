@@ -12,6 +12,7 @@ title: Idiots
 Popular claims of this class includes: "All religions are equal." "Idolatory is stupid."
 
 - chakradhara (originally a brahmin haripaldeva who came under the influence of a heterodox saint govinda prabhu), whose mAnabhAv (mahAnubhAva) cult spread havoc in the yAdava kingdom prior its decimation at muslim hands. \[[MT](https://manasataramgini.wordpress.com/2005/11/13/the-cracks-in-the-edifice/)\]
+- basavaNNa, who refused upanayana, found refuge with kAlAmukha-s, started spouting "all men are equal, caste is bad", led to increased social upheaval, which contributed to weakening of hindu principalities before the coming of the bearded barbarians. Even his own employer vijyAla (aka bijjala), the chAlukyan mahAmaNDaleshvara was killed and his kingdom went through "upaplava". Even basvaNNa was very distraught at what his minions wrought on his patron vijyAla - but too late. basavaNNa's degeneracy was a betrayal of the orthodox kAlAmukha guru lineage which gave him refuge and guidence.
 - guru nAnak, founder of the proto-islamophile-sickular sIkh sect.
 - rAjA-rAm mOhan Roy, social reformer who rebelled against sati, but was otherwise flawed.
 - rAmakRShNa-paramahamsa, \[[Harmony of religions teaching](https://en.wikipedia.org/wiki/Teachings_of_Ramakrishna#Harmony_of_religions)\], who inspired the great hindu propagandist svAmin vivekAnanda.

@@ -53,4 +53,4 @@ Where there are heroes, villains are no surprise. Many were self-professed ghAzi
 
 These bring the sanAtana dharma to disrepute, even as they deceive feeble hindu-s.
 
--  Swami Nithyananda - the center of a sex scandal in 2010s. Watch the [video](https://www.youtube.com/watch?v=eyTT2UrTSCc) where he gleefully dances over his father's corpse, then 'liberates' it by stomping on its forehead, gives it diksha post mortem, and declares it a sishya-turned-sanyasi.
+-  Swami Nithyananda - the center of a sex scandal in 2010s. There was a [video](https://www.indiatvnews.com/news/india/new-video-nithyananda-celebrating-father-s-body-16939.html) where he gleefully dances over his father's corpse, then 'liberates' it by stomping on its forehead, gives it diksha post mortem, and declares it a sishya-turned-sanyasi.
