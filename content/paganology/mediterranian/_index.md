@@ -19,7 +19,7 @@ title: +Mediterranian
 See separate page.
 
 ### Minoans
-- Minoans (-> Eteocretans) with Linear A script
+- Minoans (→ Eteocretans) with Linear A script
 
 ### Greece and Rome
 
