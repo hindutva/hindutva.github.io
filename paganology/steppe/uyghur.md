@@ -2,7 +2,7 @@
 title: Uyghur
 ---
 
-- Tocharians and shaka-s -> uighur (with significant genetic input)
+- Tocharians and shaka-s → uighur (with significant genetic input)
 - "The Uighur Turks, who absorbed the earlier Indo-European Tocharian civilization, showed how a genuine steppe potentate, which mixes militarism directed against sedentary populations and trade with them, could emerge. Notably, they laid the foundations for many aspects of the government of a steppe empire, which the later Mongols would adopt. These included the first script of the Chingizid Mongols. Ironically, they were a major bulwark against the spread of Mohammedanism into the eastern steppes; thus, they allowed the survival and subsequent efflorescence of heathen steppe cultures." {[MT](https://manasataramgini.wordpress.com/2017/07/30/mongolica-chingiz-khan-and-the-rest/)}
 
 ## Founding in Mongolia

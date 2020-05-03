@@ -23,5 +23,5 @@ title: Tibet
         - Shangpa Kagyu (shang pa bka’ brgyud)
         - Jonang (jo nang)
             - Transmission from India through yogi-s continued until 1600-s:
-                - (advaita-[like](https://en.wikipedia.org/wiki/Jonang) jona~N sect later suppressed by geluk-s) Tirthanatha, Brahmanatha, Krishnanatha likely of the syncretic Natheshvari sect +  siddha shAntigupta -> buddha-gupta-nAtha \[[bio1](https://undumbara.wordpress.com/2009/05/07/buddhaguptanatha-and-the-late-survival-of-the-siddha-tradition-in-india-d-templeman/), [bio2](http://rywiki.tsadra.org/index.php/Buddhagupta-natha)\] -\> tAranAtha \[[TW17](https://twitter.com/blog_supplement/status/888947871017578496)\]
+                - (advaita-[like](https://en.wikipedia.org/wiki/Jonang) jona~N sect later suppressed by geluk-s) Tirthanatha, Brahmanatha, Krishnanatha likely of the syncretic Natheshvari sect +  siddha shAntigupta → buddha-gupta-nAtha \[[bio1](https://undumbara.wordpress.com/2009/05/07/buddhaguptanatha-and-the-late-survival-of-the-siddha-tradition-in-india-d-templeman/), [bio2](http://rywiki.tsadra.org/index.php/Buddhagupta-natha)\] -\> tAranAtha \[[TW17](https://twitter.com/blog_supplement/status/888947871017578496)\]
         - Geluk (dge lugs)

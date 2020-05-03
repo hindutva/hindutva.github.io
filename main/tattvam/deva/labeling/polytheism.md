@@ -27,7 +27,7 @@ title: Polytheism
 
 ## Is Hinduism a polytheism?
 - This question is meaningful once one accepts Hinduism as a religion (see [religion page](../../../../hinduism/religion/)).
-- "The term "polytheism" does no conceptual violence to Hinduism, as monotheism clearly does. ... I was just struck by the emptiness of the claim, particularly given the tight etymological kinship between देव and θεός (- poly-devism -> poly-theism)." - EB
+- "The term "polytheism" does no conceptual violence to Hinduism, as monotheism clearly does. ... I was just struck by the emptiness of the claim, particularly given the tight etymological kinship between देव and θεός (- poly-devism → poly-theism)." - EB
 
 - "These are not "pocket monotheisms" because they tacitly or explicitly presuppose that other Gods, who exist for them in a dependent status, can be and are experienced by others as at the center." \[[EB](https://endymions-bower.dreamwidth.org/56736.html)\]
 - " the degree of intimate entanglement that we see between diverse sects in a common polytheistic field, even where they display strong "single-pointedness", goes far beyond that of a congery of "wannabe monotheisms"." \[[EB](https://endymions-bower.dreamwidth.org/56736.html)\]

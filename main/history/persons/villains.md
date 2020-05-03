@@ -17,7 +17,7 @@ Where there are heroes, villains are no surprise. Many were self-professed ghAzi
 - Malik Kafur, the eununch general of alauddIn khilji, who reached as far as kanchi and rAmEshvaram, destroyer of temples.
 - Firoz Tughlaq, who outlawed the practice of the dharma - even in private - in dilli.  
 
-- Syed Ali bin Shahab-ud-Din Hamadani Abidi, also known as Amir-I-Kabir or Ali-I-Sani, the Suhrawardi-> Kubrawi order sufi who ensured the success of the islamic contagion in kAshmIra cleverly (anti-hindu edicts [1](../../../images/snippets/hamdAni-edicts.png)).
+- Syed Ali bin Shahab-ud-Din Hamadani Abidi, also known as Amir-I-Kabir or Ali-I-Sani, the Suhrawardi→ Kubrawi order sufi who ensured the success of the islamic contagion in kAshmIra cleverly (anti-hindu edicts [1](../../../images/snippets/hamdAni-edicts.png)).
 - Rinchan aka sadruddin, the Tibetan usurper and iconoclast (constructed “Bud Masheed”, on the site of a Buddhist temple) who took to Islam.
 - [sikandar bhUt-shikAn](http://en.wikipedia.org/wiki/Sikandar_Butshikan), as his title suggests, the idol-breaker sultAn of kAshmIr, who fuelled with the mad zeal of the sUfi-s, also delighted in burning critical books, giving the usual convert-or-die choice to hindu-s, who banned music and festivity. A true exemplar of "kAshmIriyat".  
 

@@ -12,7 +12,7 @@ They are very valuable to us due to their:
 "Neoplatonism absorbed, appropriated, and creatively harmonized almost the entire Hellenic tradition of philosophy, religion, and even literature—with the exceptions of Epicureanism and the thoroughgoing corporealism of the Stoics."
 
 ### Tradition
-Middle Platonists, possibly Hindus ->  Ammonius Saccas (died c. AD 265) an apostate -> Plotinus (c. 205 – c. 270) of Egypt -> Porphyry (c. 233–c. 309) of Syria -> Iamblichus (c. 245 – c. 325) of Syria.
+Middle Platonists, possibly Hindus →  Ammonius Saccas (died c. AD 265) an apostate → Plotinus (c. 205 – c. 270) of Egypt → Porphyry (c. 233–c. 309) of Syria → Iamblichus (c. 245 – c. 325) of Syria.
 
 Later, Hypatia (c. 360 – 415) of Egypt who was burned by Christians, Proclus Lycaeus (February 8, 412 – April 17, 485) of Lycia in Anatolia, Roman Emperor Julian (331/332 – 26 June 363)) the apostate and his friend Sallustius.
 
