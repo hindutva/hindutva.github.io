@@ -5,7 +5,6 @@ title: Types
 ## Legal divisions
 {{< figure src="../images/Maddhab_Map2.png" title="Maddhab map" >}}
 
-- Indian Muslims are largely Hanafi except Kerala where most are Shafi'i.
 - Current Islamic jurisprudence largely affirms the purported intolerant attitudes.
 
 ### Prominent sunni schools
@@ -23,6 +22,12 @@ title: Types
         - Zaidiyyah: In matters of Islamic jurisprudence, the Zaydis follow Zayd ibn ’Ali's teachings which are documented in his book Majmu’ al-Fiqh.
         - Abathi
     - "These schools share many of their rulings, but differ on the particular hadiths they accept as authentic and the weight they give to analogy or reason (qiyas) in deciding difficulties."
+
+## Indian muslim demographics
+- "Indian Muslims are 80-85% Sunni. Out of this, 75% Barelvi, 20% Deobandi. Barelvi (what are mostly called Sufis) and Deobandi are mostly, Hanafis (but can also include others like Shafi'i), while Wahhabi + Salafi are Hanbali. Barelvi (what are mostly called Sufis) and Deobandi are mostly, Hanafis (but can also include others like Shafi'i), while Wahhabi + Salafi are Hanbali. Wahhabis are less than 5% of Indian Muslim population. What you consider Wahhabi is actually Deobandi most of the times. The only group that can be counted as Wahhabi are Faraizi Bengali Sunnis."
+- Indian Muslims are largely Hanafi except Kerala where most are Shafi'i.
+- Deobandis spawned Tablighi Jama’at, Taliban.
+- Barelvis have Dawat-i-islami.
 
 ## Political demography of muslims
 
