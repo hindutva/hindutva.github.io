@@ -59,15 +59,15 @@ title: Fight against Christianity
 - "After the war the settlement negotiations happened at portsmouth in US with teddy roosevelt as negotiator. 1 of the tricks the rus delegation adopted was to play up their xtianity to get a better settlement (which they did considering they lost) like attending church regularly, the japanese delegation had to follow suit so that public opinion wouldn't be too against them." \[[T1](https://twitter.com/Rjrasva/status/482247445246537729), \]
 
 ## Post WW2
-        - Mc Arthur attempted christianization.
-            - "THE ARM OF ST. FRANCIS XAVIER  Once again it is raised on high in fight against Japanese paganism  LIFE 27 Jun 1949 " \[[T](https://twitter.com/Rjrasva/status/462652418241478657)\]
-        - Mc Arthur was scared of communists, so he wanted to keep the emperor.
-        - Non-aggression was accepted mostly to ensure that Hirohito would not be tried as a "war criminal".
-        - Secularism was accepted into the constitution deference to the occupying forces.
-        - Public education was revised to inculcate secular and such values.
-            - This is being reversed only now \[[A1](http://s24.postimg.org/yjsz4xmk5/List1.png), [A2](http://s30.postimg.org/3rfa7a55d/List1.png)\]
-        - Many reverted.
-            - The Imperial family pretence \[[T1](https://twitter.com/Rjrasva/status/546527765479321600)\]
-            - Rice christian effect. \[[IMG](http://i.imgur.com/dJFvDxp.jpg), [T2](https://twitter.com/Rjrasva/status/611913981121417216)\]
-            - "tht only brought bak xtians to pre war levels because the war killed j pretas disproportionately, for e.g. they were conc in cities which got bombed more and nagasaki was center of xtianity in japan ever since portuguese contact in 1500's"
-    - Attacks in modern Japan: Oil attack [2015](https://throwoutyourbooks.wordpress.com/2015/06/01/japanese-christian-vandal-shrines-temples-nara-kyoto-chiba-oil/).
+- Mc Arthur attempted christianization.
+    - "THE ARM OF ST. FRANCIS XAVIER  Once again it is raised on high in fight against Japanese paganism  LIFE 27 Jun 1949 " \[[T](https://twitter.com/Rjrasva/status/462652418241478657)\]
+- Mc Arthur was scared of communists, so he wanted to keep the emperor.
+- Non-aggression was accepted mostly to ensure that Hirohito would not be tried as a "war criminal".
+- Secularism was accepted into the constitution deference to the occupying forces.
+- Public education was revised to inculcate secular and such values.
+    - This is being reversed only now \[[A1](http://s24.postimg.org/yjsz4xmk5/List1.png), [A2](http://s30.postimg.org/3rfa7a55d/List1.png)\]
+- Many reverted.
+    - The Imperial family pretence \[[T1](https://twitter.com/Rjrasva/status/546527765479321600)\]
+    - Rice christian effect. \[[IMG](http://i.imgur.com/dJFvDxp.jpg), [T2](https://twitter.com/Rjrasva/status/611913981121417216)\]
+    - "tht only brought bak xtians to pre war levels because the war killed j pretas disproportionately, for e.g. they were conc in cities which got bombed more and nagasaki was center of xtianity in japan ever since portuguese contact in 1500's"
+- Attacks in modern Japan: Oil attack [2015](https://throwoutyourbooks.wordpress.com/2015/06/01/japanese-christian-vandal-shrines-temples-nara-kyoto-chiba-oil/).
