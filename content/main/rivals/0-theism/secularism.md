@@ -8,6 +8,7 @@ title: Secularism
     - sickularism
     - (via [Ambreesh](https://www.facebook.com/ambreesh.mishra)) \- post-christian christianism.
     - Dechristianized christianity (bAlagangAdhara) \[[hipkapi](http://www.hipkapi.com/2011/03/03/the-religion-of-secular-state-dechristianized-christianity-s-n-balagangadhara/)\]
+    - Secularism is the new state/ political religion. - Sandeep B.
     - Poison to heathens and rejection of their "superstitions".
 
 ### Anti-nationalism
