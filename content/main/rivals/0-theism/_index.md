@@ -3,6 +3,8 @@ title: +Atheism
 ---
 
 ## As a maturation of Abrahamism
+- They go: "There’s only one God, and He doesn’t exist."
+
 ### Philosophy
 - "New atheism, Marxism, secularism etc are palpably mutations of Abrahamism where the theic reduction reaches the natural conclusion in 0 from 1. However, it retains the same counter-heathen definition inherited without change from Abrahamism." {[MT](https://twitter.com/blog_supplement/status/1064698752517226496)}
 - "But that idealism and intellectualism are inseparable is made much clearer in Lewis Feuer's great work "Ideology and the Ideologists”. In "Ideology and the Ideologists", Feuer connects the Mosaic revolutionary myth with Marxism, bridging Abrahamism with secular ideology. "The prototype for the ideologies of intellectuals is the Mosaic \[distinction\].  Maoist, Naxalite, separatist, Marxist ideologies, and so on, which are creations of intellectuals, follow an Abrahamically-rooted scheme." –Lewis Feuer A people are oppressed, a savior (messiah) or saviors (proletariat) come, there is revolution, liberation, and then “true history" starts. In other words the liberation meme that's so characteristic of deterministic philosophy and secular ideology actually has religious origins." [OGS16](https://twitter.com/OGSaffron/status/796270938195165185)
