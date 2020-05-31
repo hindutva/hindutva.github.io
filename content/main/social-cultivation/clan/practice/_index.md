@@ -5,12 +5,8 @@ title: +varNa practice
 ## Correspondence of theory with practice
 - Frameworks always exist and make sense once defined - irrespective of how closely they were practiced. Whether or not one writes in the hindu decimal system, it exists. What matters to us (and the creators of the many many dharmashAstra works) is - how useful is the framework in \*organizing\* or systematizing the society to make it function smoothly.
 
-## The stable brAhmaNa core
-    - The brAhmaNa-s conserved their original ethnicity to a higher degree than the kShatriya-s and others. This stability did not hinder the spread of vaidika ideals throughout initially non-vaidika populations in the early times.  
-    - Indeed, some dharmashAstra-s get along fine assuming that in the kaliyuga there are only brAhmaNa-s and shUdra-s - the kShatriya-s having disappeared after the nanda takeover, and vaishya-s having given up their AchAra; while others disagree. All this, really, is beside the point. The varNa system was still the framework used to organize the society and settle disputes.
-
 ## Overlay of varNa-s on jAti-s
-varNa-s were overlaid on/ mapped to many many pre-existing jAti-s (which could vary). These jAti-s and sub-jAti-s had their own hierarchies and restrictions on marriage and inter-dining beyond what the varNa-system required.
+- varNa-s were overlaid on/ mapped to many many pre-existing jAti-s (which could vary). These jAti-s and sub-jAti-s had their own hierarchies and restrictions on marriage and inter-dining beyond what the varNa-system required.
 - These myriad jAti-s were hypothesized to have arisen from the main varNa-s mixing together in various ways.
 - brAhmaNa-s learned in the dharmashAstra-s adjudicated disputes regarding varNa-assignment.
     - "On matters of dharma, including varNa and jāti, non-specialist administrative and legal functionaries of regional courts, lacking in Sanskrit knowledge, deferred to specialist Brahmins living in places like Paithan and later Banaras. Dalmia describes Banaras as a “supraregionally recognized” locus of juridical authority (Dalmia 1996: 322–3). The brahmasabhā would issue a decision, recorded in a document called a vyavasthā-patra (‘document (patra) bearing the decision (vyavasthā)’) or vijaya-patra (‘document spelling out the victory (vijaya) (of the authoritative claim"(siddhānta)’).169 The disputants would carry out the injunctions of this document, and their local political authority would not object." \[[AV2011](http://works.bepress.com/cgi/viewcontent.cgi?article=1088&context=ananya_vajpeyi)\]
@@ -53,6 +49,6 @@ Abhinavagupta on varNavyavasthA : "कृतयुगे सत्त्वो�
 - \[[IRF](http://www.indusresearch.org/dalit-saints-of-hinduism-part-1/)\]
 
 ### Woman philanthropists.
-    - jiraLe mallamma, constructor of a much needed step well \[[KPP](http://www.kamat.com/jyotsna/blog/blog.php?BlogID=350)\]
-    - Courtesans such as shAntavve of sULEkere, vinapoti \[[KPP](http://www.kamat.com/jyotsna/blog/blog.php?date=6/9/2002)\]
-    - nAgaratnA the builder of tyAgarAja-samAdhi.
+- jiraLe mallamma, constructor of a much needed step well \[[KPP](http://www.kamat.com/jyotsna/blog/blog.php?BlogID=350)\]
+- Courtesans such as shAntavve of sULEkere, vinapoti \[[KPP](http://www.kamat.com/jyotsna/blog/blog.php?date=6/9/2002)\]
+- nAgaratnA the builder of tyAgarAja-samAdhi.
