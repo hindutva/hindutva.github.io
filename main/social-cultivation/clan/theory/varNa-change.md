@@ -14,7 +14,7 @@ title: Varna change
 - brAhmaNa-s taking up the profession of kShatriya-s.
 
 ## Rising to vaishya-like-status
-- suprabhedAgama: "kathitaścāthaśūdrastu satśūdraṃ vaiśyavat smaret | amadyapāḥ kulīnāstu satśūdrāste prakīrtitāḥ || 2-16 |"
+- suprabhedAgama: "kathitaś cātha śūdrastu satśūdraṃ vaiśyavat smaret | amadyapāḥ kulīnāstu satśūdrāste prakīrtitāḥ || 2-16 |"
 
 ## Alternate routes to rise to kShatriya status
 - (These were often seen in practice.)
