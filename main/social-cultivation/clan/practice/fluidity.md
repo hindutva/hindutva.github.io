@@ -24,10 +24,6 @@ Hindu legal/ behavioral/ social system is not at all static. \[See [here](../..
 ## Descent from V1
 Kadambas descendended to V2 (mayUrasharman → mayUravarman), and thence to V4 in later days ("kadam" in MH).
 
-## Ascent to vaishya-hood  
-
-- Arya-vaishya [inclusion](http://en.wikipedia.org/wiki/Arya_Vaishya#Inclusion_into_the_Vaishya_Varna) into the vaishya varNa.
-
 
 ## Additional ossification due to British policies
 

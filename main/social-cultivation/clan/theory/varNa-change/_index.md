@@ -16,15 +16,6 @@ title: Varna change
 ## Rising to vaishya-like-status
 - suprabhedAgama: "kathitaś cātha śūdrastu satśūdraṃ vaiśyavat smaret | amadyapāḥ kulīnāstu satśūdrāste prakīrtitāḥ || 2-16 |"
 
-## Alternate routes to rise to kShatriya status
-- (These were often seen in practice.)
-- Perform the hiraNyagarbha rite (atharva-veda-parishiShTa [13.2](http://gretil.sub.uni-goettingen.de/gretil/1_sanskr/1_veda/5_vedang/2_paris/avpari_u.htm) morphed with regional anukalpa-s and paddhati-s)
-    - According to practice and paddhati-s, this involves offering up a golden calf (sometimes substituted by bronze as by vIrarAghava nAyaka).
-    - The yajamAna is popularly considered to have taken a second birth (parishiShTa clues - rājā hiraṇyagarbhatvam abhīpsaty asmin bhavanto 'numanyantām iti.  ).
-    - The phala is very general, according to the parishiShTa - whatever the brAhmaNa-s grant. 
--  parAkhya - amadyapaḥ kulīnaśca nityaṃ dharma parāyaṇaḥ | śūdraḥ kṣatriyavat jñeyaśśeṣā nindyāstato bhṛśam ||
-- Falsely claim descent from a kShatriya clan.
-
 ## Ascent to brAhmaNa-hood
 - kApAlika-s, supposedly founded by a vaishya and his shUdra student, attempted significant subversion of the varNAshrama-dharma - as attested by rAmAnuja. \[[MT](https://manasataramgini.wordpress.com/2005/03/26/dvijas-and-non-dvijas-in-the-shaiva-cults/)\]
 
