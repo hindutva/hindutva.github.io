@@ -12,7 +12,8 @@ title: Privileges
 In contrast, dvija-s (especially brāhmaṇa-s) had a great many restrictions placed on them with regard to rituals, daily practice (ācāra), livelihood, education and food. For example, a brāhmaṇa was barred from accumulating wealth, was required to perform numerous lengthy rituals daily and seasonally, spend a decade or more learning the veda-s and its limbs, restrict his dietary options and abstain from most spirits. When they deviated from these high standards, they were censured and lost social standing. In many cases (we quote some examples below, in the “legal disabilities” section), they were prescribed harsher penances and punishment.
 
 ## Attractiveness
-Would many people not find aniravasita-śūdraness appealing? Consider the following:
+- The dharma system was framed more in terms of duties than rights or privileges. This fundamental difference should not be forgotten. However, in modern debates, it sometimes becomes necessary to get an accurate picture of privileges that existed in practice.
+- Would many people not find aniravasita-śūdraness appealing? Consider the following.
 
 ###   About personal habits and occupation
 -   How many people want some śāstra to impose restriction on what the eat and drink and what occupation they take to? How many of us would not want to cross the seas?

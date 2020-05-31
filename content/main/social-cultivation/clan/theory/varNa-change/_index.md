@@ -13,8 +13,6 @@ title: Varna change
 - kShatriya-s and brAhmaNa-s taking up the profession of vaiShya-s.
 - brAhmaNa-s taking up the profession of kShatriya-s.
 
-## Rising to vaishya-like-status
-- suprabhedAgama: "kathitaś cātha śūdrastu satśūdraṃ vaiśyavat smaret | amadyapāḥ kulīnāstu satśūdrāste prakīrtitāḥ || 2-16 |"
 
 ## Ascent to brAhmaNa-hood
 - kApAlika-s, supposedly founded by a vaishya and his shUdra student, attempted significant subversion of the varNAshrama-dharma - as attested by rAmAnuja. \[[MT](https://manasataramgini.wordpress.com/2005/03/26/dvijas-and-non-dvijas-in-the-shaiva-cults/)\]
