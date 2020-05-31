@@ -12,6 +12,7 @@ unicode_script: devanagari
 - Many were tales of kShatriya-s surviving parashurAma's slaughter. 
 - ChandrasenIya-kAyastha-prabhu example: "When Parasurāma was killing all Kṣatriyas on earth in revenge, the pregnant queen of the king Candrasena took shelter in the hermitage of the sage Dālbhya. In pursuit, when Parasurāma arrived at Dālbhya's hermitage, he was pleased with Dālbhyas hospitality, and offered Dālbhya a boon. Dālbhya requested that the life of the unborn child of the queen of Candrasena who had taken shelter in his hermitage be spared. Parasurāma agreed to save the child on the condition that the child, though a born Kṣatriya, must not do the function of a Kṣatriya. This is how the CKPs became accountants, even though they claimed a Kṣatriya birth."
 - "Kamalākara also cites the story of the son of Citrasena's queen being saved by Dālbhya from being killed by Parasurāma, but seems to have taken the line rāmājnayā sa dālbhyena ksatradharmād bahiṣkr̥tah to mean that the child was deprived of his Kṣatriyatva (śūdrakamalākara, folios 89—90)."
+- "2 vam̐śa-s regarded as genuine in śāstra (sūrya & candra) are said to be revived after this kaliyuga with 2 kings. The 2 are maru of ikṣvāku-vam̐śa & devapi of puruvam̐śa (mahābhārata-fame, śām̐tanu’s brother); who are said to be installed by kalkī after kaliyuga ends."
 
 ### Degenerate kShatriya concept
 - "Kṣatriyas physically survived in the Kali age, but by non-performance of their initiation for generations patitasāvitrika, they reached a śūdra like state."
