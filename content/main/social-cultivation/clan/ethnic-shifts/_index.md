@@ -1,5 +1,5 @@
 ---
-title: +0 Settlement summary
+title: +Ethnic shifts
 ---
 
 ## Initial hominid settlement
