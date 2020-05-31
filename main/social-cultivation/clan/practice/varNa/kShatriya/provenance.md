@@ -1,6 +1,5 @@
 ---
 title: Provenance
-unicode_script: devanagari
 ---
 
 - Before the muslim invasion, the kShatriya varNa was widespread - even in south India.

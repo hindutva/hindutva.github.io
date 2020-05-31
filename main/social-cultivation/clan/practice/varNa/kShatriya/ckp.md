@@ -2,6 +2,9 @@
 title: CKP (Chandraseniya kAyastha-s)
 ---
 
+## Motivation
+- "Gupte (1919, pp. 6-7) reports that the question of the Vedic rites for the CKPs began with Balāji Avaji's desire to have the upanayana ceremony performed for his elder son in Sake 1591 (1669AD). However, Shivāji's Brahmin ministers Moropant Pingle and Raghunathpant Amātya opposed this notion. Shivāji then sent this dispute to Anantadeva and Gāgābhaṭṭa in Banaras."
+
 ## Support
 - They claimed descent from kShatriya-s (see theory page) by a story which explained their functioning as accountants.
 - Gāgābhaṭṭa allowed them the ceremony of Upanayana, only as a rite of passage (samskāra), but did not allow them the study of the Veda. There is a letter sent out by Raghunātha Paṇḍita, a minister of Shivāji, to the CKPs that refers to Anantadeva and Gāgābhaṭṭa and says that these great scholars had resolved the question of the Kṣatriyahood of the CKPs and their eligibility for Upanayana.
