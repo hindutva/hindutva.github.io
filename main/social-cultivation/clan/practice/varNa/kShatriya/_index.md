@@ -7,13 +7,8 @@ title: +kShatriya
     - Examples of acquisition of kShatriya-status : see social fluidity section.
 - As a parable, consider this story from the animal kingdom: [MT](https://agnimaan.wordpress.com/2015/06/02/the-parable-of-the-kshatriya-s/).
 
-## Non-kShatriya rulers
-- A huge number of non-kShatriya ruling classes in the past 2500 years.
-- shudra-origin dynasties like: maurya-s, nairs of keraLa ([samAnta xatriyatA](http://en.wikipedia.org/wiki/Samantha_Kshatriya)), marATha feudatories (including shivaji's bhonsle-s, scindiya-s, holkar-s), choLa-s.
-- brAhmaNa-origin ruling dynasties like: suga-s, peshva-s, kadamba-s.
-
 ## Acquisition of kShatriya status
-- See the 'changing varNa-s' bullet in the [varNa change theory page](../../varna-theory/varNa-change).
+- See the 'changing varNa-s' bullet in the [varNa change theory page](../../../varna-theory/varNa-change).
 
 ### Popular routes
 - hiraNyagarbha rite was supposedly attested as early as 4 ce in Andhra, later by dantidurga the rAShTrakUTa and later in keraLa.
