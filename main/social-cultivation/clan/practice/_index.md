@@ -3,7 +3,8 @@ title: +varNa practice
 ---
 
 ## Correspondence of theory with practice
-- Frameworks always exist and make sense once defined - irrespective of how closely they were practiced. Whether or not one writes in the hindu decimal system, it exists. What matters to us (and the creators of the many many dharmashAstra works) is - how useful is the framework in \*organizing\* or systematizing the society to make it function smoothly.
+- Frameworks always exist and make sense once defined - irrespective of how closely they were practiced. Whether or not one writes in the hindu decimal system, it exists.
+- What matters to us (and the creators and interpreters of the many many dharmashAstra works) is - how useful is the framework in **organizing** or systematizing the society to make it function smoothly.
 
 ## Overlay of varNa-s on jAti-s
 - varNa-s were overlaid on/ mapped to many many pre-existing jAti-s (which could vary). These jAti-s and sub-jAti-s had their own hierarchies and restrictions on marriage and inter-dining beyond what the varNa-system required.
