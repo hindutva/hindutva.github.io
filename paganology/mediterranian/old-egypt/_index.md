@@ -13,9 +13,9 @@ title: +Egypt
 ### Blackness of Egyptians and Racism
 Evidence indicates that ancient Egyptians were like neighboring levantine populations in appearence and genetics. They were neither "blacks" nor "whites" in contemporary terms. Yet, many people (with SJW tendencies, particularly in the America) say things like: "Kemeticism is a black religion" - [TW20](https://twitter.com/Khenneferitw/status/1268427854972432385), "Ancient Egyptians were blacks", "I don’t care about genetics, that’s not what this is about. That’s why the other person was trying to talk about “biological racism”. These are social categories in a discourse of power." [TW20](https://twitter.com/EPButler/status/1268744232627568643). 
 
-- Racism is propagation of discrimination and inequality based on race. What would it have to do with veracity of "egyptians were blacks"? It is an old Euro-american habit to superimpose their fancies on foreign cultures in reaction to their terrible internal problems. For example: secularism motivated by their bloody catholic-protestant conflicts, svastika-hatred because of Nazi experience, "white" Aryanism motivated by racial superiority theories.
 - What do modern Egyptians would think of foreigners repeatedly inaccurately insisting that their ancestors were "blacks" or "whites". 
 - Also, it is not like "blacks" don't have proud traditions of their own so that we need to do them the charity of thrusting some fictitious heritage on them. THAT is condescendingly racist.
+- Racism is propagation of discrimination and inequality based on race. What would it have to do with veracity of "egyptians were blacks"? It is an old Euro-american habit to superimpose their fancies on foreign cultures in reaction to their terrible internal problems. For example: secularism motivated by their bloody catholic-protestant conflicts, svastika-hatred because of Nazi experience, "white" Aryanism motivated by racial superiority theories, denial of genetic disparity in mental faculties due to guilty-conscience over slaver racism.
 
 ## Egyptian language
 
