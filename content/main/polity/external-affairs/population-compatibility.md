@@ -23,7 +23,7 @@ To quote Ambedkar : “Indeed, there is more spiritual unity between Hindustan a
 ### Dividing factors
 - Illustrations - see [#phDiscord](https://twitter.com/search?q=%23phDiscord&src=typed_query&f=live).
 - Denouncement of RSS and Hindutva. Insistence on secularism. Support for muslim rights.
-- Spirited subscription to extreme liberalist causes and views. The underlying [memetic framework](../ingestion/memetic framework) is incompatible.
+- Spirited subscription to extreme liberalist causes and views. The underlying [memetic framework](../ingestion/memetic framework/) is incompatible.
   - General SJW tendencies and demand for conformity.
   - "Gender is a social construct"
   - "Race is a social construct"
