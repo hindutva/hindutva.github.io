@@ -16,7 +16,7 @@ unicode_script: devanagari
 
 यद् उत श्रीमद्भिर् लिखितं, स्वमनसि एवं स्थितं, यद् "दिल्लीन्द्रेण साकं विरोधो न विधेयस्, तस्य महत्वम् एव पालनीयं",  
 तदनु +++(युष्मदेकमात्र)+++कुमार-कृष्णसिंहस्य तादृश्यवस्था+++(→हत्या)+++ सुरत्राण-संकेत-निष्पन्नेति निपुणं विज्ञाय  
-+++(while serving in the Emperor's army in Maharashtra was put to death at about the age of 19 near Purenda on 10th April 1682 for complicity with his rebel son Akbar,)+++  
++++(while serving in the Emperor's army in Maharashtra was put to death at about the age of 19 near Purenda on 10th April 1682 for complicity with his rebel son Akbar.)+++  
 कंचिद् राजकार्य-विषयं मनसि कृत्वाऽऽस्माकं स्तुति-पुरःसरं पत्रं प्रेषितम्।
 
 यद् अकबरः सुरत्राणः स्वसविधे स्थापितः - इदम् उचितम् एव कृतं श्रीमद्भिर्, अस्माकम् अपि संमतमेतत्।  
