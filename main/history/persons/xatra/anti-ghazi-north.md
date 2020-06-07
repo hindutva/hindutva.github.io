@@ -58,7 +58,13 @@ title: Anti-ghazis (north)
     - Mullah ʿAbd-ul-Qadir Bada'uni (c. 1540 - 1615) recorded juicy details of the apostasy [here](http://www.payer.de/quellenkunde/quellen148.htm) \[FB\].
 - durgAvatI, chANDela queen, of whom MT [says](https://manasataramgini.wordpress.com/2011/10/09/yuddha-vyuha-s-mlechcha-s-and-vanija-niti-in-the-last-hindu-empire/): "the last of the chandrAtreya-s who was able to build and field an effective fighting force comprised of the goND tribesmen against Akbar’s Ghazi-s". (Hindu princesses who failed to join their sisters in jauhar, notably a younger sister of rAnI durgAvatI and a would-be daughter in law of her, were captured alive and sent to expand Akbar’s harem.)
 - karNAvatI, the pAramAra warrior queen of uttarAkhaNDa who [ambushed](http://manasataramgini.wordpress.com/2012/02/12/on-a-paramara-warrior-queen-and-some-saracenic-structures-in-lata/) and vanquished the ghAzI-s sent by shAh-jahAn and quenched the thirst of bhadrakAlI.  
-
+- rAma-simha (Ram Singh) of amber, son of mogol general jayasimha, received a proper Hindu education in Kashi and was well-versed in various shAstra-s and was a practicing vaidika Hindu in the most fanatic Islamic court, just like his father.
+  - helped shivAjI escape from Delhi, prevented his assassination by the Qazi of Delhi, helped at his own cost the sikh guru tej bAhadUr.
+  - "Awrangzeb wanted to execute the guru, but rAm singh interceded and enabled him to escape a month after tej bAhadUr was given to his custody."
+  - "Awrangzeb clearly saw rAm singh as being partial to the Hindus and sent rAm singh as punishment with a mere 8000 men against the rAjA of Assam chakradhvaja singh-deva and his most valiant commander-in-chief lachit barphukan. ... Initially, the Mogol viceroy in Assam, Rashid Khan turned against rAm singh himself, who had to drive him out by deploying a specially trained force of large war dogs. ... " Lachit and co defeated them.
+  - "Awrangzeb too feared that if the rAm singh, who had returned from Assam, joined hands with his coethnics, who were up in arms against the Mohammedan oppression, he could be cut off from Delhi. Hence, he sent off rAm singh under a Mohammedan general to fight the Afridis in Afghanistan." He took his son kRShNa singh to the deccan, but "was conspiring with the durgAdas and the marATha-s, so Awrangzeb assassinated him by means of a Pathan servant in his camp. rAm singh was completely broken by this and was shaken even further when Awrangzeb next asked him to send his grandson viShNu singh to the Deccan."
+  - Famous addressee of [sambhAji's letter](../docs/sambhAji-letter/).
+- kRShNa singh, son of rAm singh, taken by Awrangzeb to his deccan jihAd, but killed off on suspicion of conspiracy with Chatrasal and marATha-s.
 - dArA shukOH, under whom the upanishads were translated, who died at the hands of awrangzeb, who was not exactly an apostate of Islam but an all-religions-are-one-ist \[[Vinod1](http://www.kashmirherald.com/featuredarticle/darashikoh.html)\].
 - rANA rAja-siMha of mevAr, who defended rAjaputra princess from Awrangzeb's marriage order, the idol of shrInAtha from plunder. \[[M](http://manasataramgini.wordpress.com/2014/07/13/some-meanderings-on-early-medieval-history-from-the-view-point-of-nastika-compositions/), [music](http://www.eternalmewar.in/collaboration/music/courts-of-mewar/rana-raj-singh.aspx?s=c), [xAtram](http://kshatriyaektamanch.com/blog/?p=49)\] (the vaishya dayAl sAH described elsewhere on this page.)  
     धर्मोत्कर्षे प्रैरयद् यो दयालं  
@@ -66,6 +72,16 @@ title: Anti-ghazis (north)
     भृत्यैः कृत्यै राघवेन्द्रोपमं तं  
     मेवाडेशं राजसिंहं नमामि॥
 - yuvarAja bhIma-siMha, yuvarAja of chittor, son of rAja-siMha, avenger awrangzeb's destruction of udayapura temples at vAdnagar, a rare example of the hindu avenging temple destruction slaying of several Mullahs and demolition 30 Masjids. \[[M](http://manasataramgini.wordpress.com/2014/07/13/some-meanderings-on-early-medieval-history-from-the-view-point-of-nastika-compositions/)\]  
+- [ChatrasAla](http://en.wikipedia.org/wiki/Maharaja_Chhatrasal), mahArAja of bundelakhaNDa, who rebelled against awrangzeb; father of mastAnI.
+  - "As youth he had journeyed to shivAjI to serve in his army. shivAjI asked Chatrasal to found his own enterprise against the Mogols modeled along the lines of the mArATha one and strike Awrangzeb in the North. Chatrasal did accordingly by taking Panna which was rich in diamond mines and initiating a great war of liberation in the North."
+- durgAdAsa rAthoDa, who steadfastly opposed Awrangzib and restored Marwar to Ajita simha \[[wiki](http://en.wikipedia.org/wiki/Durgadas_Rathore)\]. Awrangzeb had tried to convert the infant to Islam. "The brave durgAdAs rAthoD spirited the infant away from the Mohammedans and raised a rebellion against the Mogols by helping Akbar rise against his father Awrangzeb. Then durgAdAs and Akbar were given shelter by shaMbAjI as they were pursued by the Mogols."
+  - Referred to in [sambhAji's letter](../docs/sambhAji-letter/)
+- durjan sAl hADA, joined the war of liberation in Rajasthan initiated by durgAdAs and caused much havoc by attacking and taking several Mogol outposts and driving them out of much of Marwar which had been taken earlier by the Mogols. 
+  - Referred to in [sambhAji's letter](../docs/sambhAji-letter/) - "We both know how wealthy and endowed the hADA chief durjan singh was. But he sacrificed his wealth and valiantly raised the uprising at our instigation and you being so near must have seen all of it."
+- gangArAm, a vaishya, raised the banner of independence against the Mogols in Bihar
+- gopAl singh chandrAvat, a rAjpUt, joined with the marATha-s to launch a series of attacks on the Ghazi-s.
+- kesari-siMha - "In 1679 when shivAjI was ambushed in his final campaign against the Mogols, kesari singh in the Mogol camp sent a secret message to shivAjI leaking Mogol plans and allowing him and his commander haMbIrrav mohite to escape."
+- Ajit Singh of Marwar, ruler of Jodhpur, whom durgAdAsa brought to power, who restored temples destroyed by Awrangzeb, took back the daughter he had given to the moghul.
 - jaya-simha 2 "Sawai" \[[wiki](https://en.wikipedia.org/wiki/Jai_Singh_II#Sawai_Jai_Singh_and_the_Marathas)\] of amber
   - raised to serve mogol emperors but later took wings, 
   - who like akaNNa and madaNNa conspired with the marATha-s to reduce Islamic power.
@@ -82,9 +98,6 @@ title: Anti-ghazis (north)
   - "On a more personal note, he refrained from formally or publicly using the 
 title “Mirza Raja", which had been conferred in 1712 by both Jahandar Shah and 
 Farrukhsiyar. Perhaps he simply preferred the title “Sawai”"
-- [ChatrasAla](http://en.wikipedia.org/wiki/Maharaja_Chhatrasal), mahArAja of bundelakhaNDa, who rebelled against awrangzeb; father of mastAnI.  
-- durgAdAsa rAthoDa, who steadfastly opposed Awrangzib and restored Marwar to Ajita simha \[[wiki](http://en.wikipedia.org/wiki/Durgadas_Rathore)\].
-- Ajit Singh of Marwar, ruler of Jodhpur, whom durgAdAsa brought to power, who restored temples destroyed by Awrangzeb, took back the daughter he had given to the moghul \[wiki\].
 
 ## Jat rebels
 - Gokula Singh, died 1670 AD, who organized the Jat refusal to pay taxes and rebellion.
