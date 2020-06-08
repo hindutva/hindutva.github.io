@@ -23,8 +23,14 @@ shiva/ [shivAji](http://en.wikipedia.org/wiki/Shivaji) kShatrapati (6 April 1627
 - considered temporarily joining Awrangzeb \[[CG17](https://twitter.com/ColonelGerard/status/834464411398004736)\] to smash Adil shAh and Qutb shAh - but retained dignity and escaped when it did not go well.  
     - Inspired many, returned netAji pAlkar (who later redeserted) to the hindu fold after prAyashcitta\[[TW](https://twitter.com/ColonelGerard/status/876548420269334528)\]. 
 
+## Stopping conversions
+- "factory records say he beheaded 4 jesuit padres on their refusing to become H after having instigated Portuguese governor to persecute H".
+- Factory records from 26th November, 1675 mention that he quarelled with Portunguese who converted orphans of his caste. [DY](https://dharmayuddha.wordpress.com/2010/11/13/some-contemporary-english-factory-letters-about-shivaji/)
+
 ## Flaws
-- No "total war" : "We know he ordered his soldiers to respect the Koran, mosques, and sent back a mullah’s daughter that fell into his hands while the followers of Muhammad freely indulged in massacres of Hindu civilians and capture of Hindu women." Though occasionally, he did destroy rAxasAlaya-s (French letter 1677 [TW](https://twitter.com/Kal_Chiron/status/861611487713837056)). 
+- No "total war" : "We know he ordered his soldiers to respect the Koran, mosques, and sent back a mullah’s daughter that fell into his hands while the followers of Muhammad freely indulged in massacres of Hindu civilians and capture of Hindu women." 
+- Though occasionally, he did destroy rAxasAlaya-s (French letter 1677 [TW](https://twitter.com/Kal_Chiron/status/861611487713837056)) and restored temples.
+
 
 ## Family
 son of jIjA-bAyi and shAhAji, feudal servant of bijApura sultAn yet a supporter of shrIranga 3 the vijayanagara emperor \[[MT6](https://manasataramgini.wordpress.com/2006/07/06/some-notes-on-shahji-and-sambhaji-the-brother-of-shivaji-iii/)\], brother of sAmbhA killed for lack of reinforcement from afzal khan in service of the sultAn, half brother of ekoji (a good ruler whose adhArmika betrayal was stemmed by shivAji by timely action).
