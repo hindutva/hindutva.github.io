@@ -7,7 +7,7 @@ title: +सहिष्णुता Tolerance
 Anything intolerant to our tolerant hindu structure should not be tolerated, if the said structure is to survive. Some general context about the limits classically imposed within the hindu ecosystem is discussed [here](../../../tattvam/deva/index/).
 
 - The **intolerant generally and eventually overcomes** and imposes its values on the tolerant other, even when it is a small minority. This is a law of nature.
-- **Polytheism especially cannot afford secularism.** See [here](../../../rivals/0-theism/secularism/).
+- **Polytheism especially cannot afford secularism.** See [here](../../../rivals/abe-disease/0-theism/secularism/).
 
 ### Freedom of speech and its limitations
 - I'd defend the **right of expression of intolerance against ideas or ideologies that are intolerant** (and by extension, people who follow or advocate such ideologies). This means, books discussing how one might kill and maim the "Caliph" are OK, not those discussing how one might do the same for Narendra Modi.

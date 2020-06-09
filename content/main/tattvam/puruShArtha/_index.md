@@ -29,7 +29,7 @@ The influence of (vedantic / yogic) asceticism or occidental condition causes ma
 ## Spiritual highs
 One needs joy, satisfaction, and strength to follow and achieve the various [goals of life](../../tattvam/puruShArtha/), including [dharma](../../social-cultivation/dharma/). Spirituality (a focus on the development and maintenance of "good" mental states) is then an essential component of hindu self cultivation.
 
-Secular/ spiritual non-separation: See [here](../../rivals/0-theism/secularism/).
+Secular/ spiritual non-separation: See [here](../../rivals/abe-disease/0-theism/secularism/).
 
 ### Mysticism does not imply goodness
 

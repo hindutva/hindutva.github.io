@@ -16,9 +16,15 @@ title: +Atheism
 - "However, even that did not eradicate the pretamata. Rather, the two apparently contradictory trajectories continued to coexist in the mlechCha world with the strengthening a concept called the separation of the secular from the sacral."
 - "This offered an opportunity for the pretamata to not just survive but even expand by pushing both its rapine secularized version that continued to engulf heathen civilizations in the name of various secular constructs and its unadulterated evangelistic form. This aspect is indeed seen by the imposition of the same kind dialog on heathen civilizations like our own wherein we are forced to cut up knowledge by separating secular from sacral \[One might look up this earlier note in this regard\]. This is followed by a trivialization of our sacral structures making it easy for the pretamata \[or for that matter the rAkShasa-mata\] to fill up the ensuing vacuum."  \[[MT](https://manasataramgini.wordpress.com/2013/02/10/the-end-of-the-heathens/)\]
 
+### Maturation in individuals
+- "One might think that one is cured of it but it might have merely has mutated in the infected person’s mind and persist as a different version of the disease even as persistent bacterial infection."
+- "Even if one is truly cured of an abrahma-ruj one can have a lifelong chronic inflammatory condition — this is seen among some mleccha atheists and neo-heathens. That inflammatory condition can be seen in the form of destructive dur-vāsana-s persisting among them." See Neo-pagan part of [compatibility page](../../../polity/external-affairs/population-compatibility/).
+
 ### Instances
 - "To the surprise of many H, western liberals while opposed to u2 are even greater enemies of heathenism (e.g. the CEO of Twitter and his agents)."
 - "This is also seen with u3 e.g. Pakistanis or B'deshis who shed their religion typically do not become H. They become secular/atheist  and typically retain their old anti-H tendencies intact - thus they are often darlings of those who seek racial but not doctrinal variety." {[MT](https://twitter.com/blog_supplement/status/1064698752517226496)}
+- "As an example, we have a TSPian ex-marūnmattikā, who is popular in mleccha secular circles and even supported by Hindus, who exhibits the same hate for H as a full-blown marūnmatta."
+- "Dick Dawkins is another example of the same. Here, the disease has assumed a new persistent form while superficially appearing as though cured."
 
 ## Strains
 ### rudhironmAda / Socialism
