@@ -30,7 +30,7 @@ title: +Atheism
 - See separate [page](../rudhironmAda).
 
 ### Econolatory
-- "they worship the faceless market running by its own vrata-s and attribute all human abhyudaya to these magical market forces. They see it as self-correcting and the panacea for all evil — whereas in the past they used see the prathama and dvitīya unmāda-s as the foundation of their well-being they now either additionally or exclusively genuflect towards the miraculous market."
+- "they worship the faceless market running by its own vrata-s and attribute all human abhyudaya to these magical market forces. They see it as self-correcting and the panacea for all evil — whereas in the past they used see the prathama and dvitīya unmāda-s as the foundation of their well-being they now either additionally or exclusively genuflect towards the miraculous market." - [MT](https://manasataramgini.wordpress.com/2020/06/08/pandemic-days-the-fizz-is-out-of-the-bottle/)
 
 ### Legalism
 - See sinology page.
@@ -39,4 +39,3 @@ title: +Atheism
 - See [sphulinga/nAstikamob](https://sphulinga.wordpress.com/category/twitter/nAstikamob/) stream
 - See [sphulinga/nAstikadown](https://sphulinga.wordpress.com/category/twitter/nAstikadown/) stream
 
-### Anti Hindu wars
