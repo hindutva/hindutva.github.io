@@ -17,7 +17,7 @@ Secularism sometimes manifests as anti-nationalism - as in the case of oppositio
 ## Origins
 - The notion of secularism emerged from conflicts and compromise involving strains of Abrahamist monotheism either on both sides (as in the case of Europe) or one one side (as in the case of some strains of sikh thought).
 - This is then a universalization of a phenomenon of limited local relevance - "Were secularism to be seen as not only a product of the West, but also having characteristics that link it to the ongoing religious traditions of the Christian West, then its universal applicability would be questionable." \[[Mohr13](https://www.academia.edu/1549528/2_The_Christian_origins_of_secularism_and_the_rule_of_law)\]
-- Also note its close connection to modern reactionary epistemological atheism (../described [here](../abe-disease/zombie-cult/)) given its rejection of and scorn for pagan state ritual.
+- Also note its close connection to modern reactionary epistemological atheism (described [here](abe-disease/zombie-cult/)) given its rejection of and scorn for pagan state ritual.
 - Poor background - Secularists and anti-nationalists oft come from a secular background deprived of a pagan national setup - as such they are more driven by prejudices and lack of imagination than solid experience.
 - *Lack of sympathy and loyalty* towards the interest of fellow pagans.  
 
@@ -45,7 +45,7 @@ Anti-nationalism is often found in Abrahamists since pagan states oppose their i
 - "From a human perspective an invading pathogen is abnormal; from the pathogen's perspective it's perfectly normal." –Zinsser
 - It is taken to be a license to proselytize and subvert the weakest and stupidest sections of pagan society.
 - This puts heathen traditions like hinduism and shinto at a disadvantage. To counter them, they are forced to pervert themselves and develop proselytizing arms.
-- See the [stubborn minority principle here](../../../polity/external-affairs/tolerance/).
+- See the [stubborn minority principle here](../../../../polity/external-affairs/tolerance/).
 - This is especially true today: " there are inevitably nay-sayers, non-theists, secular-pagans and the like who pounce in proudly with “but there were non-polytheists in the ancient world too.” They will bring up pantheism, monism, atheism and the like as though this somehow strengthens their attempts to dismantle our traditions. ... I think the time has come to address some of this ideological undercutting because while what they say is technically accurate, it is presented without context and that context is important. We live in a very different world from our polytheistic ancestors. We are an occupied people. Our world is doggedly, demonstrably, and sometimes violently monotheistic. ..." \[[krasskova16](https://krasskova.wordpress.com/2016/03/13/the-battle-for-polytheisms-soul/)\]
 
 ### De-sacralization

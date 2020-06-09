@@ -3,9 +3,11 @@ title: Commies
 ---
 
 ## Traits
-- Egalitarianism, anti-elitism, opposition to heredity.
-- In the old hard strain - Dictatorship of the proletariat.
-- In newer strains - Mixutre with econolatory (see [main page](../) for intro).
+- For traits common with other Abe 0-theist maturations, see [main page](../).
+- Egalitarianism, anti-elitism, opposition to heredity influence (even in descriptive scientific research on phenotypes important in social functions).
+- In the old hard strain - Dictatorship of the proletariat. Examples: Soviet state. Khmer Rouge. Naxals.
+- In newer strains - Mixutre with econolatory (see [main page](../) for intro). 
+  - Examples: SJW-s of Soros who participated in 2020 US Race riots and more. Venus project. Urban naxals of India.
 
 ## History
 - "the old strain was very much dependent on the Soviet continuation of the old Rus empire. Once that fell, it was like a chariot that had lost a wheel."
