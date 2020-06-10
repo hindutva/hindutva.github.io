@@ -7,7 +7,7 @@ title: Econo-theism
 - "The modern sārthavāha built by the stock market or the internet is mostly a contrasting species. It is clear they have greater reach and rapacity than the old sārthavāha-s but they are also prone to more evil. There is an entire spectrum of the balance of evil they cause to the utility they provide to society."
 
 ## Evil social engineering schemes
-- "these idols of society are not purveying the neutral capitalism that the mleccha elite worship but a new unmāda. This, along with their global reach, has allowed that unmāda to attain pandemic proportions."
+- "these idols of society are not purveying the neutral capitalism that the mleccha elite worship but a new unmāda +++(Leftist 0-theism)+++. This, along with their global reach, has allowed that unmāda to attain pandemic proportions."
 - "The self-enriching mithyā-kraya-kartṛ Sora +++(Soros)+++ has absolutely nothing useful to offer to the world and a purely evil player."
 - "The vyāpārin Bejha +++(Bezos)+++ offers several useful services for the jana-samudāya but has leveraged the wealth he has accumulated in the process to do evil."
 - "Among the corporations, karṇa-piśācī guggulu +++(Google)+++ might offer some small services of use to the populace but has used its capture of an important resource to further evil."
