@@ -23,8 +23,8 @@ title: +China
 - Human behavior must be controlled by strictly imposed laws.
 - Unswerving loyalty to the ruler of the state is a top priority.
     - Whatever contributes to the states power and orderliness should be deemed right.
-        - Rejection of Confician ethics to which even monarchs must adhere.
-    - Rejection of inherited official position. Rely on military-style merit instead.
+- Rejection of Confician ethics to which even monarchs must adhere.
+- Rejection of inherited official position. Rely on military-style merit instead.
 
 ### Strengthening the state.
 - Focus on food production and military buildup.
@@ -42,3 +42,4 @@ title: +China
     - Kinmen [VJ](http://www.vagabondjourney.com/religion-in-kinmen-taiwan/).
 - Resistance
     - After Japan, jeebus freaks find it very hard to convert Taiwanese, call it a missionary graveyard. [TT](http://www.taiwantoday.tw/ct.asp?xItem=45047&CtNode=436).
+
