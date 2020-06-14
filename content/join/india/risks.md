@@ -14,7 +14,7 @@ Becoming a Hindu is an excellent thing! Still, it is advisable be bold as well a
 - Your employer may discriminate against you. +++(Then just change your job.)+++
 
 ### Inheritence issues
-
+-
 
 ## Security
-- In rare cases, individuals belonging to your old religion (eg. Muslim fanatics) may resort to violence against you and your family. In such cases, please consider getting security. You can try [contacting us](../contact/) or local hindu orgs for help.
+- In rare cases, individuals belonging to your old religion (eg. Muslim fanatics) may resort to violence against you and your family. In such cases, please consider getting security. You can try [contacting us](../../contact/) or local hindu orgs for help.
