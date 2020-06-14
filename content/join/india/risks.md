@@ -3,14 +3,18 @@ title: Risks
 ---
 
 ## Intro
-Becoming a Hindu is an excellent thing! But, it is advisable be bold as well as intelligent. Anticapate the risks you will face, and work around them!
+Becoming a Hindu is an excellent thing! Still, it is advisable be bold as well as intelligent. Anticipate the risks you will face, and work around them!
 
 ## Social
-- Your house owner may ask you to vacate.
-- Some of your relatives may boycott you.
+- Your house owner may ask you to vacate. +++(Then just find a new house.)+++
+- Some of your relatives may boycott you. +++(Just make new friends.)+++
+- Your family members may need to be convinced (eg. wife/ husband).
 
 ## Economic
+- Your employer may discriminate against you. +++(Then just change your job.)+++
+
+### Inheritence issues
 
 
 ## Security
-- In rare cases, individuals belonging to your old religion (eg. Muslims) may resort to violence against you and your family. In such cases, please consider getting security. You can try [contacting us](../contact/) or local hindu orgs for help.
+- In rare cases, individuals belonging to your old religion (eg. Muslim fanatics) may resort to violence against you and your family. In such cases, please consider getting security. You can try [contacting us](../contact/) or local hindu orgs for help.
