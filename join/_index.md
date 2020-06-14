@@ -1,5 +1,5 @@
 ---
-title: Become hindu!
+title: +Become hindu!
 ---
 
 Welcome! So, you want to become a hindu +++(Aka ghar-wapasi in case of ethnic Indians)+++? In these pages, we offer:
