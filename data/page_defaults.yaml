@@ -22,3 +22,11 @@
     comments: true
     search: true
     sidebar: paganology_sidebar
+-
+  scope:
+    pathPrefix: "join"
+  values:
+    layout: "page"
+    comments: true
+    search: true
+    sidebar: join_hindus_sidebar

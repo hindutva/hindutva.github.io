@@ -2,13 +2,8 @@
 
 title: Parts
 contents:
-  - title: Hindutvam
-    url: /main/hinduism/
-  - title: Paganology
-    url: /paganology/
-  - title: Become Hindu!
-    url: /join/
-  - title: Contributing
-    url: /contributing/
+  - url: recdir://join/
+  - title: Home
+    url: /
   - title: <i class="fas fa-hand-holding-heart"></i>Donate!
     url: /dharma-via-hindutva/
