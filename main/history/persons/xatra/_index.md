@@ -117,6 +117,7 @@ See [anti-preta](../anti-preta/)
 - Gopal "Pantha" mukhyopAdhyAya, who defended hindus against muslim league mobs in Bengal \[[W](https://en.wikipedia.org/wiki/Gopal_Chandra_Mukhopadhyay)\]. 
     - "I will not lay down even a nail if it has been used for defending Hindu honour"
 - K K Nammaan, a vaishya who successfully confronted the islamic menace in Aligarh UP \[[TW](https://twitter.com/vvaayu/status/814088209546223616)\]
+- Jaswant Singh Rawat, a rifleman who, with Lance Naik Trilok Singh Negi and Rifleman Gopal Singh Gusain, captured a critical machine gun post in 1962 China war in AP, in a battle where 300 PLA soldiers were killed at the cost of 2 men.
 - [rANi gaiDiliu](http://manasataramgini.wordpress.com/2014/03/13/6384/) of the nAga-s, who fought christianity and the Naga National Council - but alas - failed due to the foolishness of Indian government.  
 - Justice Hans Raj [Khanna](https://en.wikipedia.org/wiki/Hans_Raj_Khanna), two of whose judgements are central to constitutional law - Basic Structure Doctrine (which legislative changes must respect), Government's emergency powers are limited.
 - narendra-bhai modi, wrongly [maligned ruler](javascript:void(0);) of gujarat, effective ruler.  
