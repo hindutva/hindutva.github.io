@@ -3,7 +3,7 @@ title: Khmer
 ---
 
 ## Intro
-- Khmer are Austronesians. \~5% of Cambodian ancestry seems to be Indian.
+- Khmer are Austronesians. \~5% of Cambodian ancestry seems to be Indian. \[[RK16](http://www.unz.com/gnxp/the-indian-ocean-as-humanitys-pond/#comment-1555053)\]
 - Khmer have historically been a lowland people who lived close to one of the tributaries of the Mekong River.
 
 ## Legends
@@ -20,3 +20,6 @@ title: Khmer
 - "The rise of the Tai kingdoms of Sukhothai (1238) and Ayutthaya (1350) resulted in almost ceaseless wars with the Cambodians and led to the destruction of Angkor in 1431. They are said to have carried off 90,000 prisoners ... The period following 1432, with the Cambodian people bereft of their treasures, documents, and human culture bearers, was one of precipitous decline."
 - "In 1434, King Ponhea Yat made Phnom Penh his capital, and Angkor was abandoned to the jungle. ... "
 - "Due to continued Siamese and Vietnamese aggression, Cambodia appealed to France for protection in 1863 and became a French protectorate in 1864. During the 1880s, along with southern Vietnam and Laos, Cambodia was drawn into the French-controlled Indochinese Union."
+
+## Current religion
+- "Modern Khmer strongly identify their ethnic identity with their religious beliefs and practices, which combine the tenets of Theravada Buddhism with elements of indigenous ancestor-spirit worship, animism and shamanism. ... "
