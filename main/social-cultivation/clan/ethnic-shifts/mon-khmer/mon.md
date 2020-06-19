@@ -3,7 +3,7 @@ title: Mon
 ---
 
 ## Intro
-- Aka Talaing, Peguans, Raman (ရာမန်) from pALi Rāmañña(ရာမည)-desha, their heartland in burmese coast.
+- Aka Talaing, Peguans, Raman (ရာမန်) from pALi Rāmañña(ရာမည)-desha, their heartland in burmese coast. The Tailang name suggests that they may have had some Indian Telanga ancestry.
 - The Mon adapted pallava alphabet. 
 
 ## Religion
