@@ -32,19 +32,23 @@ title: Champa & Kinh
 - "From the 8th century onward trade and shipping of India came to be increasingly controlled by Muslims from such regions as Gujarat. Islamic ideas became a part of the vast tide of exchange, treading the same path as Hinduism and Buddhism centuries before. ... Ad-Dimashqi writes in 1325, "the country of Champa... is inhabited by Muslims and idolaters. The Muslim religion came there during the time of Caliph Uthman... and Ali, many Muslims who were expelled by the Umayyads and by Hajjaj, fled there"."
 - " it was not until 17th century that Islam began to attract large numbers of Chams, when some members of the Cham royalty converted to Islam. "
 - "Indonesian 15th century records indicate the influence of Princess Daravati, a Cham, converted to Islam,[38] and influenced her husband, Kertawijaya, Majapahit's seventh ruler to convert the Majapahit royal family to Islam. ... In the 15th to 17th century, Muslim Cham maintained a cordial relationship with the Aceh Sultanate through dynastic marriage."
+- History [here](../../../paganology/vietnam/).
+- "Physical evidence of Cham culture in Vietnam is disappearing. In Binh Thuan Province and elsewhere, Cham temple sites and ancient tombs have been overrun by paddies, dragonfruit plantations, and shrimp farms. In Quang Ngai Province, temple sites have been damaged or destroyed by gravel quarrying. The Vietnamese continue to build Buddhist temples atop the ruins of Cham religious sites and to use bricks from Cham citadels to build their houses. Hill tribes relocated from the far north of Vietnam now live in Champa's last capital, Song Luy, brought down during Minh Mang's purge. "
+
+### Rollback
+- De-islamicization - Chinese muslim army in struggle with Dai viet, later annihilation \[[IMG](http://i.imgur.com/2qsBX3f.png)\].  
 
 ## Kinh domination
 - "In the Cham–Vietnamese War (AD 1471), Champa suffered serious defeats at the hands of the Vietnamese, in which 120,000 people were either captured or killed. .. Champa was reduced to the principalities of Panduranga and Kauthara (Nha Trang) at the beginning of the 17th century. Kauthara was annexed by the Vietnamese in 1653. The last remaining principality of Champa, Panduranga, survived until 1832."
 
+## Dai Viet invasion of Mekong Delta
+"In the 17th century a weakened Khmer state left the Mekong Delta poorly administered after repeated warfare with Siam. Concurrently Vietnamese refugees fleeing the Trịnh–Nguyễn War in Vietnam migrated into the area. In 1623 Cambodian king Chey Chettha II (1618–1628) officially sanctioned the Vietnamese immigrants to operate a custom house at Prey Nokor, then a small fishing village. The settlement steadily grew soon becoming a major regional port, attracting even more settlers. In 1698 the Nguyễn Lords of Huế commissioned Nguyễn Hữu Cảnh, a Vietnamese noble to organize the territory along Vietnamese administrative lines, thus by de facto detaching it from the Kingdom of Cambodia and incorporating it into Vietnam. With the loss of the port of Prey Nokor, then renamed Sài Gòn, Cambodia's control of the area grew increasingly tenuous while increasing waves of Vietnamese settlers to the Delta isolated the Khmer of the Mekong Delta from the Cambodian kingdom. By 1757 the Vietnamese had absorbed the provinces of Psar Dèk (renamed Sa Đéc in Vietnamese) on the Mekong itself, and Moat Chrouk (Vietnamized to Châu Đốc) on the Bassac River."
+
+### Suppression of Cham
+- "Minh Mạng enacted assimilation policies upon the Khmer such as forcing them to adopt Sino-Vietnamese surnames, culture, and clothing. Minh Mang sinicized ethnic minorities including the Cambodians, in line with Confucianism as he diffused Vietnamese culture with China's Han civilization using the term Han people 漢人 for the Vietnamese."
+- "In 1832, Emperor Minh Mang set out to crush the last vestiges of Cham autonomy and stamp out the culture, burning Cham villages and farmland and destroying ancient temples. Many Cham fled to Cambodia, where their descendants number in the hundreds of thousands today."
+- "Cham Hindus were fed beef and Cham Muslims were fed pork under coercion by Vietnamese invaders after the Vietnamese invasion of the last part of independent Champa in 1832." 
+
+
 ## Current state
-- "Balamon Chams that adhere to an indigenized form of Hinduism, and Bani Chams that adhere to an indigenized form of Islam. These two groups mostly live in separate villages. Intermarriage was prohibited in former times, and remains rare even nowadays. Both groups are matrilineal and conform to matrilocal residence practice."
-- "The majority of Vietnamese Cham being Hindu while the majority of Cambodian Cham are Muslim, though significant minorities of Mahayana Buddhists continue to exist."
-
-### Hindus
-- "Balamon Chams do not have a strict caste system, although previously they may have been divided between the Nagavamshi Kshatriya and the Brahmin castes"
-- "Hindu temples are known as Bimong in Cham language, but are commonly referred to as tháp "stupa", in Vietnamese. The priests are divided into three levels, where the highest rank are known as Po Adhia or Po Sá, followed by Po Tapáh and the junior priests Po Paséh."
-
-### Muslims
-- "All of the Cham Muslims are Sunnis of the Shafi'i school. Po Dharma divides the Muslim Cham in Cambodia into a traditionalist branch and an orthodox branch." 
-- Traditional branch: " ... A syncretic form of Islam that blends indigenous practices of matriarchy, ancestor veneration and Hinduism is practiced by the Cham Bani." 
-- "Each year some of the Cham go to study the Qur'an at Kelantan in Malaysia, and some go on to study in, or make a pilgrimage to, Mecca. According to figures from the late 1950s, about seven percent of the Cham had completed the pilgrimage and could wear the fez or turban as a sign of their accomplishment."
+See [vietnam article](../../../../../../paganology/vietnam/) for current state and later history.
