@@ -61,94 +61,29 @@ It is always assumed that the brahmin settlers of Southeast Asia, after crossing
 
 The fact that Brāhmaṇs have come to Indonesia has puzzled m a ny historians as we know from the sacred texts that Hindus are  not allowed to travel by sea. But 'men are  always caught by historians in the very act of belying their principles by their actions.' ... the supposition is upon the surface that the Indians married the daughters of the soil. We must, however, keep in mind, that we know nothing about this earliest evolution.
 
-Wheatley (1982: 20) has referred to theories about what happened without specifying how it happened on the assumpti on that evidence is no longer available, as black box models. It is a n apt ch arac terization of a common scientific procedure, but Wheatley's own illustra tions of ' first intimations'
-a nd 'first glimpses' inside the box are  unpersuasive: Bosch' discussion of
-Saiva Siddhā nta overemphasized the philosophic, a nd Wolters' 'men ofprowess' arose from a confusion between Sa iva āgam as a nd devo tiona l bhakti
-movements th at extol the grace ofVi ~ Q.u (if supermen were needed it would
-be easier to locate them in Ta ntrism where the practiti oner is often referred
-to as vlra, littera lly, 'ma le hero' ). Bosch a nd Wolters paid insufficient a ttention to the fact th at the Saiv a āgam as a nd T antrism in ge neral deal prim a ril y wi th ritu al.
-And yet, without m enti oning it, both Bosch a nd Wolters pointed in the
-right direction: Ta ntra a nd āgama help to explain tha t South a nd Southeast Asians looked in new direc ti ons. M oreove r, the black box contains not
-onl y unsolved m a rri ages a nd sea voyages but a lso a third difficulty tha t logicall y precedes them: for if we can solvc it we m ay be able to solve the
-others. Though the French a nthropologist Louis Dumont has expressed it
-perhaps m os t clea rl y, it is wel l known th at the brahmins of Indi a are  (or
-were until rece ntly) the people mos t comfortably placed in their society.
-Our first questi on must therefore be, why would a bra hmin leave Indi a
-a nd engage in prohibited ac ts? Werc there specific reasons at home? C ould
-th ere have bee n particul a rly attrac ti ve offers from overseas?
-As for specific reasons at hom e, scvera l may be imagined. They include
-caste exclusion because of crimes or misdeeds of individu als, as weil as structura l reaso ns. I am famili ar with only one case of groups of Indi an brahmins being excluded from th e Vedi c traditi on. Among the Nambudiri brahmins of K era la, two sub-castes have bee n excluded (they are  called, in
-M a layalam , otlillatla 'non-cha nting' ) because they were polluted by being
-in contac t with blood. The first sub-cas te consists of brahmins who becam e
-warriors. The second compri ses eight fa milies of traditi ona l physicians
-(a!!avaidyan ). In Ba li, brahmins simila rl y 'e mbraced Sa tri a ideals' and some
+Wheatley (1982: 20) has referred to theories about what happened without specifying how it happened on the assumpti on that evidence is no longer available, as black box models. It is a n apt ch arac terization of a common scientific procedure, but Wheatley's own illustra tions of ' first intimations' and 'first glimpses' inside the box are  unpersuasive: Bosch's discussion of Saiva Siddhānta overemphasized the philosophic, and Wolters' 'men of prowess' arose from a confusion between Saiva-āgamas and devotional bhakti movements that extol the grace of Viṣṇu (if supermen were needed it would be easier to locate them in Tantrism where the practitioner is often referred to as vīra, litterally, 'male hero' ). Bosch and Wolters paid insufficient a ttention to the fact that the Saiva āgam as and Tantrism in ge neral deal primarily with ritual.
 
-97
+And yet, without mentioning it, both Bosch and Wolters pointed in the right direction: Ta ntra and āgama help to explain that South and Southeast Asians looked in new directions. M oreover, the black box contains not only unsolved marriages and sea voyages but also a third difficulty that logically precedes them: for if we can solve it we may be able to solve the others. Though the French anthropologist Louis Dumont has expressed it perhaps most clearl y, it is well known that the brahmins of India are  (or were until recently) the people mos t comfortably placed in their society. Our first question must therefore be, why would a bra hmin leave India and engage in prohibited acts? Were there specific reasons at home? Could there have bee n particularly attractive offers from overseas?
 
-were warnors (Rubinstein 1991: 61, 69); but they were not similarly excluded.
-Marriage alliances with non-brahmins are not absent from Sanskrit literature and they are recognized by the law books provided they are in accordance with the one principle that governs mixed marriage: they must
-be anuloma, 'moving along with the growth of the hair', i.e., the male must
-belong to the higher caste. Intercaste marriages especially of a brahmin
-male with a kṣatriya or vaiśya female are known from the Vedas onward
-and anuloma marriages in general were freely allowed until the ninth century A.D. (Kane 1941, VOl.II, Part I, 447 sq.). Inscriptions from Kerala first
-prohibited such marriage alliances with wives of tenants, but later recognized the system that is still unique there (Narayanan and Veluthat 1983:
-261 - 263): in th at system, only the oldest son of a brahmin is allowed to marry within his caste through the traditional Vedic marriage ritual referred
-to as vivaha; the younger sons are only permitted alliances with non-brahmin women through what are called sambandham relationships. This system
-works because it is in accordance with a special feature of the Kerala caste
-system: if we exclude some of the allegedly kṣatriya nobles and a few rare
-'intermediate' castes to which I shall return in a moment, the highest and
-most important non-brahmin castes of Kerala, specifically the Nayars, are
-matrilinear - that is, children inherit from the mother, including her caste.
-In the case of a sambandham alliance of a brahmin man with a Nayar woman, the offspring are not brahmins but Nayars - aresuIt that accords
-with the non-identical caste rules of both parents. In Kerala, therefore,
-only the oldest son of a brahmin preserves the Vedic traditions characteristic of the brahmin cas te.
-There is some similarity between this Kerala system and what in Bali has
-been called the 'Principle of Sinking Status' (Geertz and Geertz 1975:
-124- (31 ). The rule of anuloma occurs in Bali: 'Although the texts do not mention it, a Brahmana man may marry women from other descent groups ...
-However, if Brahmana women marry into other descent groups, they ce ase
-to be Brahmana' (Rubinstein: 1991: 59 - 60). Hooykaas (1964: 35 - 36) writes
-about brahmin women: 'The craft of offering making forms for them a suitable means of livelihood wh en they remain unmarried, for whereas brahmins may, and often do, marry non-brahmins, this is still virtually impossibie for the brahmin women, who then have to earn their own living. Their
-function, as the makers of offerings and as intermediaries between the griya
-and the pura, the tempie, is probably very ancient.'
-In Kerala such functions are not open to brahmin women, but a group of
-sub-castes is specifically concerned with occupations relating to the tempie.
-lts members are referred to as ambalavasi, ' temple dweIlers' or antarala, 'inbetweeners' since some were the offspring of mixed marriages with brahmin fathers. One of these sub-castes deals with the preparation of flower of-
+As for specific reasons at home, several may be imagined. They include caste exclusion because of crimes or misdeeds of individuals, as weil as structural reasons. I am familiar with only one case of groups of Indian brahmins being excluded from the Vedic tradition. Among the Nambudiri brahmins of Kerala, two sub-castes have been excluded (they are  called, in Malayalam , otlillatla 'non-chanting' ) because they were polluted by being in contact with blood. The first sub-caste consists of brahmins who became warriors. The second comprises eight families of traditional physicians (aṣṭavaidyan ). In Bali, brahmins similarly 'embraced Satria ideals' and some were warnors (Rubinstein 1991: 61, 69); but they were not similarly excluded. Marriage alliances with non-brahmins are not absent from Sanskrit literature and they are recognized by the law books provided they are in accordance with the one principle that governs mixed marriage: they must be anuloma, 'moving along with the growth of the hair', i.e., the male must belong to the higher caste. Intercaste marriages especially of a brahmin male with a kṣatriya or vaiśya female are known from the Vedas onward and anuloma marriages in general were freely allowed until the ninth century A.D. (Kane 1941, VOl.II, Part I, 447 sq.). Inscriptions from Kerala first prohibited such marriage alliances with wives of tenants, but later recognized the system that is still unique there (Narayanan and Veluthat 1983:261 - 263): in that system, only the oldest son of a brahmin is allowed to marry within his caste through the traditional Vedic marriage ritual referred to as vivaha; the younger sons are only permitted alliances with non-brahmin women through what are called sambandham relationships. This system works because it is in accordance with a special feature of the Kerala caste system: if we exclude some of the allegedly kṣatriya nobles and a few rare 'intermediate' castes to which I shall return in a moment, the highest and most important non-brahmin castes of Kerala, specifically the Nayars, are matrilinear - that is, children inherit from the mother, including her caste. In the case of a sambandham alliance of a brahmin man with a Nayar woman, the offspring are not brahmins but Nayars - a resuIt that accords with the non-identical caste rules of both parents. In Kerala, therefore, only the oldest son of a brahmin preserves the Vedic traditions characteristic of the brahmin caste.
 
-98
+There is some similarity between this Kerala system and what in Bali has been called the 'Principle of Sinking Status' (Geertz and Geertz 1975: 124- (31 ). The rule of anuloma occurs in Bali: 'Although the texts do not mention it, a Brahmana man may marry women from other descent groups ... However, if Brahmana women marry into other descent groups, they cease to be Brahmana' (Rubinstein: 1991: 59 - 60). Hooykaas (1964: 35 - 36) writes
+about brahmin women: 'The craft of offering making forms for them a suitable means of livelihood when they remain unmarried, for whereas brahmins may, and often do, marry non-brahmins, this is still virtually impossible for the brahmin women, who then have to earn their own living. Their function, as the makers of offerings and as intermediaries between the griya and the pura, the tempie, is probably very ancient.'
 
-ferings and garlands; their members are call ed pu!pakan from PU!jJa, 'flow er'
+In Kerala such functions are not open to brahmin women, but a group of sub-castes is specifically concerned with occupations relating to the temple. Its members are referred to as ambalavasi, ' temple dwellers' or antarala, 'in-betweeners' since some were the offspring of mixed marriages with brahmin fathers. One of these sub-castes deals with the preparation of flower offerings and garlands; their members are call ed puṣpakan from Puṣpa, 'flower'
 (Thurston 1909: 28 - 29; Anantha Krishna lyer 1912, I: 133- 134).
-I mention these Keral a specifics not because I feel tha t there are special
-connections between lndonesia a nd K eral a but because I happen to be familiar with them. However, Levi (1933: XIX ) m entioned that he found mantras similar to the Balinese in the īsanasivagurudeva -paddlzati, the Tantrasa muccaya (' Tattvasamuccaya' must be am isprint ) a nd the ParasuramakaLpa, a ll
-T a ntric works from Keral a. These connec tions shou ld be pursued furth er
-when K eral a T antri sm becomes better known .,g
-The structure of the cas te system in a particul a r region may ex plain why
-some sons ofbrahmin fath ers cease to be brahmins. But why should an individual brahmin give up his caste willingly? There is a general answer to
-this question: because of the desire for renunciation, an option especially attrac tive to non-brahmins but nevertheless adopted by brahmins throughout Indi an history. Dumont (1959, 1966) has argued tha t th e reason for renunciation is tha t it enables cas te-m embers to become individuals. The
-underlying assumption is th at 'individuality,' a llegedl y a characte ri stic feature of Europeans, is absent from members of a traditional caste hi erarchy.
-I don't know wh ether th is in triguing idea is correct: I know many Indian individuals and they do not seem to be rare in c1assical Sanskrit literature. Be
-th is as it may, there is little doubt th at the idea of renunciation is an important feature of Indi an thought. Beginning during the end of the Vedas, or
-Upani~ads, it has become increasingly common to denounce ritual a nd
-caste and recommend renunciation 'from the world,' i. e., from the society
-of fa mily, vi ll age and caste with their concomitant ritual s. This goal was advocated by J ainism and Buddhism and invaded the Vedic traditions. And
-yet, ritua l a nd caste were often not rej ected but m erely transform ed as the
-renouncers created new 'parall el societies' (as Romila Thapar called them ;
-see also H ees terma n 1985: 42 sq.). Buddhists andJainas introduced rites for
-becoming a monk that are  reminiscent of upanayana. The monks themselves
-officiated at fun eral rites for th e m embers of the higher castes whereas brahmin ri tual experts co ntinued to do so at all other life-cycle rites. The antiritual act of renunciation itself came to be celebrated by a rite modeled
-after funeral ritual.
-Caste and ritual continued in some form or other through most innovati ons. The majority of ea rl y Buddhists themselves came from the higher
-castes, especia lly the bra hmin. One of the first important brahmins who becam e a Buddhist was Mah a kasyapa, a direct pupil of Buddha and an important conservative voice in ea rl y Buddhism . Yoga, in its many forms,
 
-'9 A project o n K e rala T ant ri sm is presently underway and in vo lvcs stlld y of the living tradition as we il as tex ts slI(' h as Tan lrnmmuccaya , īsanrdivagumdeva/Jaddhali and Se~asamuccaya.
+I mention these Kerala specifics not because I feel that there are special connections between lndonesia and Kerala but because I happen to be familiar with them. However, Levi (1933: XIX ) mentioned that he found mantras similar to the Balinese in the īsanasivagurudeva -paddhati, the Tantrasamuccaya (' Tattvasamuccaya' must be a misprint ) and the Parasuramakalpa, all Tantric works from Kerala. These connections should be pursued further when Kerala Tantrism becomes better known. 19
 
-99
+(19 A project on Kerala Tantrism is presently underway and involves study of the living tradition as well as texts such as Tantrasamuccaya , īsanaśivagurudevapaddhati and śēṣamuccaya.)
 
-also appealed to brahmins. According to legend, the famous philosopher
-Sailkara celebrated the rite of renunciation when he was still young, possibly having fall en under the spellof a Yogin (cf. Staal '995). With the development of Tantrism, new alternatives became available and a brahmin
-might feel that Tantric methods were more effective than the traditional,
+The structure of the caste system in a particular region may explain why some sons of brahmin fathers cease to be brahmins. But why should an individual brahmin give up his caste willingly? There is a general answer to this question: because of the desire for renunciation, an option especially attractive to non-brahmins but nevertheless adopted by brahmins throughout Indian history. Dumont (1959, 1966) has argued that the reason for renunciation is that it enables caste-members to become individuals. The underlying assumption is that 'individuality,' allegedly a characte ri stic feature of Europeans, is absent from members of a traditional caste hi erarchy.
+
+I don't know whether this intriguing idea is correct: I know many Indian individuals and they do not seem to be rare in classical Sanskrit literature. Be this as it may, there is little doubt th at the idea of renunciation is an important feature of Indian thought. Beginning during the end of the Vedas, or Upaniṣads, it has become increasingly common to denounce ritual and caste and recommend renunciation 'from the world,' i. e., from the society of fa mily, vil age and caste with their concomitant rituals. This goal was advocated by Jainism and Buddhism and invaded the Vedic traditions. And yet, ritual and caste were often not rej ected but merely transformed as the renouncers created new 'parallel societies' (as Romila Thapar called them ; see also Heesterman 1985: 42 sq.). Buddhists and Jainas introduced rites for becoming a monk that are reminiscent of upanayana. The monks themselves officiated at funeral rites for the members of the higher castes whereas brahmin ritual experts co ntinued to do so at all other life-cycle rites. The anti-ritual act of renunciation itself came to be celebrated by a rite modeled after funeral ritual.
+
+Caste and ritual continued in some form or other through most innovations. The majority of ea rly Buddhists themselves came from the higher castes, especially the brahmin. One of the first important brahmins who became a Buddhist was Mahākasyapa, a direct pupil of Buddha and an important conservative voice in early Buddhism . Yoga, in its many forms, also appealed to brahmins. According to legend, the famous philosopher Sailkara celebrated the rite of renunciation when he was still young, possibly having fallen under the spell of a Yogin (cf. Staal '995). With the development of Tantrism, new alternatives became available and a brahmin might feel that Tantric methods were more effective than the traditional,
 whatever the tradition (cf. Gupta et al. '979: 30). Tantrism introduced new
-or partly new rites such as dfk~ti initiation, a term used in Vedic ritual for
+or partly new rites such as dīkṣā initiation, a term used in Vedic ritual for
 the initiation of the ritua l patron or yajamtina.
 In sum, both brahmins and non-brahmins were interested in the many
 other options that existed outside the traditional cas te system, including
@@ -185,21 +120,21 @@ imply that the ritualists used at any time the 'sacred thread' of the upanaya-
 na - unlike the sirovi~!a 'head-ba nd ' which does not onl y occur in m a ntras
 but which the padanda uses a lthough it does not occur in any brahma nic
 rite. These facts suggest th at most of the so-called Ba linese brahmins were
-T antrics of various a ffili ations and persuasions, Buddhist as weil as nonBuddhist. They may have included a few of partial a nd more or less distant
-bra hmin origins a nd others pretending to be brahmins or la ter looked
+T antrics of various a ffili ations and persuasions, Buddhist as weil as nonBuddhist. They may have included a few of partial and more or less distant
+bra hmin origins and others pretending to be brahmins or la ter looked
 upon as such. The position they occ upi ed was and still is similar to the
 position of brahmins (at least, until recently ) in Indi a : they continue to be
 patrilinear ritual ex perts with knowledge of m a ntras and a high ritual and
-socia l status, advisers of princes a nd others and comfortably placed in their
+socia l status, advisers of princes and others and comfortably placed in their
 society. They were a lso conce rned with their sta tus as brahmins
 (kabrahmanan; cf. Rubinstein 1991 ); but they were not brahmins.
 Between Indi a and the mainland of Southeast Asia the prohibited seatrave! would not have been necessary. Even so, the court or 'Buddhist brahmins' of Thailand and Cambodia, already m entioned , crossed the sea from
 Southeast Indi a though it happened only a few ce nturies ago. Like the brahmins of Bali, they lack Vedic m a ntras, upanayana, the sacred thread and gotras, not to mention more exo ti c Vedic paraphernalia. Unlike their Ba linese
 counterparts, they possess no t only Sanskrit but also Tamil tex ts (Sarma
 1972). As we have already see n, it is likely th at neither they nor the Saivite
-ascetics of I ndon esia were brahmins. Earlier and on the mainl a nd of Sou theast Asia, a brahmin presence may have been more probable. The South India n brahmin who belonged to the làittirfya school according to a seventh
+ascetics of I ndon esia were brahmins. Earlier and on the mainl and of Sou theast Asia, a brahmin presence may have been more probable. The South India n brahmin who belonged to the làittirfya school according to a seventh
 century Cambodian inscription (Bha ttacharya 1961: 131 note I) is likely to
-have been a brahmin. The use of Vedic ritua l terms a nd th e reference to a
+have been a brahmin. The use of Vedic ritua l terms and th e reference to a
 (post-Vedic) brahmayaJiia during which allegedly Vedic and other tex ts were
 recited (ibid. 148- 150), on the other hand, prove little and Bhattacharya
 comments that ' les rites proprement védiques n'ontjoué aucun rale au Cambodge.' It see ms safe to conclude that the la rge m aj ority of the so-called
