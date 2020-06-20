@@ -55,30 +55,11 @@ The diffusion of Vedic ritual knowledge is confined to brahmins but is subject t
 
 Leaving India and barring details to which we shall return, the overall picture is clear: in Bali, the entire ritual edifice erected by the brahmins of India is conspicuous by its absence.
 
-It is conceivable that brahmins lost Vedic paraphernalia that in India
-might be regarded as essen ti al but overseas as superfluous. After all, many
-Indian brahmins have lost their Vedic heritage and become cooks, taxi drivers, administrators, stenographers and scientists without ceasing to be
-brahmins. However, there is a difference. None of these modern specialists
-need ritual in their profession. The brahmins of Southeast Asia, on the
-other hand, went there allegedly as ritual specialists. It would have made
-little sense for them to cut off the ritual roots from which they derived their
-position, authority and influence.
-It is always assumed that the brahmin settlers of Southeast Asia, after
-crossing the ocean, married indigenous women. Both crossing the ocean
-and marrying non-brahmins seem to conflict with the classical rules and
+It is conceivable that brahmins lost Vedic paraphernalia that in India might be regarded as essential but overseas as superfluous. After all, many Indian brahmins have lost their Vedic heritage and become cooks, taxi drivers, administrators, stenographers and scientists without ceasing to be brahmins. However, there is a difference. None of these modern specialists need ritual in their profession. The brahmins of Southeast Asia, on the other hand, went there allegedly as ritual specialists. It would have made little sense for them to cut off the ritual roots from which they derived their position, authority and influence.
 
-96
+It is always assumed that the brahmin settlers of Southeast Asia, after crossing the ocean, married indigenous women. Both crossing the ocean and marrying non-brahmins seem to conflict with the classical rules and laws of brahmin society. Bernet Kempers (193T 6- 7) glosses over the first problem but faces the second squarely: The fact that Brāhmaṇs have come to Indonesia has puzzled m a ny historians as we know from the sacred texts that Hindus are  not allowed to travel by sea. But 'men are  always caught by historians in the very act of belying their principles by their actions.' ... the supposition is upon the surface that the Indians married the daughters of the soil. We must, however, keep in mind, that we know nothing about this earliest evolution.
 
-laws of bra hmin society. Bernet Kempers (193T 6- 7) glosses ove r the first
-problem but faces th e second squa rely:
-The fac t that Bra hm a ns have come to Indonesia has puzz led m a ny histori ans as we know from the sacrcd texts tha t Hindus are  not allowed to
-travel by sea. But 'm en are  a lways caught by historians in the very ac t of
-belying their principles by their acti ons.'
-... the supposition is upon the surface th at the India ns m a rried the d aughters of the soil. We must, however, kee p in mind, tha t we know no thing
-about this earli es t evolution.
-Wheatley (1982: 20) has referred to th eories a bout what happened without
-specifying how it happened on the assumpti on tha t evidence is no longer
-available, as black box modeis. It is a n apt ch arac terization of a common
+Wheatley (1982: 20) has referred to theories about what happened without specifying how it happened on the assumpti on that evidence is no longer available, as black box models. It is a n apt ch arac terization of a common
 scientific procedure, but Wheatley's own illustra tions of ' first intima tions'
 a nd 'first glimpses' inside the box are  unpersuasive: Bosch' discussion of
 Saiva Siddhā nta overemphasized the philosophic, a nd Wolters' 'men ofprowess' arose from a confusion between Sa iva āgam as a nd devo tiona l bhakti
