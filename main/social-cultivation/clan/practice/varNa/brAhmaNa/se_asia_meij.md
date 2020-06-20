@@ -3,7 +3,7 @@ title: SE Asia Brahmins - Meij
 ---
 
 Intro
-- Were the Brahmins of Southeast Asia Brahmins? by Meij
+- Were the Brahmins of Southeast Asia Brahmins? by Dick van der Meij
 
 The main evidence in support of the idea that the brahmins of Southeast Asia were brahmins is that they were called so. Filliozat (1972: vii ) was suitably cautious in putting both 'brahmin' and 'Hindu' within quotation marks: "En Thailande et au Cambodge il existe une communauté dite de 'brahmanes', spécialisée dans l'accomplissement de rites 'hindous' dans les cérémoni es officielles."
 
@@ -81,61 +81,10 @@ The structure of the caste system in a particular region may explain why some so
 
 I don't know whether this intriguing idea is correct: I know many Indian individuals and they do not seem to be rare in classical Sanskrit literature. Be this as it may, there is little doubt th at the idea of renunciation is an important feature of Indian thought. Beginning during the end of the Vedas, or Upaniṣads, it has become increasingly common to denounce ritual and caste and recommend renunciation 'from the world,' i. e., from the society of fa mily, vil age and caste with their concomitant rituals. This goal was advocated by Jainism and Buddhism and invaded the Vedic traditions. And yet, ritual and caste were often not rej ected but merely transformed as the renouncers created new 'parallel societies' (as Romila Thapar called them ; see also Heesterman 1985: 42 sq.). Buddhists and Jainas introduced rites for becoming a monk that are reminiscent of upanayana. The monks themselves officiated at funeral rites for the members of the higher castes whereas brahmin ritual experts co ntinued to do so at all other life-cycle rites. The anti-ritual act of renunciation itself came to be celebrated by a rite modeled after funeral ritual.
 
-Caste and ritual continued in some form or other through most innovations. The majority of ea rly Buddhists themselves came from the higher castes, especially the brahmin. One of the first important brahmins who became a Buddhist was Mahākasyapa, a direct pupil of Buddha and an important conservative voice in early Buddhism . Yoga, in its many forms, also appealed to brahmins. According to legend, the famous philosopher Sailkara celebrated the rite of renunciation when he was still young, possibly having fallen under the spell of a Yogin (cf. Staal '995). With the development of Tantrism, new alternatives became available and a brahmin might feel that Tantric methods were more effective than the traditional,
-whatever the tradition (cf. Gupta et al. '979: 30). Tantrism introduced new
-or partly new rites such as dīkṣā initiation, a term used in Vedic ritual for
-the initiation of the ritua l patron or yajamtina.
-In sum, both brahmins and non-brahmins were interested in the many
-other options that existed outside the traditional cas te system, including
-those that could be combi ned with the adherence to (some form of) caste.
-The teachings of the Bhagavad GHa, for example, have to be primarily understood in such a context: they advocate the performance of traditional
-cas te duties (varr:za-dharma ) without attachment to their alleged fruits - a
-cautious attack not on the system of caste itself but on some of its inherent
-values. Tantrics went much further, metaphorically and actually: they
-were not tied to caste or the Indian soil and could travel as they pleased .
-If either brahmins or Tantrics transmitted Indian knowledge beyond Indian borders, marriages or marriage-like a lliances with non-Indians are
-likely to have taken place. Not necessarily so, for the more orthodox (nonTantric) form s of Buddhism were transmitted by non-marrying monks and
-Tantrics such as Gonda's Saivite ascetics need not have been married
-either. There are non-Buddhist, including brahmin paralleIs from India,
-the latter Buddhist inspired : the Advaita Vedanta tradition is transmitted
-through lineages of originally brahmin Sankaracaryas who never married
-and became renouncers at an early stage of life, indicating their successor
-by simple choice when they feit the time was right.
-Many of these facts about the Indian caste system provide no more than
-circumstanti al evidence concerning the general question of the brahmins of
-Southeast Asia. However, as far as Bali is concerned, we can now be more
-specific: there is no evidence there of the upanayana initiation into brahminhood , the sacred thread, exogamic go tras or marriage restrictions and,
-above all, an almost total absence of Vedic mantras or anything else pertaining to Vedic traditions. The mantras found in Bali are largely Tantric
-as is the consecration of the padanda insofar as it is not Balinese. That latter
-ceremony has several names, including mediksa (cf. Korn '928 = '984:
-'3' - 153) which again is Tantric. Balinese ceremoni es display a mixture of
-ritual and yoga-like meditation which is, as we have seen, a characteristic
-feature ofTantrism. Many of the specifically brahmin terms - upanayana, gotra , ftikhti, etc. - do not occur in Indonesia or occur in other senses (Gonda
-'952; Ensink and van Buitenen 1964). The term yajiiopavfta does occur in
-mant ras (SuSe 126, 180; cf. Gonda 1952: 167) but this is typical and does not
-imply that the ritualists used at any time the 'sacred thread' of the upanaya-
+Caste and ritual continued in some form or other through most innovations. The majority of ea rly Buddhists themselves came from the higher castes, especially the brahmin. One of the first important brahmins who became a Buddhist was Mahākasyapa, a direct pupil of Buddha and an important conservative voice in early Buddhism . Yoga, in its many forms, also appealed to brahmins. According to legend, the famous philosopher Saṅkara celebrated the rite of renunciation when he was still young, possibly having fallen under the spell of a Yogin (cf. Staal '995). With the development of Tantrism, new alternatives became available and a brahmin might feel that Tantric methods were more effective than the traditional, whatever the tradition (cf. Gupta et al. '979: 30). Tantrism introduced new or partly new rites such as dīkṣā initiation, a term used in Vedic ritual for the initiation of the ritual patron or yajamtina.
 
-100
+In sum, both brahmins and non-brahmins were interested in the many other options that existed outside the traditional cas te system, including those that could be combined with the adherence to (some form of) caste. The teachings of the Bhagavad GHa, for example, have to be primarily understood in such a context: they advocate the performance of traditional caste duties (varṇa-dharma ) without attachment to their alleged fruits - a cautious attack not on the system of caste itself but on some of its inherent values. Tantrics went much further, metaphorically and actually: they were not tied to caste or the Indian soil and could travel as they pleased. If either brahmins or Tantrics transmitted Indian knowledge beyond Indian borders, marriages or marriage-like alliances with non-Indians are likely to have taken place. Not necessarily so, for the more orthodox (non Tantric) forms of Buddhism were transmitted by non-marrying monks and Tantrics such as Gonda's Saivite ascetics need not have been married either. There are non-Buddhist, including brahmin parallels from India, the latter Buddhist inspired : the Advaita Vedanta tradition is transmitted through lineages of originally brahmin Sankaracaryas who never married and became renouncers at an early stage of life, indicating their successor by simple choice when they feit the time was right.
 
-na - unlike the sirovi~!a 'head-ba nd ' which does not onl y occur in m a ntras
-but which the padanda uses a lthough it does not occur in any brahma nic
-rite. These facts suggest th at most of the so-called Ba linese brahmins were
-T antrics of various a ffili ations and persuasions, Buddhist as weil as nonBuddhist. They may have included a few of partial and more or less distant
-bra hmin origins and others pretending to be brahmins or la ter looked
-upon as such. The position they occ upi ed was and still is similar to the
-position of brahmins (at least, until recently ) in Indi a : they continue to be
-patrilinear ritual ex perts with knowledge of m a ntras and a high ritual and
-socia l status, advisers of princes and others and comfortably placed in their
-society. They were a lso conce rned with their sta tus as brahmins
-(kabrahmanan; cf. Rubinstein 1991 ); but they were not brahmins.
-Between Indi a and the mainland of Southeast Asia the prohibited seatrave! would not have been necessary. Even so, the court or 'Buddhist brahmins' of Thailand and Cambodia, already m entioned , crossed the sea from
-Southeast Indi a though it happened only a few ce nturies ago. Like the brahmins of Bali, they lack Vedic m a ntras, upanayana, the sacred thread and gotras, not to mention more exo ti c Vedic paraphernalia. Unlike their Ba linese
-counterparts, they possess no t only Sanskrit but also Tamil tex ts (Sarma
-1972). As we have already see n, it is likely th at neither they nor the Saivite
-ascetics of I ndon esia were brahmins. Earlier and on the mainl and of Sou theast Asia, a brahmin presence may have been more probable. The South India n brahmin who belonged to the làittirfya school according to a seventh
-century Cambodian inscription (Bha ttacharya 1961: 131 note I) is likely to
-have been a brahmin. The use of Vedic ritua l terms and th e reference to a
-(post-Vedic) brahmayaJiia during which allegedly Vedic and other tex ts were
-recited (ibid. 148- 150), on the other hand, prove little and Bhattacharya
-comments that ' les rites proprement védiques n'ontjoué aucun rale au Cambodge.' It see ms safe to conclude that the la rge m aj ority of the so-called
-brahmins of Southeast Asia were not brahmins.
+Many of these facts about the Indian caste system provide no more than circumstantial evidence concerning the general question of the brahmins of Southeast Asia. However, as far as Bali is concerned, we can now be more specific: there is no evidence there of the upanayana initiation into brahminhood , the sacred thread, exogamic gotras or marriage restrictions and, above all, an almost total absence of Vedic mantras or anything else pertaining to Vedic traditions. The mantras found in Bali are largely Tantric as is the consecration of the padanda insofar as it is not Balinese. That latter ceremony has several names, including mediksa (cf. Korn '928 = '984: '3' - 153) which again is Tantric. Balinese ceremonies display a mixture of ritual and yoga-like meditation which is, as we have seen, a characteristic feature ofTantrism. Many of the specifically brahmin terms - upanayana, gotra , śākhā, etc. - do not occur in Indonesia or occur in other senses (Gonda '952; Ensink and van Buitenen 1964). The term yajñopavīta does occur in mantras (SuSe 126, 180; cf. Gonda 1952: 167) but this is typical and does not imply that the ritualists used at any time the 'sacred thread' of the upanayana - unlike the śirōvastra 'head-band ' which does not only occur in mantras but which the padanda uses although it does not occur in any brahmanic rite. These facts suggest th at most of the so-called Balinese brahmins were Tāntrics of various affiliations and persuasions, Buddhist as well as non-Buddhist. They may have included a few of partial and more or less distant brahmin origins and others pretending to be brahmins or later looked upon as such. The position they occupied was and still is similar to the position of brahmins (at least, until recently ) in a : they continue to be patrilinear ritual experts with knowledge of mantras and a high ritual and social status, advisers of princes and others and comfortably placed in their society. They were a lso concerned with their status as brahmins (kabrahmanan; cf. Rubinstein 1991 ); but they were not brahmins.
+
+Between India and the mainland of Southeast Asia the prohibited seatravel would not have been necessary. Even so, the court or 'Buddhist brahmins' of Thailand and Cambodia, already m entioned , crossed the sea from Southeast India though it happened only a few centuries ago. Like the brahmins of Bali, they lack Vedic mantras, upanayana, the sacred thread and gotras, not to mention more exotic Vedic paraphernalia. Unlike their Balinese counterparts, they possess not only Sanskrit but also Tamil tex ts (Sarma 1972). As we have already seen, it is likely that neither they nor the Saivite ascetics of Indon esia were brahmins. Earlier and on the mainland of Southeast Asia, a brahmin presence may have been more probable. The South Indian brahmin who belonged to the taittirīya school according to a seventh century Cambodian inscription (Bha ttacharya 1961: 131 note I) is likely to have been a brahmin. The use of Vedic ritual terms and the reference to a (post-Vedic) brahmayajña during which allegedly Vedic and other texts were recited (ibid. 148- 150), on the other hand, prove little and Bhattacharya comments that 'les rites proprement védiques n'ontjoué aucun rale au Cambodge.' It see ms safe to conclude that the large majority of the so-called brahmins of Southeast Asia were not brahmins.
