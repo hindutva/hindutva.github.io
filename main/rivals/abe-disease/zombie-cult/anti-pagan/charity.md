@@ -1,6 +1,16 @@
 ---
 title: Charity sham
 ---
+## Intro
+- Social and medical work was/ is used by the missionaries to prepare the ground for conversion.
+- Though Christian propaganda may use the following creed to spread "1. Do good to your neighbours. 2. Forgive your enemies. 3. Spread my message all over.", we have noted that Christianity is far more sinister.
+
+## Mother Teresa, the angel from hell
+- Christopher Hitchens [says](http://www.slate.com/articles/news_and_politics/fighting_words/2003/10/mommie_dearest.html): "MT was not a friend of the poor. She was a friend of poverty. She said that suffering was a gift from God. ... Many more people are poor and sick because of the life of MT: Even more will be poor and sick if her example is followed. She was a fanatic, a fundamentalist, and a fraud, and a church that officially protects those who violate the innocent has given us another clear sign of where it truly stands on moral and ethical questions."
+- Regarding the abysmal quality of care for her poor patients, we have plenty of testimony from disillusioned volunteers. \[CH's [documentary shot](https://www.youtube.com/watch?v=65JxnUW7Wk4#t=382).\] Mother Teresa herself referred to the facilities as "Houses of the Dying".
+    - [Lancet published](http://www.thelancet.com/journals/lancet/article/PIIS0140-6736%2894%2991759-0/fulltext) a critical account of the care in Mother Teresa's facilities in 1994. [An academic Canadian study](http://www.nouvelles.umontreal.ca/udem-news/news/20130301-mother-teresa-anything-but-a-saint.html) from a couple of years ago found fault with "her rather dubious way of caring for the sick etc..
+- Baptisms of the dying: In a speech at the Scripps Clinic in California in January 1992, she said: "Something very beautiful... not one has died without receiving the special ticket for St. Peter, as we call it. We call baptism ticket for St. Peter. We ask the person, do you want a blessing by which your sins will be forgiven and you receive God? They have never refused. So 29,000 have died in that one house \[in Kalighat\] from the time we began in 1952."
+- As a general liar: [here](http://indiafacts.co.in/expose-mother-teresas-deceptions-demagoguery/).
 
 ## Rome
 - Julian to Arsacius, High-priest of Galatia (362, on his way to Antioch in June?] 
