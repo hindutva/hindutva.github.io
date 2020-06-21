@@ -2,6 +2,9 @@
 title: +Geopolitics
 ---
 
+## Economy
+" Trade is not just a game. Over the long sweep of history some nations lose independence and control of their destiny if they fall behind in trade. Therefore nations must think about it strategically, not just as a matter of where they can buy the cheapest shirt this week."
+
 ## Hindu vs west conflict 
 - "The lessons learned by other nations show what lies ahead. You have the rudhira-varṇa-s of mahākrauñcadvīpa whose numerous tribes were overpowered and exterminated by the mleccha-s."
 - "Then there are the kṛṣṇa-s of sthūladvīpa whom they along with the marūnmatta-s reduced to being slaves. They have been excluded from civilization and left with merely the preta/rākṣasa-pustaka in their hand."
