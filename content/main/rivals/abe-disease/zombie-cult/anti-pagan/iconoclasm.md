@@ -3,10 +3,11 @@ title: Iconoclasm
 ---
 
 ## General pattern
-### Saints
+### Saints and martyrs
 - Many saints were criminals. "St" Boniface chopped down Thor's Oak sacred to Germanics, "St" Nicholas said to have done same in Lycia to Hellenic sacred trees, "St" Martin did same (later Dutch Protestants defaced his cathedral)
 - If you read martyr stories, you find saints going up and destroying shrines and icons, and then threatening to come back with a crusader army if the pagans refuse to convert. Then they get killed by pagans, which the Christians describe as the unjustified murder of an innocent.
 - "The Christain saints and missionaries like Cyril and Bonerface were part communist "community organizer" and part Taliban death squad leader."
+- "There was a 1583 revolt in Goa (then under Portuguese) called Cuncolim revolt where the locals killed missionaries going around destroying temples, they were turned into "martyrs" & beatified."
 
 ### Digestion
 - Digestion of icon-worship and polytheism within Catholicism and Eastern Orthodox Christianity
