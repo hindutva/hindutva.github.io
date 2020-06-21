@@ -7,11 +7,14 @@ title: Fight against Christianity
 
 ### Provocations
 - planned subversion \[[SP](https://vajrin.wordpress.com/2014/05/18/christian-missionaries-the-vanguard-of-western-imperialism/)\], 
-- burning temples \[[P1](http://i.imgur.com/z1bvkIC.png), [H](http://i.imgur.com/MlR8cKX.jpg)\], 
 - selling Japanese into slavery \[[H](https://twitter.com/Rjrasva/status/585565928202629121)\], 
 - rabid conversion \[[H](https://twitter.com/Rjrasva/status/585565928202629121)\], 
 - conversion for money \[[N](https://twitter.com/Rjrasva/status/607506211903295488)\] 
 - forcible conversions of the populace by Christian daimyo.
+
+#### Iconoclasm
+- "The balance sheet for the three months spent by Valignano in Arima was as follows: All the temples of their camis and fotoques (gods and Buddhas) were broken up and destroyed - more than forty of them, large and small, among them some of the most beautiful and renowned in all Japan; and all the bonzes either turned Christian or left (Dom Protasio's) lands. And apart from those who newly came to Holy Baptism, there rose again in these lands of Arima more than seven thousand souls, those that had either fallen in the persecutions of the previous years or had been living without Padres, without churches, and without doctrine. ... The bonzes were married, the idols were broken up, and the number of converts grows day by day.... As Frois notes additionally, from this destruction of Shinto shrines and Buddhist temples “there were salvaged some remnants for the profit of the church,” because Dom Protasio, "in accordance with a request" from Valignano, donated "the most important temples and their sites for Jesuit projects. The buildings of one such temple were converted into the Jesuits' first formal educational institution in Japan, the boys' preparatory school known as the Arima seminario, which Valignano called into existence some time before the end of June 1580. By October, the school had enrolled twenty-two pupils, children of noble houses from all over Kyushu; most of them were eventually to enter the Society of Jesus."
+- "As Omura Sumitada had gone off to the wars, it so happened that he passed on the way an idol, Marishiten by name, which is their god of battles. When they pass it, they bow and pay reverence to it, and the pagans who are on horseback dismount as a sign of their respect. Now the idol had above it a cockerel. As the daimyo came there with his squadron he had his men stop and ordered them to take the idol and burn it together with the whole temple; and he took the cockerel and gave it a blow with the sword, saying to it, "Oh, how many times have you betrayed me!" And after everything had been burnt down, he had a very beautiful cross erected on the same spot, and after he and his men had paid very deep reverence to it, they continued on their way to the wars. " - Luis Fróis (1532 - July 8, 1597), a Portuguese Christian missionary giving an eyewitness description of non Christian shrines being destroyed by Japanese converts.
 
 ### Innate resistance
 - Filial piety helped. [SP_T1](https://twitter.com/Rjrasva/status/607575601994702851).
