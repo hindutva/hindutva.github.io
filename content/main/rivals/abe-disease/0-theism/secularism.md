@@ -3,6 +3,7 @@ title: Secularism
 ---
 
 ## Intro
+- Secularist argument: "If your religious faith requires you to enforce its tenets on those who are not members of your faith-community, then your religion is incompatible with a free society and society has a right to defend itself against such encroachment."
 - Secularism, being in some sense "softer" in appearance to harder anti-theism and Abrahamisms, is insidious and dangerous from the heathen perspective. Hence it merits a separate page.
 - Alternative phrases that helps us understand secularism better
     - sickularism
