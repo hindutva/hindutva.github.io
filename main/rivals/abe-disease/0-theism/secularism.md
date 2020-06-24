@@ -12,6 +12,9 @@ title: Secularism
     - Secularism is the new state/ political religion. - Sandeep B.
     - Poison to heathens and rejection of their "superstitions".
 
+## Individual vs community
+- Natural religions are naturally communal - they have systems for regulating interactions at the level of family, clan, social stratum, society. Secularism naturally counters this.
+
 ### Anti-nationalism
 Secularism sometimes manifests as anti-nationalism - as in the case of opposition to state shinTo of Japan or hindutva of India. There is here an explicit rejection of a (quasi-)deified national spirit (kokutai of the japanese, or bhArata-mAta of hindus). Origins of such rejection are considered in a separate section. 
 
