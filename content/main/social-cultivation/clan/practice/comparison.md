@@ -7,7 +7,8 @@ title: Comparison
 - Among the non-human great apes, power hierarchies (some hereditary) have been observed. 
 - kazoku and samurai in Japan - [TW1](https://twitter.com/Rjrasva/status/555363885927366656).
 - Communist china - [TW](https://twitter.com/Rjrasva/status/894288819335385088).
-- "Son also rises" by Gregory Clark - [YT-TED](https://www.youtube.com/watch?v=0c2Ugb4VKH8) documents the inheritability of social status. (In fact, prior to 1800-s in England, rich had higher fertility than the poor; reverse in Qubec.) 
+- "Son also rises" by Gregory Clark - [YT-TED](https://www.youtube.com/watch?v=0c2Ugb4VKH8), [C2020](https://www.youtube.com/watch?v=IN_-2rILolk) documents the inheritability of social status.
+  - In fact, prior to 1800-s in England, rich had higher fertility than the poor; reverse in Qubec. 
 - Oxbridge attendence in England - [TW1](https://twitter.com/Rjrasva/status/842466759143743488).
 
 ## Occupational impurity and separation
