@@ -69,7 +69,7 @@ title: Women स्त्रीः
 - Apastamba says - पाणिग्रहाणात् सहत्वं कर्मसु पुण्यफलेषु च ।
     
 
-### Professional dimorphism
+## Professional dimorphism
 
 - Female participation in the army.
     - In the era of large armies/ warring class: Sparing participation makes great sense given the importance of wombs. \[[IMG](http://i.imgsafe.org/bb34718889.jpg), \]
@@ -78,8 +78,11 @@ title: Women स्त्रीः
     - Mixed combat units have been shown to be less effective.
 - यथा सैन्ये पुंभूयिष्ठता सार्थका, तथैव वैदुष्ये ऽपीति तैरेव र्पायेण कारणैस् स्यान्ननु? (नाम गर्भाणाम् महार्हत्वात्, पुंसाम् अधिकात् साहसाच्च स्वाभाविकात्)।
 
-#### Domains of female dominance
+### Domains of female dominance
 
 - deva-dAsI-s. Temple dancers with sexual freedom, who produced proud cultural luminaries like singer MS [Subbulakshmi](https://en.wikipedia.org/wiki/Subbulakshmi) and [dancer bAlasarasvatI](https://en.wikipedia.org/wiki/Balasaraswati).
     
     - The old status of deva-dAsI-s is generally not comparable to the modern yellamma cult.
+    
+## Remarriage
+- Gazetteer of the Ambala District: 1883 "As regards remarriages of widows the only classes that remarry are Jats Lohárs Jhínwars Tarkháns Mehtams who are allowed by their custom to go through the ceremony of Karewa Among Musalmans with the exception of Saiyads Moghals Pathans Shekhs and Rájpúts all women remarry. Among a the inferior castes who are in short Shúdras when one brother dies the widow is not allowed to go out of the family but is claimed by one of the other of the brothers who look upon her as belonging to the family money having been spent upon her and litigation in the courts both on Civil and Criminal sides to enforce these supposed rights froquently takes place I mention the Criminal as well as Civil Courts since it is not an uncommon matter for a brother to prosecute his sister in law and any second husband she may take for Bigamy because she has failed to transfer her affections to the surviving brother..." 
