@@ -19,7 +19,7 @@ Amalgamation of tribes glued together by the Arya brAhmaNa-s.
 - That this varNa system was an ancient emergent phenomenon - not artificially created - was the opinion of the ancients.
     - This is the import of the puruSha-sUkta, where its emergence from the primeval puruSha is placed in  the verse that describes the emergence of sun and the moon.
     - manu says in the manu-smRti that this division emerged from brahma himself.
-- Division of labor has been observed in nature - most famously in case of insects such as wasps, ants, bees etc.., whose colonies have led to group selection. So, it is plausible that specialization since childhood, and subsequent limitations on social mobility may have provided a competitive edge to early human societies.
+- Division of labor and inherited hierarchies are evolutionarily dominant in several species. See [animal observations page](../animal_observations/)
 
 ### Inheritability of social status
 See "Persistent elite dominance" secion in the [practice-comparison](../practice/comparison/) page.
