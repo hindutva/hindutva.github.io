@@ -54,9 +54,17 @@ Tolerance of diverse ideas, even intolerant ones.
 - Tyler Cowen writes in a [short post](http://marginalrevolution.com/marginalrevolution/2012/04/indian-education-under-the-british-empire.html) : .."educational expenditures in India, under the British empire, never exceeded one percent of gdp. To put that in perspective, for 1860-1912 in per capita terms the independent “Princely states” were spending about twice as much on education as India under the British. Mexico and Brazil, hardly marvels of successful education, were spending about five times as much."
 - sentimental, ritual and vaidika education restrictions based on jAti/ caste /varNa:
     - See Contrast-of-privileges in theory page [here](../../social-cultivation/clan/varna-theory/), practice [here](../../social-cultivation/clan/varna-practice/).  
-        
     - This restriction was motivated by the need to conserve the veda-s against corruption and subversion - letting all and sundry propagate it would violate the conservative mission of the dvija core. 
     - Education in the veda-s is made available to students irrespective of clan or caste by several institutions, including some traditional ones ([TTD-NDTV09](http://www.ndtv.com/video/player/news/dalits-to-learn-vedas-at-tirupati/53460)). But students tend to mostly be brAhmaNa-s anyway.
+
+#### shUdra representation
+From Beautiful tree:
+
+"To make the foregoing tabulation more easily comprehensible the caste-wise data may be converted into percentages of the whole for each district. Table 3 shows the result of such conversion. 
+In Malayalam-speaking Malabar, the proportion of the twice-born was still below 20% of the total. Because of a larger Muslim population, however, the number of Muslim school students went up to nearly 27%; while the Soodras, and the other castes accounted for some 54% of the school going students. 
+In the largely Kannada-speaking Bellary, the proportion of the twice-born (the Brahmins and the Vysees) went up to 33%, while the Soodras, and the other castes still accounted for some 63%. 
+The position in the Oriya-speaking Ganjam was similar: the twice-born accounting for some 35.6%, and the Soodras and other castes being around 63.5%. 
+It is only in the Telugu-speaking districts that the twice born formed the major proportion of the school going students. Here, the proportion of Brahmin boys varied from 24% in Cuddapah to 46% in Vizagapatam; ..."
 
 #### guru-shishya paramparA
 
