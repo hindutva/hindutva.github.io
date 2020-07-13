@@ -8,6 +8,10 @@ unicode_script = "devanagari"
 - Examples elsewhere
     - Junipero Serra canonization [G2015](http://www.theguardian.com/commentisfree/2015/sep/22/pope-grant-sainthood-brutal-missionary).
 
+### Islamophilia
+- Criticizing Islam means criticizing their own Christian past - fundamental problems are the same.
+- To modern Europeans, the fundamental evils of intolerant Abrahamisms (Eg. Banu Quraiza massacre) are abstract concepts, as are Jupiter, Mars, Neptune, Juno and the emperor Julian. The Aurangzebs, Mahmuds and Aladins (ie their early Christian equivalents) of Europe are about as abstract as the forgotten Roman Gods. Not so for us culturally rooted Hindus. IshAna still lives in our rage, Indra in our stength, Earth in our body and so on. I only need to travel 150 kilometers from my hometown to see temples rendered to ruins by the eununch ghAzi mallik kafur, not too much farther are Hampi and Srirangam. Similarly, one does not often find Italians being murdered or roughed up by hooligans partly motivated by Islam, but we do.
+
 ## Pro-western civilizational bias.
 - Examples from history of mathematics resulting in dismissal, derision: [rAma\_pi\_16](https://www.youtube.com/watch?v=dam2rZos5Zo#t=74), [rAma15](https://www.youtube.com/watch?v=hh_h2R4mkbc).
 - This was starkly evident in the early days: [MT_TW](https://twitter.com/blog_supplement/status/707818465801986048/photo/1).

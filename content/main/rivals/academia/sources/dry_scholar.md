@@ -21,6 +21,10 @@ title = "Dry scholar problem"
 - This is compounded by the fashion of being deliberately irreverent in their scholarly rhetoric as a way of indicating membership with the mlecCha Indology system.
 - Example: The "ironic" twist to hammIra-kAvya [YT16](https://www.youtube.com/watch?v=lPV8CpV1bSc#t=15).
 
+### Desaffronization of texts
+"tend to disregard the religious garb of such texts" (<-- Of course, one wonders why someone who does not really care for Hindu religion or mysticism is in the business of examining Hindu texts. What might be the motivations?)
+
+
 ## Limitations
 - This is not to deny that the labor of the dry-scholars is slightly useful to the scholarly practitioners.
 - Misconceptions arising from dry scholarship often need to be countered by similarly dry scholarship.

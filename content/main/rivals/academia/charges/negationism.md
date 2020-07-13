@@ -3,17 +3,14 @@ title: Negationism
 ---
   
 
-## Intro
 
 (Such negationism should be equal to "holocaust-denial".)  
 
-- Examples
-    - In the Ram Mandir/ Babri masjid case, several "scholars" made shoddy claims.
-    - Several scholars such as Llewelyn Morgan \[[KE](http://koenraadelst.blogspot.com/2012/07/a-denier-on-temple-destruction.html)\] and Eaton (Koenraad Elst's Eaton [rebuttal](http://koenraadelst.bharatvani.org/articles/ayodhya/eaton.html)) have been temple-destruction deniers. 
-    - Note: at [38:01](http://www.youtube.com/watch?feature=player_detailpage&v=Zfxn9lNfiL8#t=38m01s) in this National Geographic documentary, they say: "These statues did not loose their heads by accident... What the Hindu priests started, muslim invaders completed." Equating Hindu priests and Muslim invaders is vile deception. There is no evidence supporting the hypothesis that Hindu priests "beheaded statues".
-- Theories on whence this might arise:
-    - Criticizing Islam means criticizing their own Christian past - fundamental problems are the same.
-    - To modern Europeans, the fundamental evils of intolerant Abrahamisms (Eg. Banu Quraiza massacre) are abstract concepts, as are Jupiter, Mars, Neptune, Juno and the emperor Julian. The Aurangzebs, Mahmuds and Aladins (ie their early Christian equivalents) of Europe are about as abstract as the forgotten Roman Gods. Not so for us culturally rooted Hindus. IshAna still lives in our rage, Indra in our stength, Earth in our body and so on. I only need to travel 150 kilometers from my hometown to see temples rendered to ruins by the eununch ghAzi mallik kafur, not too much farther are Hampi and Srirangam. Similarly, one does not often find Italians being murdered or roughed up by hooligans partly motivated by Islam, but we do.
+## Examples
+- In the Ram Mandir/ Babri masjid case, several "scholars" made shoddy claims.
+- Several scholars such as Llewelyn Morgan \[[KE](http://koenraadelst.blogspot.com/2012/07/a-denier-on-temple-destruction.html)\] and Eaton (Koenraad Elst's Eaton [rebuttal](http://koenraadelst.bharatvani.org/articles/ayodhya/eaton.html)) have been temple-destruction deniers. 
+- Note: at [38:01](http://www.youtube.com/watch?feature=player_detailpage&v=Zfxn9lNfiL8#t=38m01s) in this National Geographic documentary, they say: "These statues did not loose their heads by accident... What the Hindu priests started, muslim invaders completed." Equating Hindu priests and Muslim invaders is vile deception. There is no evidence supporting the hypothesis that Hindu priests "beheaded statues".
+
 
 ## Negationist claims and tricks
 
