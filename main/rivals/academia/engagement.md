@@ -8,6 +8,9 @@ title: Hindu Engagement
 - Genuine and honest Hindu/ sanskrit scholarship does not need the shelter of academia to emerge.
     - There are religious institutions, rich circles of connoisseurs form around local experts in the shAstra-s.
 
+### Know the limits of what to expect
+- "The Dalai Lama listened attentively to all of this, sometimes stopping and asking his translator to clarify a term or point. But at the end of the presentation he remained silent until I asked him for his thoughts on what the students had said. ... He conceded that what the students had told him was interesting and that it would be good for Buddhists to have some knowledge of Western scholarship on Buddhism. However, in the end, he seemed to view Buddhist practice and Buddhist scholarship (at least of the Western variety) as ultimately irreconcilable. He told the students that if he accepted what they had told him, he would only be able to believe in the rūpakāya, the physical body of the Buddha that appears in the world to teach the dharma. He could not believe in the sambhogakāya, the body of enjoyment that appears to advanced bodhisattvas in the splendor of the pure lands, adorned with the thirty-two marks of a superman. And he could not believe in the dharmakāya, the Buddha’s omniscient mind and its nature of emptiness. “If I believed what you told me,” he said, “the Buddha would only be a nice person.”"
+
 ## Examples of foolish engagement
 - Bad funding: Various idiot rich hindu-s funding sanskrit/ hindu chairs and projects which are liable to be under the influence of anti-hindu academics.
     - Rohan Murthy's funding of [www.murtylibrary.com](http://www.murtylibrary.com/) MCLI .
