@@ -1,5 +1,5 @@
 ---
-title: Anti-Hindutva
+title: Hindutva vilification
 ---
 
 
