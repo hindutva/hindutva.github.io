@@ -26,6 +26,7 @@ The **vaidika ideals** (../deva-s, xAtra, dharma, brahman, yajna ... mentioned i
     - Francis Xavier: "If it were not for the opposition of the Brahmins, we should have them all embracing the religion of Jesus Christ." ([FX](https://archive.org/details/LifeLettersOfStFrancisXavierV1/page/n189/mode/2up) Letter to the Society at Rome - 31 December 1543)
 
 ### Examples and analogies:
+- South India and Manipur - see [brAhmaNa migration pages](../../../../ethnic-shifts/v1).
 - Andhra
     - "Cynthia Talbot mined epigraphic records and labeled Vengi as the “core area” of Andhra in this period.5 Here again land grants to Brahmans were frequent and inscriptions indicate migrations from the north to Andhra. One copper plate records the donation of a village in Guntur District, west of the Krishna River, to one thousand Brahmans from the village of Ahicchatra on the Ganges." \["vedic voices" book\]
     - "Cynthia Talbot notes a special tradition in medieval Andhra, sapta-santana, “seven offerings,” by which donors could perpetuate their names.40 In addition to having a son, other legacies include provision of a deity image to a temple, constructing a tank for water supply, and donating an agrahara."   \["vedic voices" book\]
@@ -33,11 +34,6 @@ The **vaidika ideals** (../deva-s, xAtra, dharma, brahman, yajna ... mentioned i
 - Cambodia \[kauNDinya dynasty [Q](https://www.quora.com/What-is-the-link-between-the-Khmer-Empire-and-ancient-India), brAhmaNa priests' ceremonies [C05](https://www.cambodiadaily.com/archives/priests-uphold-a-unique-and-royal-tradition-50637/)\]
 - Bali.
 
-#### Manipur: 
-- "An ancient text reveals the migration of a  Brahman priest called Subinarayan from the west Tripura and his marriage with a  native woman, Haokei Chanu Thoinu. ... Almost all the Brahman priests, with the exception of a few of them, had migrated to Manipur without spouses. They married the local women generally from the lower social strata. ... They accepted Meiteilon (Manipuri language) as mother tongue. They were assigned varied yumnaks (lineages) based on their places of origin25 , professions, ways of life and so on."
-- "Origins of Manipuri Brahmin (called Bamon in Manipuri): Adhikarimayum : WB, Sijagurumayum: Gujarat, Leihaothabam: Kanpur, Takhenchangbam: Sylhet (now in Bangladesh), Purailatpam: UP. They came during Kyamba's reign (2nd half of 15th century)" Source: RK Jhaljit, 1992
-- "Brahmin immigration to Manipur in late 17th century: 1. Guruaribam: Puri 2. Laimayum: Tripura 3. Laipubam: Odisha 4. Hangoibam: Mathura 5. Hazarimayum: WB 6. Manoharmayum: WB 7. Mathurabasimayum: Mathura 8. Laimayumanoubam: Tripura 9. Choudhurimayum: Utkal " Source: RK Jhaljit.
-- "... Another wave of Brahmins a. Aribam b. Samurailatpam c. Sanglakpam d. Hidangmayum e. Kongbrailatpam f. Thongratabam came during the 17th century in Khagemba’s time. ... Another wave of Brahmin came to Manipuri during Paikhomba’s reign in 2nd half of 17th century from Shrimayum: Gujarat, Bachaspatimayum: Banaras, Gurumayum Angom Lailatpam: Vrindavan, Brahmacharimayum: Prayag."
 
 ## Continual harmonization
 - This penetration was likely accompanied by acknowledgement of kShatriya status of local lords. Late examples include: shivAjI, the hiraNyagarbha ritual for nair rulers.
