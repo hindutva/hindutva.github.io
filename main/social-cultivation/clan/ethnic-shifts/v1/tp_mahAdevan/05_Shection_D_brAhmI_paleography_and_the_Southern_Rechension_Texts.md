@@ -1,5 +1,5 @@
 +++
-title = "05 Section D Brāhmī Paleography and the Southern Recension Texts"
+title = "05 ṣection ḍ bhrāhmī phaleography and the ṣouthern ṛecension ṭekṣts"
 
 +++
 Impressive proof for the above links between the history of Brahman migration 

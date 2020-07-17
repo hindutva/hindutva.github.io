@@ -1,5 +1,5 @@
 +++
-title = "04 Section C - Aparaśikhā wave"
+title = "04 ṣection ch - āparaśikhā vave"
 
 +++
 ## i. The Origins of the Aparaśikhā Brahmans, Their Śrauta Traditions and Their Arrival in the Tamil Country 

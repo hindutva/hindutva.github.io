@@ -1,8 +1,7 @@
 +++
-title = "10 Appendix II"
+title = "10 āppendikṣ īī āparaśikhā bhrahmans: ḍifferent ghroups and ṣettlements:"
 
 +++
-Aparaśikhā Brahmans: Different Groups and Settlements: 
 2a. Vaṭama. Tamil-speaking. Found all over Tamil Nadu and Kerala, with strong presence in most urban centers in India. The largest single group from all evidence. Sub-divisions [Thurston: 1907:334]: 
 2.a.i. Cōḷa Dēśa; 2.a.ii. Vaṭa Dēśa; 2.a.iii. Sabhayaṛ; 2.a.iv. Iñji; 2.a.v. Tummagunḍa Drāvida. 
 2b. Kēśi [or Hiraṇyakēśi]. Tamil-speaking. All ṣatyāṣāṭa Sūtra of the Taittirīya Śākhā of the Black Yajurveda. Unknown settlements, but said to be very conservative, hence to be found in Tanjāvūr and Kumbakōṇam area. 

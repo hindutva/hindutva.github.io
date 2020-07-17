@@ -1,5 +1,5 @@
 +++
-title = "09 Appendix I Pūrvaśikhā Brahmans: Different Groups and Settlements:"
+title = "09 āppendikṣ ī phūrvaśikhā bhrahmans: ḍifferent ghroups and ṣettlements:"
 
 +++
 1a. Nambudiris [Namboothiris]: Malayalam-speaking. Traditional home is Kerala, almost exclusively so as to be though aitochthonous, but attested in the Cōḻa land till about the 8th century CE, presumably as part of a larger Pūrvaśikhā population with the many rare Veda śākhās and the forelock kuṭumi common to the entire group. Good, reliable information about the the community is available in the Namboothiri,com, a professionally maintained and managed website. 
