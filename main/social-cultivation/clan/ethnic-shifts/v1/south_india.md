@@ -2,7 +2,8 @@
 title = "South India"
 +++
 
-## Overview
+## Tamil lands
+### Overview
 You broadly have two waves of large scale brahmin migration to the South
 
 - a. The Purvaśikhā brahmins who presently form a small section of Chozhiar brahmins in Tamil Nadu + Kerala Namboothiris (these migrations pre-date Sangam age). Purvashika means tuft pointing to the front.
@@ -12,7 +13,7 @@ The Purvashikha brahmins made their way into Kerala during the Kalabhra period (
 
 The Aparashikha brahmins constitute the bulk of the brahmin population in Tamil country today. In most cases their place of domicile immediately preceding their arrival was somewhere in Andhra Pradesh. In many cases, place of origin is cited as "Dasapuriyan" (Malwa city of Dasapuri) . But ultimately an analysis of their Vedic affiliations (especially the heavy concentration of Apastamba sutra) suggests that these people had their origins in the Mathura region of Ganga-Jamuna Doab. Likely started moving down south in the wake of the Huna invasions in the North.
 
-## Sources
+### Sources
 - References - TP mahAdevan [here](https://crossasia-journals.ub.uni-heidelberg.de/index.php/ejvs/article/view/327/322), Sk summary [here](https://twitter.com/shrikanth_krish/status/1284041125314138113).
 
 The migrations of 1a (Purvashika) lacks proper documentation and is best understood through the existence of a pared down Southern Recension of mahAbhArata in Kerala today - that bears strong resemblance to the early Northern recension in Sharada script. This recension was likely brought down south by the Purvashika migrants 2000 years ago and it corresponds to an early stage of the Mahabharata's evolution. It lacks the ornate character of later southern recensions. 
@@ -26,3 +27,7 @@ Every land grant mentions the following details -
 - 4. His Vedic titles of learning if any (e.g. Chaturvedi)
 - 5. His place of domicile before his arrival in Tamil country (not mentioned in every grant)
 
+## Andhra
+- "Cynthia Talbot mined epigraphic records and labeled Vengi as the “core area” of Andhra in this period.5 Here again land grants to Brahmans were frequent and inscriptions indicate migrations from the north to Andhra. One copper plate records the donation of a village in Guntur District, west of the Krishna River, to one thousand Brahmans from the village of Ahicchatra on the Ganges." \["vedic voices" book\]
+- "Cynthia Talbot notes a special tradition in medieval Andhra, sapta-santana, “seven offerings,” by which donors could perpetuate their names.40 In addition to having a son, other legacies include provision of a deity image to a temple, constructing a tank for water supply, and donating an agrahara."   \["vedic voices" book\]
+- "Sriramapuram agrahara, established in 1940 in land grants to respected Veda pandits by a wealthy merchant, Dokka Rama, originally contained a single straight dirt lane of fourteen houses and a panca-ayatana (five-deity) temple housing Isvara, Radha-krsna, Surya, Ambika, and Vighnesvara (Ganesa)" \["vedic voices" book\]
