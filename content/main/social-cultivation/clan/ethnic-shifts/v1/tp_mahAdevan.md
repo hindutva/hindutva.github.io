@@ -2785,16 +2785,8 @@ _________ . 1999b. Vaidics and Vedic religion. Indology List. Thu, 13 May 1999.
 _________ . 2005. The Veda and the epics: Some comparative notes on persons, 
 lineages, geography, and grammar. 21-80. In P. Koskikallio, ed., Epics, khilas, and puranas: Continuities and raptures. Proceedings of the Third International Conference on the Sanskrit Epics and Puranas. September 2002. Zagreb: Croatian Academy of Sciences and the Arts. 
 _________ . 2008. Personal Communication 
-132 
-133 
-134 
-135 
-136 
-137 
-138 
-139 140 
-141 
-Appendix I Pūrvaśikhā Brahmans: Different Groups and Settlements: 
+
+## Appendix I Pūrvaśikhā Brahmans: Different Groups and Settlements: 
 1a. Nambudiris [Namboothiris]: Malayalam-speaking. Traditional home is Kerala, almost exclusively so as to be though aitochthonous, but attested in the Cōḻa land till about the 8th century CE, presumably as part of a larger Pūrvaśikhā population with the many rare Veda śākhās and the forelock kuṭumi common to the entire group. Good, reliable information about the the community is available in the Namboothiri,com, a professionally maintained and managed website. 
 A live Śrauta tradition is attested among them, arguably the most authentic. The Śrauta tradition is found clustered, almost like a balloon, directly to the west of the Palghāt gaps, on both sides of the Bhāratapuḻa river and toward the Trichur-Irinjalakuda region, in the far north, in Cannanore. The Śrauta praxis is managed by six Vaidikan families: Ceṛumukku and Taikkāṭ from Śukapuram gramam; Perumpaṭappu and Kaplinġāṭ from Perumānam gramam, and Kaimukku and Pantal from Irinjalakkuda gramam. 
 The 1901 census places the entire community at 28,895, with 19279 in the “British” Malabar, 5,326 in Travancore, and 5290 in Cochin. After 1933 with the younger sons in a family being able to marry within the community, there has been an appreciable rise in total numbers, estimated today at about 150, 000 probably a high estimate. 
@@ -2813,7 +2805,8 @@ The group constitutes perhaps the second largest population among the Pūrvaśik
 1c. Vaiṣṇava Śōḻiya Brahmans. Tamil-speaking. Estimated at about 15% of the tenkalai Vaiṣṇava Brahmans. Found along the Kāvēri river around Tiruchirapally (Anbil, Śrī Rangam, Tiruveḷḷarai, Tirukōṭṭyūr, Aḻakarkoil, Puthūr) and the Tāmravarṇi river around Tirunelvēli(Tenturupperai, Āḻvārtirinagari) in Tamil Nadu. One tiny group attested in Karnataka, brought there by Rāmaānuja, in Nandidurga and Aṣṭagrāma areas, now living in Mēlkotte village. 
 1d. Dīkṣitars of the great Chidambaram temple in Tamil Nāṭu. Tamil speaking and numbering around 250 families today. Only Ṛgveda (20%) and Yajurveda (Taittirīya-Baudhāyana) affiliations. 
 1e. Mukkāṇi or Tirucutantirar Brahmans: Priests of the Tirucchentūr temple and found in Tirucchentūr and the old Pāṇṭian kingdom. Only Ṛgveda (80%) and Yajurveda (Taittirīya- Baudhāyana) affiliations. 
-Appendix II 
+
+## Appendix II 
 Aparaśikhā Brahmans: Different Groups and Settlements: 
 2a. Vaṭama. Tamil-speaking. Found all over Tamil Nadu and Kerala, with strong presence in most urban centers in India. The largest single group from all evidence. Sub-divisions [Thurston: 1907:334]: 
 2.a.i. Cōḷa Dēśa; 2.a.ii. Vaṭa Dēśa; 2.a.iii. Sabhayaṛ; 2.a.iv. Iñji; 2.a.v. Tummagunḍa Drāvida. 
