@@ -10,10 +10,14 @@ phonologically appropriate script, linking, in other words, the epic to the rele
 agency, the third correlate in the equation. I begin with Mahadevan’s master chart for the 
 entire development: 
 
-3rd Century BCE Brāhmī 
-____________________ |_____________________ | | | | 2nd Century BCE Southern Brāhmī Tamil Brāhmī 70 
-| | 1st Century BCE |---------------------------------------------------------------- | | | | | Bhattripolu | | | | | _______|_______ | | | | 5th Century CE | | | | | | | | Vaṭṭeḻuttu 6th Century CE | | | Proto-Telugu | | and Kannada | | | Grantha | | | | 7th Century CE _______ |______ | | | | |___________________________________ | Telugu Kannada | | | | Tamileḻuttu | | | | | |___________________________________ | 
-| 14th Century Malayalam-Āryeḻuttu 
+- 3rd Century BCE Brāhmī 
+- 2nd Century BCE Southern Brāhmī, Tamil Brāhmī  
+    - 1st Century BCE Bhattripolu 
+- 5th Century CE Vaṭṭeḻuttu (from Tamil Brāhmī ) 
+- 6th Century CE  Proto-Telugu and Kannada,  Grantha (from Southern Brāhmī) 
+  - 7th Century CE Telugu, Kannada
+- 7th Century CE Tamileḻuttu (from grantha and Vaṭṭeḻuttu)
+- 14th Century Malayalam-Āryeḻuttu (from grantha and Vaṭṭeḻuttu)
 
 We see that the Brāhmī script devolves into two separate and independent lines of 
 developments, starting with the Southern Brāhmī and Tamil Brāhmī, arriving in 
