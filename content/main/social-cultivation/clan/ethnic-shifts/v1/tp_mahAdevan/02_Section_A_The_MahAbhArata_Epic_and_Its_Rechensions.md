@@ -3,9 +3,21 @@ title = "02 Section A: ṭhe Mahābhārata epic and its recensions"
 
 +++
 I start with Sukthankar’s master chart of the recensional history for the epic as a whole: 
-Vyāsa’s Bhārata 
-| Ur-Mahābhārata __________________|________________________ | | | | ______N___________ S | | | υ γ | _____ ||_____ _____ |______ _____ |______ | | | | | | Śārada K ε Devanāgarī | | 
-| σ Malayalam ______|______ ______|______ | | | | | Nepalī Maithili Bengali Telugu Grantha 
+
+- Vyāsa’s Bhārata 
+- Ur-Mahābhārata
+- N
+  - υ
+    - Śārada 
+    - K
+  - γ
+    - ε 
+      - Nepalī Maithili Bengali
+    - Devanāgarī
+- S 
+  - σ 
+    - Telugu Grantha 
+  - Malayalam 
 
 The Vyāsa phase of the epic, the so called Jaya Bhārata, began perhaps in an oral 
 tradition, by consensus in the Kuru area, and most likely in the kṣatriya circles, as a lay 
@@ -28,6 +40,7 @@ epic passes into literacy by this stage, by 300-100 BCE when the Brāhmī script
 shape in North India, providing the Sanskrit sound system a syllabary, devised, as its 
 separation of the vowel and consonant sounds into two classes shows, by the Vedic oral 
 tradition and its svādhyāya institutions.14 
+
 With the NR and SR phases, we are on firmer ground, what Sukthankar 
 characterizes as the “incontrovertible fact” (1933: [I] xxxi) about the early history of the 
 epic: they are the two broad and distinct recensions of the epic, each with further different 
@@ -36,6 +49,7 @@ versions later in regional languages. The NR text first breaks into two large fa
 and the latter, an inflated version in the Magadha realm, in the eastern parts of North 
 India, in Bihar, Nepal and Bengal. The shorter ν–family of the Kuru-Pāñcāla area gives 
 us the Śārada text, the basis of the Poona CE. 
+
 We have no information in Sukthankar about how exactly the SR rises or is found 
 in the peninsular region in terms of a human agency or other irreducible correlates— 
 script, the physical form of the manuscript. All the same, however, from the evidence of 
@@ -105,6 +119,7 @@ full hundred pages of [P.P.S] Sastri’s text...seven adhyāyas...a glorificatio
 in the mouth of Bhīṣma[.] It is not found in N[orthern] MSS” (My parentheses). In the 
 peroration, Bhīṣma justifies the fitness of Kṛṣṇa to be the Guest King to be honoured at 
 Yudhiṣṭira’s Rājasūya, at the sabha of the Sabhāparvan. 
+
 P.L.Vaidya (1969: [I] xlviii) shows that the entire discourse is fabricated from the 
 Harivaṃśa, mainly from adhyāyas 38, 41, 42. One aspect of the Harivaṃśa that Vaidya 
 emphasizes is its dual nature, first as an “organic” part of the great epic, justifying the 
@@ -116,6 +131,7 @@ parvans and its supplements, to find or remember a discourse from the supplement
 suitable to be inserted into an earlier section of the main body of the text, no matter that 
 this introduces in the process awkward repetitions, what Edgerton (xxx) calls “internal 
 duplications” as with Sahadeva’s threats.19 
+
 My argument in the rest of the paper is predicated to this incontrovertible fact, 
 that at an early, decidedly “primitive” moment in its textual history, the epic is already 
 found to be present in the peninsular region, the logic of chronology demanding that this 
@@ -124,4 +140,4 @@ length at this time, providing the NR text-template for its SR makeover. I will 
 account for its rise in terms first of its plausible redactors and then the paleography 
 needed for the transcription of the Sanskrit of the epic in an area already widely literate at 
 this time with a script adopted to Tamil phonology, the Tamil Brāhmī syllabary, created 
-by Jains ca. 250 BCE. * * * * * * * 
+by Jains ca. 250 BCE.
