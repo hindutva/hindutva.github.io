@@ -1,5 +1,5 @@
 +++
-title = "07 Abbreviations"
+title = "07 ābbreviations"
 
 +++
 ## Indian Texts: 

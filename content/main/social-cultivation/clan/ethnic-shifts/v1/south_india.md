@@ -14,7 +14,7 @@ The Purvashikha brahmins made their way into Kerala during the Kalabhra period (
 The Aparashikha brahmins constitute the bulk of the brahmin population in Tamil country today. In most cases their place of domicile immediately preceding their arrival was somewhere in Andhra Pradesh. In many cases, place of origin is cited as "Dasapuriyan" (Malwa city of Dasapuri) . But ultimately an analysis of their Vedic affiliations (especially the heavy concentration of Apastamba sutra) suggests that these people had their origins in the Mathura region of Ganga-Jamuna Doab. Likely started moving down south in the wake of the Huna invasions in the North.
 
 ### Sources
-- References - TP mahAdevan , Sk summary [here](../tp_mahAdevan/).
+- References - TP mahAdevan , Sk summary [here](https://twitter.com/shrikanth_krish/status/1284041125314138113).
 
 The migrations of 1a (Purvashika) lacks proper documentation and is best understood through the existence of a pared down Southern Recension of mahAbhArata in Kerala today - that bears strong resemblance to the early Northern recension in Sharada script. This recension was likely brought down south by the Purvashika migrants 2000 years ago and it corresponds to an early stage of the Mahabharata's evolution. It lacks the ornate character of later southern recensions. 
 
