@@ -1,5 +1,5 @@
 +++
-title = "10 āppendikṣ īī āparaśikhā bhrahmans: ḍifferent ghroups and ṣettlements:"
+title = "10 Appendix 2 Aparaśikhā brahmans: different groups and settlements:"
 
 +++
 2a. Vaṭama. Tamil-speaking. Found all over Tamil Nadu and Kerala, with strong presence in most urban centers in India. The largest single group from all evidence. Sub-divisions [Thurston: 1907:334]: 
