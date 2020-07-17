@@ -174,8 +174,7 @@ title = "08 Works cited"
 - Younger, Paul. 1995. The home of the dancing Śivan. New York: Oxford University Press. 
 - Witzel. Michael. 1986. JB pulpūlanī: The structure of a Brāhmaṇa tale. In M. D. 
 - Balasubrahmaniam, ed., Dr. B. R. Sharma felicitation volume. 189-216. Tirupati: Kendriya Sanskrit Vidyapeetha 
-  -  1987a. The case of the shattered head. Studien zur Indologie und Iranistik 
-- 13/14: 363-416. 
+  -  1987a. The case of the shattered head. Studien zur Indologie und Iranistik 13/14: 363-416. 
   -  1987b. On the localization of Vedic texts and schools (materials on Vedic  śākhās, 7). In Gilbert Pollet ed., India and the ancient world: History, trade and culture before A.D.650. 173-213. Leuvan: Departement Orientalisteik. 
   -  1987c. On the origin of the literary device of the 'frame story' in old Indian literature. In H.Falk, ed., Hinduismus and Buddhismus: Festscrift főr Ultrich Schneider. 380- 1987: 380-414. Freiburg: Hedwig Falk. 
   -  1989a. Tracing the Vedic dialects. In Collette Caillat, ed., Dialectes dans les litterratures indo-aryennes. Acts of the colloque International, Parisa. Sept.16-18, 1986. Publicationes de L’Institut de Civilisation Indienne. Series 8, Fasc. 55. 97-265. Paris: Edition-Diffusion de Bocard. 
