@@ -1,5 +1,5 @@
 +++
-title = "02 ṣection ā: ṭhe ṃahābhārata êpic and īts ṛecensions"
+title = "02 Section A: ṭhe Mahābhārata epic and its recensions"
 
 +++
 I start with Sukthankar’s master chart of the recensional history for the epic as a whole: 

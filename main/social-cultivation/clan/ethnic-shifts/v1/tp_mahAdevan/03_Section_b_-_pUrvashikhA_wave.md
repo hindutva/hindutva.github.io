@@ -1,5 +1,5 @@
 +++
-title = "03 ṣection bh - phūrvaśikhā vave"
+title = "03 Section B - Pūrvaśikhā wave"
 
 +++
 ## i: The Origins of the Pūrvaśikhā Brahmans, their Śrauta Traditions, and Southward Migration 
