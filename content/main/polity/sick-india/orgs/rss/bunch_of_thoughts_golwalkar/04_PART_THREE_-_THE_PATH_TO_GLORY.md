@@ -1,9 +1,10 @@
 +++
-title = "04 PART THREE - THE PATH TO GLORY"
+title = "04 P3 - THE PATH TO GLORY"
 
 +++
 
-(A) ROUSING NATIONAL CONSCIOUSNESS XVII. Meeting the Historic Need 
+## ROUSING NATIONAL CONSCIOUSNESS 
+### XVII. Meeting the Historic Need 
 
 Our indebtedness to society-The best service – Past glory – Destruction by enemies – Once powerful and free – Race of Jayachands leads to Muslim and British success – The malady continues, formation of Pakistan – A house divided – History repeating itself, Dravidanad etc. – Federal structure, a poisonous seed – Basic cure. 
 
@@ -163,7 +164,7 @@ How is this to be done? Can it be done by merely establishing new industries or 
 
 We have to resolve to eradicate that basic malady by making our mother-society once again united, organised, vigilant and resurgent with an intense spirit of national consciousness and cohesion? To that end, let us approach every son of this soil with the message of one united nationhood and forge them all into a mighty, organised whole bound with ties of mutual love and discipline. Such an alert, organised and invincibly powerful national life alone can hope to stand with its head erect in the present turmoils of the war-torn world. 
 
-Part Three - The Path To Glory XVIII. Wanted a Unitary State 
+###  XVIII. Wanted a Unitary State 
 
 An article by Sri M.S. Golwalkar just after the publication of the Report of States Reorganisation Committee in 1956. 
 
@@ -215,7 +216,7 @@ With one sweep all talk of fragmenting the country will have been silenced, the 
 
 The patriotism, and faith in the external Bharatiya Nation, of the leaders of our generation is being now put to the test. Whether they prove to be pure metal with a true ring, or mere tinsel, will be seen in the boldness they manifest and the steps they take now at this historic hour calling for all courage, determination and intense love for our ancient, but immortal nation. Let us pray to the Almighty, Who, in His wisdom, has always been guiding this Hindu Rashtra on the right path, the path of Dharma, that is the path holding the people together in one loving integrated unity, guide our leaders in this dark hour and inspire them with the right understanding and instil in them courage to tread along the right path for a glorious revival of our Great People. 
 
-Part Three - The Path To Glory XIX. The Eternal Basis 
+###  XIX. The Eternal Basis 
 
 Need for positive basis – Efforts of reactionary approach – Sangh for permanent organised life – Fate of temporary movements; Congress - Nation in drifting – The remedy – Red signal. 
 
@@ -325,7 +326,8 @@ No nation can hope to survive with its young men given over to sensuality and ef
 
 In our country also the conditions are not different. The ‘modern fashion’ of young men is to appear more and more feminine. In dress, in habits, in literature and in every aspect of our day-to-day life ‘modernism’ has come to mean effeminacy. ‘Sex’ has become the one dominating theme of all our ‘modern’ literature. History of countries the world over has time and again shown that sex-dominated literature has been an unfailing precursor to the ruin of nations and civilisations. 
 
-This, in short, is the internal picture of our national life under ‘freedom’. It is a red signal, which we can ignore only at our peril. Under these conditions, it is only an organisation such as the Sangh dedicated to forge our people into a pure, holy, benevolent and organised life, breathing the spirit of sacrifice and heroism, and based on the positive and abiding foundation of our ancient and glorious nationhood, that can be relied upon to protect and rejuvenate our nation. And it is the call of this yet unfulfilled mission that is the motive force behind the ever-growing and ever-expanding work of the Rashtriya Swayamsevak Sangh. Part Three - The Path To Glory XX. Nourish The Roots* 
+This, in short, is the internal picture of our national life under ‘freedom’. It is a red signal, which we can ignore only at our peril. Under these conditions, it is only an organisation such as the Sangh dedicated to forge our people into a pure, holy, benevolent and organised life, breathing the spirit of sacrifice and heroism, and based on the positive and abiding foundation of our ancient and glorious nationhood, that can be relied upon to protect and rejuvenate our nation. And it is the call of this yet unfulfilled mission that is the motive force behind the ever-growing and ever-expanding work of the Rashtriya Swayamsevak Sangh. 
+###  XX. Nourish The Roots* 
 
 Education for manifesting the Inner Personality – Teacher as Character-moulder –Purge present perversions in learning habits – Be true to Hindu spirit – Our stultifying history – Uphold right spirit of nationalism. 
 
@@ -389,7 +391,8 @@ Without the firm base of nationalism, to speak of humanity and internationalism 
 
 These are some of the broad hints which the teachers, as mouldres of young minds, may usefully keep in mind. 
 
-Part Three - The Path To Glory XXI. The One Answer to Many Challenges* 
+
+###  XXI. The One Answer to Many Challenges* 
 
 Obstacles in path of Hindu consolidation – Absence of Pride – Parochial palls – Ex: Telangana agitation – Declare Unitary State – Danger of corruption – Muslims’ opposition to Vande Mataram revived – Hindu, the real child – Denial of Truth harmful. 
 
@@ -481,7 +484,8 @@ If once all the Hindus, whatever their political and other denominations, decide
 
 Hence the RSS has been emphasising that the revitalization of the truth of our national existence alone will be able to inspire our people for unified and dedicated efforts in the cause of the nation. That alone will make our nation march forward with strength and confidence holding its head high amidst all the turmoils and conflicts surrounding us in the world. 
 
-Part Three - The Path To Glory XXII. The Elixir of National Life 
+
+###  XXII. The Elixir of National Life 
 
 1. WORLD OF REALITY 
 
@@ -691,7 +695,8 @@ It has been truly said that it is not the gun but the heart behind it that fight
 
 It is on these practical and realistic guidelines of national conduct that our people can hope to rise again as great nation. All our efforts have therefore to be concentrated in the direction of generating invincible national strength by making our people nationally conscious and moulding them all for a well disciplined, co-ordinated and invincibly powerful national entity, which alone is the ultimate sanction for a free and glorious national life on the face of this earth. 
 
-Part Three - The Path To Glory XXIII. Worshippers of Victory 
+
+###  XXIII. Worshippers of Victory 
 
 Deifying the great – Misreading of scriptures – Selfishness, helplessness at the root – Effort is God – Great examples – Worship of the victorious – Martyr, great but not ideal – Lesson of Rajput martyrdom – Act, do not react – Philosophy of right action. 
 
@@ -793,7 +798,8 @@ Bertrand Russel, for example is taken to be a great philosopher of the West. Eve
 
 Let us, therefore, decide to tread that path, concentrating our attention and strength on reaching the final goal of victory over all the forces of evil. We are to test every act, apparently good or bad, on this touchstone of ultimate victory of the forces of dharma. That which leads to the victory of the virtuous and the righteous, is alone good and meritorious. And the examples and lessons of the victorious and the great will inspire us with the necessary will to win and awaken in us the right discrimination to achieve ultimate victory in the path of dharmasthapana, i.e., establishing righteousness all over the world, which has been our national life-mission since ages. 
 
-Part Three - The Path To Glory XXIV. Fight to Win* 
+
+###  XXIV. Fight to Win* 
 
 1. THE RIGHT MEASURES 
 
@@ -1043,9 +1049,9 @@ Tending the Roots
 
 So also is the case of nations when ‘blessed’ with foreign aggression. It is here that the Rashtriya Swayamsevak Sangh comes up to play the role of creating the necessary will and competence in our people to turn this difficulty into an opportunity. The Sangh has been straining every nerve and fibre to rouse and mobilise jan-shakti by imparting life giving ideals, qualities and character required for a powerful, positive and perennial national life. We are confident that every Swayamsevak of our organisation will be found in the forefront when the hour for people’s action and sacrifice comes. At the same time, we do not want to come forward as a group because in times of war there is no necessity of any priesthood of any group or party. It would also be highly improper to parade one’s sacrifices and sufferings. Because to offer one’s all, even his dearest possessions, at the alter of motherland is the first and foremost duty of every son of this soil. And it is that life-spirit that we have been inculcating in the people through the Sangh since its very inception. 
 
-Part Three - The Path To Glory (A) Rousing National Consciousness Chapter 25. Nation At War (*) 
+### Ch 25. Nation At War  
 
-(*) In the wake of Pakistani aggression in August 1965. 
+(\*) In the wake of Pakistani aggression in August 1965. 
 
 1. CALL OF A NEW ERA 
 
@@ -1267,7 +1273,8 @@ The sooner we realise this fundamental fact of national life, the better it is f
 
 nationalism. The feeling of burning love for Bharat Mata, the great and sacred mother of us all, the intense consciousness of our being a single and indivisible brotherhood as the children of that common mother, and pride in our glorious national past, in our unique cultural heritage and aspiration to see our Bharat Mata reseated in her pristine glory and honour in the comity of nations, can alone act as a constant and powerful incentive capable of taking up in its sweep the greatest as well as the humblest of the land and bring out the best in them. That alone shall bring into full play invincible potency of our people so amply demonstrated in the present crisis and make them realise the inspiring vision of an invincible united Bharat Mata holding in one hand Kamala, the power to bless the good, and in the other the Vajra, the power to strike down evil, the embodiment of Brahma-teja and Kshatra-teja. 
 
-Part Three. The Path To Glory (A) Rousing National Consciousness Chapter 26. Forget Not The Lessons (*) 
+
+### Ch 26. Forget Not The Lessons (*) 
 
 (*) In the wake of War of Liberation of Bangladesh 
 
@@ -1325,7 +1332,8 @@ Forget Not the Lessons
 
 Finally, the lessons we have learnt during the present ordeal at a heavy price should not be allowed to be lost. Firstly, the national unity and fervour manifested now should not be allowed to be dissipated by petty political bickerings. For, it is only a nationally conscious and cohesive people who can become progressively powerful and prosperous. Secondly, the tempo of hard work should be maintained. Production should shoot up on every field, so that our country may become self-dependent. The foremost task before us, therefore, is the moulding of such a self-sacrificing and disciplined and virile national manhood. And verily, this is the one mission to which the RSS is wholly and solely dedicated. 
 
-Part Three. The Path To Glory (A) Rousing National Consciousness Chapter 27. Keep The Flag Flying Aloft (*) 
+
+### Ch 27. Keep The Flag Flying Aloft (*) 
 
 Invoke national self-respect – The true ambassadors – Necessity for regular Samskars – Imbibe good from others – Serve local population – Bitter African lesson – As world missionaries– Question and Answers. 
 
@@ -1407,7 +1415,8 @@ Q: Some Muslims in U.K. would like to join with us in this effort. Should we enc
 
 A: Provided they are prepared to own the Hindu culture as their own. They could have their own way of upasana but should consider the Hindu heritage and history as their own. 
 
-Part Three. The Path To Glory (B) For Social Uplift Chapter 28. ''Untouchability - The Curse And The Cure 
+## (B) For Social Uplift 
+### Ch 28. Untouchability - The Curse And The Cure 
 
 Religious perversion at the root – Historic call of the Dharmagurus – Violent approach recoils – Motivated propaganda of Harijan-non-Harijan confrontation – Special privileges for the needy of all castes – The “untouchables” excel many fronts – Work from the heart– Secret of success in Sangh. 
 
@@ -1475,7 +1484,8 @@ Secret of Success It is because this golden rule has been scrupulously paractise
 
 Gandhiji himself was pleasantly surprised to witness this rare phenomenon at a Sangh camp in Wardha in 1934. The camp was attended by over, 1,500 Swayamsevaks, all put up in barracks and tents. Just nearby was Gandhiji’s ashram. Seeing the camp humming with the activities of several hundreds of young men, he desired to visit it. Accordingly, our Wardha District Sanghchalak, who was formerly Secretary of the Provincial Congress Committee, welcomed Gandhiji to the camp. Gandhiji came and saw all the arrangements for residence, mess, etc., in the camp. Then he enquired, “How many Harijans are here?” Our Sanghchalak replied, “I do not know, for I have never enquired.” “You can enquire at least now and tell me.” “That I cannot do. As far as we are concerned they are all Hindus and that is sufficient for us.” “Then shall I ask?” “That is left to you”, replied our Sanghachalak. After making persistent enquiries directly with the Swayamsevaks Gandhiji came to know that there were persons from all castes, including Harijans, carrying on all the camp programmes together, right from eating to playing, in a spirit of joy and harmony, without even being conscious of their castes. He was simply amazed. After that Doctorji met Mahatmaji and explained to him how the Sangh was meeting with success in achieving unity by its technique of stressing the inherent oneness and ignoring superficial differences. This experience had left such a deep impression on Gandhiji’s mind that he recounted it years later in his address to the Swayamsevaks at Bhangi colony, Delhi, in September 1947. He had then said that he was “very much impressed with the discipline, the complete absence of untouchability and the rigorous simplicity among the Swayamsevaks.” This singular achievements of Sangh has been made possible because of the attitude ingrained in its workers, who declare: “If you are a Hindu, it is sufficient for us. We don’t care for anything else. Hindu is the only consideration that counts for us; no caste, no sect, nothing counts for us.” 
 
-Part Three. The Path To Glory (B) For Social Uplift Chapter 29. Serving The Neglected Brethren 
+
+### Ch 29. Serving The Neglected Brethren 
 
 Divisive policy of the British continues – Uplift through devotion to God – Lesson from foreign missionaries – Declare as Hindus in census – Their backwardness due to our lapse – Spirit of Karmayogi in serving– Questions and Answers. 
 
@@ -1565,7 +1575,8 @@ Q: Some in our society feel that they are discriminated against in religious and
 
 A: They can be given yajnopavita and gotra. If they do not know the gotra they can be given the gotra of the priest. That was being done in olden days and is sanctioned by the Shastras. In the Shastras, it is also said that all those who do not come under any gotra belong to Kashyapa gotra, because all are supposed to have been born from Kashyapa. They should be given equal rights and footings in the matter of religious rites, in temple worship, in the study of Vedas, and in general, in all our social and religious affairs. This is the only right solution for all the problems of casteism found nowadays in our Hindu society. This I have submitted to all the Shankaracharyas, as also other Acharyas I have met. 
 
-Part Three. The Path To Glory (B) For Social Uplift Chpater 30. Human Touch, the Great Solvent 
+
+### Ch 30. Human Touch, the Great Solvent 
 
 (*) Address to Coffee Planters and Industrialists 
 
@@ -1607,7 +1618,8 @@ Proper upkeep of temples should also be the special responsibility of such peopl
 
 And for all this, it is the devotion, the heart, that is all-important. If the heart is large, funds and every other kind of resource will flow automatically. And it is intense love for our society and the yearning to see our Hindu society rise once again in full prosperity and glory, that will make the heart generous and devoted. 
 
-Part Three. The Path To Glory (B) For Social Uplift Chapter 31. Call To Motherhood 
+
+### Ch 31. Call To Motherhood 
 
 Making the home, centre of Samskars – Morning chanting, dress, etc. – Toll of “modernism” – Heroic motherhood – Social aspect – Banish “loneliness” – Literacy campaign, training for employment, and Samskars, to needy sisters– Invoke spirit of Savitri. 
 
@@ -1675,7 +1687,8 @@ Once we do this, I am sure, the long night will pass and a new dawn will spread 
 
 And this is also what Gandhiji has foreseen for the future of our Dharma. He says: “Hinduism is a relentless pursuit after Truth, and if today it has become moribund, inactive, irresponsive to growth, it is because we are fatigued; and as soon as the fatigue is over, Hinduism will burst forth upon the world with a brilliance perhaps unknown before.” 
 
-Part Three - The Path To Glory (B) For Social Uplift Chapter 32. We And Our Students (*) 
+
+### Ch 32. We And Our Students (*) 
 
 Three classes of people – Essence of education: man-making –Dedication to ideal – Teacher, the pivot – Right home atmosphere – Eschew wrong political leadership – For healthy unions – Role of press and publicity –A thorough reorientation needed. 
 
