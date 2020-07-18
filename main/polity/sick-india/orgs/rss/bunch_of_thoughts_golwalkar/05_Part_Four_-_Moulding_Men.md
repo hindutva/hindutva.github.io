@@ -2,7 +2,7 @@
 title = "05 Part Four - Moulding Men"
 +++
 
-Chapter 33. The Technique That Succeeds 
+## Ch  33. The Technique That Succeeds 
 
 1. FOR TRUE NATIONAL REORGANISATION 
 
@@ -370,7 +370,7 @@ Thus ”Bhagawa" has been the symbol of the highest principles and practices evo
 
 The offering that we make on this day of Guru Pooja in the form of money is to remind ourselves that the earnings that we make all our life is made possible because of the co- operation of society around us. Not only the financial earnings but our entire security and happiness is a thing vouchsafed by society. As such it becomes our duty to pay back that social debt, to the maximum extent possible for us. In fact, the daily one-hour Shakha wherein we offer our body, mind and intellect is intended to fulfil that social obligation in our daily life. It is in tune with this spirit of self-offering nurtured in Sangh that the system of Guru Dakshina also has been evolved. 
 
-Part Four - Moulding Men Chapter 34. Character - Personal and National 
+## Ch  34. Character - Personal and National 
 
 Our cultural speciality: Personal Character - Purity of means - Personal laxity, a national danger - Tragedy of passive 'goodness' - National character, the life-breath - Verdict of history - Devotion is not bargaining - Power of devotion- When characters blooms. 
 
@@ -456,7 +456,7 @@ Let us aspire and strive for such an unwavering and unreserved spirit of devotio
 
 Such a person of intense devotion develops extraordinary powers for achieving his goal. Even in our daily life do we not see that an ordinary workman works best when he loves and adores his work and an artist is at his best when he forgets himself in drawing the picture after his heart? Let us try to develop such a state of perfect concentration on the path of national devotion and make our lives living examples of sterling character in all its aspects. 
 
-Part Four - Moulding Men Chapter 35 - Be Men with Capital 'M' 
+## Ch  35 - Be Men with Capital 'M' 
 
 Be foundation-stones - Ideal of service - Self-reliance; glowing examples - Curse of careerism - Choosing the right ideal - Avoid two extremes - Serve nation - Shake off inferiority complex, cheap imitations - Secret of world respect; our past heroes- Past tradition - What Mother wants. 
 
@@ -610,7 +610,7 @@ Let us feel ourselves fortunate to have been born in the present trying situatio
 
 Today, more than anything else, Mother needs such men - young, intelligent, dedicated and more than all virile and masculine. When Narayana-eternal knowledge- and Nara- eternal manliness- combine, victory is ensured. And such are the men who make history - men with capital 'M'. 
 
-Part Four - Moulding Men Chapter 36. Men with Mission 
+## Ch  36. Men with Mission 
 
 Real greatness, making men out of dust - Genuine spirit of identity - Assert faith in goodness - Building comradeship - Be self-confident, beware of self-conceit - Lesson of great lives - 'Egoless' is success - One life, one mission- Self-introspection, self- reformation - The joy of idealism - The glory of suffering - 'Excelsior' 
 
@@ -780,7 +780,7 @@ One such instance happened in the life of Tatya Tope, the great general of the 1
 
 Such are the men who can, by a mere touch, turn base metal into gold, turn the severest of difficulties into opportunities and even temptations into their allies in the grand battle for achieving their ideal. In the words of Swami Vivekananda they 'worship the Terrible' and love to live dangerously. With the fiery energy of youth in their nerves, the flash of idealism in their eyes, steadfast and unruffled amidst all storms of temptations and adversities, and radiating inspiration all round, they press forward triumphantly from success to success till they achieve the goal of their dreams. 
 
-Part Four - Moulding Men Chapter 37. The Ideal Incarnate (*) 
+## Ch  37. The Ideal Incarnate (*) 
 
 Dr. Keshav Baliram Hedgewar THE FOUNDER OF RASHTRIYA SWAYAMSEVAK SANGH 
 
@@ -876,7 +876,7 @@ ones achieve great tasks not because of external aids but by their intrinsic mer
 
 Guiding Light for all generations to fashion their lives in its effulgence for glorious and immortal national life. 
 
-Part Four - Moulding Men Chapter 38. His Last Message 
+## Ch  38. His Last Message 
 
 Sangh not individual-oriented, but ideal-oriented - Faith in ideal inspires confidence in others also - Instance of people's trust - Beware, dictatorship is coming - Make up for loss of time- Reach the Goal. 
 

@@ -1,8 +1,8 @@
 +++
-title = "03 Part Two: The Nation and Its Problems"
+title = "03 P2: The Nation and Its Problems"
 +++
 
-Chapter 9. Our Motherland 
+## Chapter 9. Our Motherland 
 
 1.THE GRAND VISION 
 
@@ -208,7 +208,7 @@ Devotion to the motherland of the intense, dynamic, uncompromising and fiery typ
 
 Devotion to the motherland of the intense, dynamic, uncompromising and fiery type is the life-breath of a free, prosperous and glorious national existence on the face of the earth. And we, the Hindus, are the inheritors of the most sublime devotion lying dormant in every Hindu heart be fanned and joined in a sacred conflagration which shall consume all the past aggressions on our motherland and bring to life the dream of Bharat Mata reinstated in her pristine undivided form. 
 
-Part Two - The Nation and its Problems X. CHILDREN OF THE MOTHERLAND 
+## X. CHILDREN OF THE MOTHERLAND 
 
 Why the name ‘Hindu’ - Our social diversity, sign of evolution –Many sects but one dharma –Its twofold object – Reasons for present perversion – Varna vyavastha: Original form; not the cause of slavery; present day perversions – All our languages national- Myth of Tamil separatism- Why Hindi as official language- Present linguistic chauvinism – Aryan Dravidian controversy , a political game – The fresh dissensions - Realise underlying unity- A duty by birth . 
 
@@ -568,7 +568,7 @@ In the first place, feeling of burning devotion to the land, which, from times i
 
 -this trinity of values or, in a word, Hindu Nationalism, forms the bedrock of our national edifice. 
 
-Part Two - The Nation and Its Problems XII. Territorial Nationalism 
+## XII. Territorial Nationalism 
 
 1. TERRITORIAL NATIONALISM: ITS ROOTS 
 
@@ -724,7 +724,7 @@ It was this 'humbug' type of nationalism that was attempted to be vivified. It i
 
 Therefore, if we are to rise again as a nation, we must correct the initial blunder, which we committed in accepting the newfangled idea of nationalism which experience has proved to be absolutely false and ruinous. Let us not be deluded into a wrong track by the wily propaganda of interested persons. We have been sufficiently fooled uptill now by their exhortation that we Hindus, who are having a great philosophy of human brotherhood, catholicity of spirit and so on, should not narrow ourselves by the talk of Hindu Nationalism and all such 'communal', 'medieval' and 'reactionary' ideas! We must be able to see through the game and revert to the truth of our nationalism as an ancient fact and the Hindus being the national society of Bharat, so clearly restated by our revered founder when he decided the word 'Rashtriya' for our organisation. We must once again stand up in our true and full stature and boldly assert that we shall elevate the Hindu National Life in Bharat to the peak of glory and honour which has been its birthright since hoary time. 
 
-Part Two - The Nation And Its Problems XIII. Call for Courage of Conviction 
+## XIII. Call for Courage of Conviction 
 
 'Secularists' and Hindu nationalism - Fear complex, root of 'Hindu-Muslim' bhai-bhai' - Story with a moral - Ingrained conviction of Hindu Nationalism - Even truth requires 'proof'. 
 
@@ -776,7 +776,7 @@ of the power of Hindu Nation in the form of thousands of well-disciplined, devot
 
 Therefore, the foremost duty laid upon every Hindu is to huild up such a holy, benevolent and unconquerable might of our Hindu People in support of the age-old truth of our Hindu Nationhood. Our scriptures tell us that self-forgetfulness is adharma and awakening to the knowledge of one's true self is dharma. Thus the path of re- establishment of dharma shown by all our great masters of the past is clearly the awakening of the Hindu People to the truth of their National Self-the glorious, effulgent Hindu Nationhood. 
 
-Part Two - The Nation And Its Problems XIV. Uniqueness of Hindu Rashtra 
+## XIV. Uniqueness of Hindu Rashtra 
 
 1. HINDU RASHTRA AND "MINORITIES" 
 
@@ -842,7 +842,7 @@ Even today, it is on the strength of this national tradition that a Muslim can a
 
 But unfortunately secularism in India has, in practice, meant anti-Hinduism for people at the helm of affairs. When the late Dr. Zakir Husain specially went to Kerala to inaugurate a mosque, nobody objected. But when Dr. Giri went to Tirupati after his election as Rashtrapati, it was dubbed communal. The world must be laughing at us. 
 
-Part Two - The Nation And Its Problems XV. Affirm Basic Truths* 
+## XV. Affirm Basic Truths* 
 
 Real connotation of terms 'National', 'Integration', 'Communal', etc.- "Majority Communalism" a fallacious term - Seven types of communalism - Perversion due to sectarian over-attachment - The ways and means to tackle communalism: National smaskars for all; Giving up wrong language policy; Unitary State; Stopping aggressive acts - Ways of real assimilation - RSS mission of Integration. 
 
@@ -1014,7 +1014,7 @@ What are the powers of the Council? If it is only a forum for exchange of views 
 
 The Government and the ruling party appear to have a dominating voice in the Council. Under these conditions, would it not be futile to expect an impartial consideration of the issues? 
 
-Part Two - The Nation And Its Problems XVI. Internal Threats 
+## XVI. Internal Threats 
 
 1. THE MUSLIMS 
 
