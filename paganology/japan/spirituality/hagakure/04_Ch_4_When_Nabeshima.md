@@ -15,15 +15,17 @@ Way of the Samurai ?”
 The elders were unable to answer. Then Tadanao said, ”I
 have read that when the crime itself is unclear, the punishment
 should be light. Put him in confinement for a while.“
+
 Once, when Lord Katsushige was hunting at Shiroishi, he
 shot a large boar. Everyone came running up to see it and
 said, ”Well, well. You have brought down an uncommonly large
 one !” Suddenly the boar got up and dashed into their midst.
-All of them fled in confusion, but Nabeshima Matabet drew
+All of them fled in confusion, but Nabeshima Matabe drew
 his sword and finished it off. At that point Lord Katsushige
 covered his face with his sleeve and said, “It sure is dusty.” This
 was presumably because he did not want to see the spectacle of
-his flustered men.
+his flustered men.+++(5)+++
+
 When Lord Katsushige was young, he was instructed by his
 father, Lord Naoshige, “For practice in cutting, execute some
 men who have been condemned to death.” Thus, in the place
@@ -33,8 +35,9 @@ he had executed nine of them. When he came to the tenth, he
 saw that the man was young and healthy and said, “I’m tired of
 cutting now. I’ll spare this man’s life.” And the man’s life was
 saved.
+
 Lord Katsushige always used to say that there are four kinds
-of retainers. They are the “quick, then lapping,” the “lagging,
+of retainers. They are the “quick, then lagging,” the “lagging,
 then quick,” the “continually quick,” and the ”continually lagging.”
 The “continually quick” are men who when given orders will
 undertake their execution quickly and settle the matter well.
@@ -42,8 +45,7 @@ Fukuchi Kichizaemon and the like resemble this type.
 The “lagging, then quick” are men who, though lacking in
 understanding when given orders, prepare quickly and bring the
 matter to a conclusion. I suppose that Nakano Kazuma and men
-similar are like this.
-The “quick, then lagging” are men who when given orders
+similar are like this. The “quick, then lagging” are men who when given orders
 seem to be going to settle things but in their preparation take
 time and procrastinate. There are many people like this.
 Other than these, one could say that the rest are ”continually

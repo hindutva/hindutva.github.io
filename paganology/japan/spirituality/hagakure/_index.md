@@ -42,3 +42,7 @@ The word Hagakure literally translates as hidden beneath the leaves and also fal
 The Hagakure has been rewritten in modern terms by one of Japan’s famous writers, Yukio Mishima. His own views were very similar to those of Yamamoto, particularly the philosophy of cultivating the self. His characters all had self sufficiency in common, and did not rely upon anyone else for completion.
 
 Although the Hagakure was written centuries ago for a breed of warriors that no longer exist, the philosophies and wisdom within are still practical, even in our modern times.
+
+## Special take-aways
+- The Way +++(of the samurai)+++. The Way. This is mentioned many times.
+- The present moment.
