@@ -126,6 +126,7 @@ without touching on his, but so that they will occur to him.
 Have him receive this in the way that a man would drink water
 when his throat is dry, and it will be an opinion that will correct
 faults.
+
 This is extremely difficult. If a person s fault is a habit of
 some years prior, by and large it won’t be remedied. I have had
 this experience myself. To be intimate with alt one’s comrades,
@@ -133,6 +134,7 @@ correcting each other’s faults, and being of one mind to be of use
 to the master is the great compassion of a retainer. By bringing
 shame to a person, bow could one expect to make him a better
 man?
+
 It is bad taste to yawn in front of people. When one unexpectedly has to yawn, if he rubs his forehead in an upward
 direction , the sensation will stop . If that does not work, he can
 lick his lips while keeping his mouth closed, or simply hide it
@@ -141,12 +143,14 @@ what he is doing. It is the same with sneezing. One will appear foolish. There a
 a person should use care and training. When a certain person
 was saying that present matters of economy should be detailed,
 someone replied that this is not good at all.
+
 It is a fact that ash will not live where the water is too
 clear. But if there is duckweed or something, the fish will hide
 under its shadow and thrive. Thus, the lower classes will live
 in tranquillity if certain matters are a bit overlooked or left
 unheard. This fact should be understood with regard to people’s
 conduct.
+
 Once when Lord Mitsushige was a little boy and was supposed to recite from a copybook for the priest Kaion, he called
 the other children and acolytes and said, “Please come here and
 listen. It’s difficult to read if there are hardly any people listening.” The priest was impressed and said to the acolytes, “That’s
@@ -160,6 +164,7 @@ always be mindful of the master’s person and will not depart
 from him even for a moment.
 Moreover, a woman should consider her husband first, just
 as he considers his master first.
+
 According to a certain person, a number of years ago Matsuguma Kyoan told this story:
 In the practice of medicine there is a differentiation of treatment according to the Yin and Yang of men and women. There
 is also a difference in pulse. In the last fifty years, however,
