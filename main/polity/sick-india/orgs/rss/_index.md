@@ -3,28 +3,31 @@ title: RSS
 ---
 
 
-## RSS Ideology.
+## Ideology.
 
 - The movement’s official ideology is Deendayal Upadhyaya’s Integral Humanism, studied by all RSS members yet conspicuous by its absence from most “expert” studies, apparently because it sounds too innocent, not fitting in the gory enemy-image they were constructing. \[[KE](http://koenraadelst.blogspot.be/2015/02/three-views-of-hindu-activism.html)\]
-- Some distinctions from Fascism:
-    - "RSS’s (as opposed to the BJP’s) internal functioning honours the Leader Principle, it is gerontocratic and more inspired on native Guru worship than on the submission to  autocratic young men of action characteristic of the European interbellum."  \[[KE](http://koenraadelst.blogspot.be/2015/02/three-views-of-hindu-activism.html)\]
-    - "He admitted the RSS’s principled opposition to what was the first priority of the fascist movements, viz. the seizing of political power (p.189) underlying this contrast is the fascists’ valuation of the state as crucial actor versus Hindu society’s self-reliance with only a limited role for the state."  \[[KE](http://koenraadelst.blogspot.be/2015/02/three-views-of-hindu-activism.html)\]
-    - "Race thought too, in spite of the deceptive occasional appearance of the word “race” (then more general in meaning), failed to become central to Hindu nationalism; on the contrary, he notes that the central concept of Chiti (ca. Volksseele, “national soul”, p.172) logically favoured assimilation."  \[[KE](http://koenraadelst.blogspot.be/2015/02/three-views-of-hindu-activism.html)\]
+- Guru Golwalkar's "Bunch of Thoughts" is well studied. Still, critical parts have been excised: Mohan bhAgavat effectively said: "Sangh does not see Muslims as “ unwanted” and Golwalkar’s view, recorded in “ Bunch of Thoughts, categorising the community along with Christians and Communists as internal enemies." -[TOI](https://timesofindia.indiatimes.com/india/parts-of-golwalkars-bunch-of-thought-not-valid-anymore-rss-chief-mohan-bhagwat/articleshow/65877873.cms)
+
+## Distinctions from Fascism:
+- "RSS’s (as opposed to the BJP’s) internal functioning honours the Leader Principle, it is gerontocratic and more inspired on native Guru worship than on the submission to  autocratic young men of action characteristic of the European interbellum."  \[[KE](http://koenraadelst.blogspot.be/2015/02/three-views-of-hindu-activism.html)\]
+- "He admitted the RSS’s principled opposition to what was the first priority of the fascist movements, viz. the seizing of political power (p.189) underlying this contrast is the fascists’ valuation of the state as crucial actor versus Hindu society’s self-reliance with only a limited role for the state."  \[[KE](http://koenraadelst.blogspot.be/2015/02/three-views-of-hindu-activism.html)\]
+- "Race thought too, in spite of the deceptive occasional appearance of the word “race” (then more general in meaning), failed to become central to Hindu nationalism; on the contrary, he notes that the central concept of Chiti (ca. Volksseele, “national soul”, p.172) logically favoured assimilation."  \[[KE](http://koenraadelst.blogspot.be/2015/02/three-views-of-hindu-activism.html)\]
 
 ## Goals
 
 - Standardization and spread of values: यथा पुरा संन्यासिनो ब्राश्मणाश्च देशेऽखिलेऽपि धर्मव्यवस्थाप्रबन्धम् चक्रुः प्रयाणिकाः, तथा वयमद्य कुर्मः।
 - Human Infrastructure for specific missions: यथा पुरा रामानन्दादिसंन्यासिभिर् महाराष्ट्रेषु हनुमन्मन्दिरसंयुक्ता मल्लशालाः प्रारब्धाः शिवराजम् उपचक्रुः, तथैव वयमपि "infrastructure"(आधार)-निर्माणं कुर्मः। 
-- Seeding mission specific organizations:
-    - उदाहरणानि
-        - संस्कृतभारती
-        - एकलविद्यालय
-        - विश्वहिन्दुपरिषद् 
-        - श्रमिकसङ्ग 
-        - विद्यार्थिपरिषद्
-        - \[vanavAsI-kalyAN-Ashram (incidentally one of those rare organizations actually run by vanvAsI-s rather than 'alien civilizers/ uplifters'), sevA-bhAratI, etc..\]. 
-    - "एताः संस्था अस्माभिरेव जनिताः, प्रारम्भे पोषिताः। इदानीमपि न ताः पृथक् संस्था इत्येवास्मद्भावना। अस्मान्विना नैता अभविष्यन्नि"ति ध्वनितम्।
 - "यद्यपि समुदायस्तरे जातिस्तरे वा सङ्घटन्ते जनाः, हिन्दुत्वे न तथा सङ्घटन्ते, तत्रास्मत् सम्पर्कहेतुना "हिन्दुत्व"भावना+ऐक्यं च जागर्ति।"
+
+### Seeding mission specific organizations:
+- उदाहरणानि
+    - संस्कृतभारती
+    - एकलविद्यालय
+    - विश्वहिन्दुपरिषद् 
+    - श्रमिकसङ्ग 
+    - विद्यार्थिपरिषद्
+    - \[vanavAsI-kalyAN-Ashram (incidentally one of those rare organizations actually run by vanvAsI-s rather than 'alien civilizers/ uplifters'), sevA-bhAratI, etc..\]. 
+- "एताः संस्था अस्माभिरेव जनिताः, प्रारम्भे पोषिताः। इदानीमपि न ताः पृथक् संस्था इत्येवास्मद्भावना। अस्मान्विना नैता अभविष्यन्नि"ति ध्वनितम्।
 
 ## Modus operandi
 
