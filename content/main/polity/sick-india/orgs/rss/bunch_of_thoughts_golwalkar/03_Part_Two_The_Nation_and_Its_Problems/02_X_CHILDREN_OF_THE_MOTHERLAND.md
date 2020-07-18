@@ -7,7 +7,7 @@ Why the name ‘Hindu’ - Our social diversity, sign of evolution –Many sects
 
 Since times immemorial, a great and cultured people called by the name ‘Hindu’ have been living here as the children of this sacred motherland . There are, however , some who object to the name ‘Hindu’ saying that it is comparativly of a recent origin and moreover given to us by the foreigners. They suggest the name ‘Arya’ or Bharatiya in the place of ‘Hindu’ . 
 
-Why the name ‘Hindu’? 
+## Why the name ‘Hindu’? 
 
 ‘Arya’ is an old and proud name, no doubt. But it has gone out of use especially for the last thousand years. Moreover, the mischievous propaganda carried on by the British under the cover of historical research during the last century has struck deep into the minds of our people the poisonous roots of the cooked up Aryan-Dravidian controversy. The use of the ‘Arya’ would therefore be self- defeating in its purpose of bringing up before our eyes the picture of the whole of our people stretching from Himalayas to Kanyakumari, irrespective of all denominations, past and present. 
 
@@ -17,15 +17,15 @@ Nor is it historically correct to say that the name 'Hindu' is of recent origin 
 
 The Brihaspati Agama says: 
 
-fgeky;a lekjH; ;kofnanqljksojeÃ Rka nsofufeZra ns'ka fganqLFkkua izPk{;rsAA 
+हिमालयं समारभ्य यावदिन्दुसरोवरम् । तं देवनिर्मितं देशं हिन्दुस्थानं प्रचक्ष्यते ।।
 
 (The land created by the gods and stretching from Himalayas to the Indu (i.e.Southern) ocean is called Hindusthan.) 
 
 The word 'Hindu' has been especially associated with us during the crucial period of the last thousand years of our history. Right from the days of Prithviraj, all our great nation- builders, statesmen, poets and historians have taken the name 'Hindu' to denote our people and our dharma. The dream of all our valiant freedom fighters like Guru Govind, Vidyaranya and Shivaji had been to establish Hindu Swaraj. The name 'Hindu' carries with it the fragrant memories of all those great lives, their deeds and their aspirations. It has thus become a word that at once reflects the unity, the sublimity and the speciality of our people. 
 
-There are some who have the habit of dubbing us as narrow and parochial in our outlook because of our insistence on the word 'Hindu'. Pandit Nehru too levelled the same charge when I met him once. He said, "Why are you always harping upon 'Hindu' 'Hindu'? By this, you are only shutting up yourself within your four walls, not allowing the fresh breeze form the outside world to come in. There should be no walls separating us from the wide world outside. We should pull down all such out-dated barriers." Pandit Nehru was a big man and he spoke with great emotion. I calmly replied, " I totally agree with you that we should allow fresh breeze to come in form all ideologies prevalent in several countries, sift them and assimilate whatever is beneficial to us. But to do that, is it necessary that we should demolish the walls of our house and bring down the roofs upon our heads? On the contrary, would it not be wise to keep our house intact and just open the windows and doors to let in the outside breeze? I feel that broadmindedness, if stretched beyond the practical limit, would only end up in finishing our national entity. And I must say it is our so-called narrow national outlook which will ultimately help raising up our nation even while absorbing what is desirable form the outside world." To this, Pandit Nehru remarked, " Well, I concede that such conviction is needed to put in determined efforts for any cause." 
+There are some who have the habit of dubbing us as narrow and parochial in our outlook because of our insistence on the word 'Hindu'. Pandit Nehru too levelled the same charge when I met him once. He said, "Why are you always harping upon 'Hindu' 'Hindu'? By this, you are only shutting up yourself within your four walls, not allowing the fresh breeze form the outside world to come in. There should be no walls separating us from the wide world outside. We should pull down all such out-dated barriers." Pandit Nehru was a big man and he spoke with great emotion. I calmly replied, " I totally agree with you that we should allow fresh breeze to come in form all ideologies prevalent in several countries, sift them and assimilate whatever is beneficial to us. But to do that, is it necessary that we should demolish the walls of our house and bring down the roofs upon our heads? On the contrary, would it not be wise to keep our house intact and just open the windows and doors to let in the outside breeze? I feel that broadmindedness, if stretched beyond the practical limit, would only end up in finishing our national entity. And I must say it is our so-called narrow national outlook which will ultimately help raising up our nation even while absorbing what is desirable form the outside world." To this, Pandit Nehru remarked, " Well, I concede that such conviction is needed to put in determined efforts for any cause." +++(5)+++
 
-Sign of Evolution 
+## Sign of Evolution 
 
 Let us now take a look at our Hindu life. When people, especially outsiders, see the multitude of our faiths, sects, castes, languages, customs and habits, they are confounded, and they exclaim, "With all these heterogeneous elements and discordant notes, how can you call this a single society at all? Where is the single way of life you call 'Hindu'?" 
 
@@ -33,31 +33,35 @@ Well, this question stems from a superficial view of our Hindu life. A tree, for
 
 In fact, in the scheme of nature, the evolution of life has followed the same pattern. Life, in its primitive stage, is in a shapeless condition and is called 'amoeba'. It is an unicellular organism, complete in itself. It can be split into two similar ones. It is in the primary state of protoplasm and stands in the lowest rung of evolution. As evolution progresses, various life species come into being with differentiated organs to fulfill the increasing number of functions. Finally, the human body is formed which is a tremendously complex mechanism composed of innumerable organs, each endowed with a specific function, but all of them bound with one another in a common current of life. That is the highest evolved form of life on earth. So we find that the different organs or diversities are not a sign of immaturity or heterogeneity but of a highly evolved state. All the organs, though apparently of diverse forms, work for the welfare of the body and thus subscribe to its strength and growth. 
 
-The Unique Picture 
+## The Unique Picture 
 
 Likewise is the case with society. An evolved society, for the proper functioning of various duties, develops a multitude of diverse functional groups. Our old social order laid down a specific duty for each group and guided all the individuals and groups in their natural line of evolution just as the intellect directs the activities of the innumerable parts of the body. The highest scope for development of the individual was secured in the process of his best service to the Virat Purusha (Corporate Person) of society. Such was the highly complex and organised structure of society that we had envisaged as the practical ideal and strove to realise it in life. This state, looked at from a distance, appears as a bewildering diversity but, in fact, denotes the highest evolved state of society that ever existed on the face of the world. 
 
 But the present-day mind, accustomed to viewing things through the medium of foreign 'isms' and their high-sounding slogans of 'equality', has failed to grasp this unique feature and has raised the cry that the various diversities of our life are all so many sources of dissension and should therefore be eradicated and rolled into a 'classless' society. Merely because the various limbs and organs in a body appear different and play their own specific functions, should we call them different 'classes' and proceed to remove them all to make the body a 'classless' entity? If we do that, will that be evolution or murder? 
 
-The unique feature of 'unity in diversity' has expressed itself in all spheres of our social life, in its material as well as spiritual aspect. It is like a bright lamp covered on all sides 
-
-with glasses of various colours. The inside light appears to take on the different hues and shades according to the angle from which one views it. It is this wondrous variety of expressions that has made some people say that ours is not one society, not one nation, but a 'multinational country'! 
+The unique feature of 'unity in diversity' has expressed itself in all spheres of our social life, in its material as well as spiritual aspect. It is like a bright lamp covered on all sides with glasses of various colours. The inside light appears to take on the different hues and shades according to the angle from which one views it. It is this wondrous variety of expressions that has made some people say that ours is not one society, not one nation, but a 'multinational country'! 
 
 We shall be able to analyse the present-day maladies of our social life and be able to devise ways and means to remedy them if we start with this correct appraisal of our social life. 
 
-'Ekam Sat Vipra Bahudha Vadanti' 
+## 'Ekam Sat Vipra Bahudha Vadanti' 
 
 The first special characteristic that strikes the eye of an outsider is the bewildering variety of sects and sub-sects like Shaiva, Vaishnava, Shakta, Vaidik, Bouddha, Jain, Sikh, Lingayat, Aryasamaj, etc., obtaining in the elastic framework of our dharma. A great masters and sponsorers of all these upasanas founded these various forms of worship to suit the various mental aptitudes of our people, but in the last analysis referred them all to the same goal of realising the Ultimate Truth-variously called Brahma, Atma, Shiva, Vishnu, Ishwara or even Shoonya or Maha Soonya. 
 
 See how the following shloka beautifully comprises and harmonises the various sects and philosophies in the Hindu fold: 
 
-;a 'kSok% leqiklrs f'ko bfr czãksfr osnkfUruks ckS)k cq) bfr izek.kiVo% drsZfr uS;kf;dk%A vgZféR;qr tSu'kklujrk% desZfr ehekaldk% lks·;a oks don/kkrq okafNrQya =SkyksD;ukFkks gfj%AA 
+यं शैवाः समुपासते शिव इति ब्रह्मेति वेदान्तिनो  
+बौद्धा बुद्ध इति प्रमाण-पटवः कर्तेति नैयायिकाः ।   
+अर्हन्नित्युत जैनशासनरताः कर्मेति मीमांसकाः  
+सोऽयं वो विदधातु वाञ्छितफलं त्रैलोक्यनाथो हरिः।।
 
 (He whom the Shaivas worship as Shiva, the Vedantins as Brahma, the Bouddhist as Buddha, the Naiyayikas (rationalists) as Karta, the Jains as Arhan, the Meemamsaka as Karma, may He, the Lord of the three worlds, fulfil our desires.) 
 
 There is a revealing anecdote in the life of Sant Tulsidas. People at one place took him to the temple of Sri Krishna, knowing fully well that his single-minded devotion was to Sri Rama. The saint stood before the idol entirely unmoved. He then prayed to Sri Krishna: 
 
-dkgSa oj.kkS Nfo vki dh Hkys fojktr ukFkA Rqylh eLrd rc uoS /kuq"k ck.k ysÅ gkFkAA 
+काहैं वरणौ छवि आप की  
+भले विराजत नाथ।  
+तुलसी मस्तक तब नवै  
+धनुष बाण लेऊ हाथ।।
 
 (How shall I describe your radiant features? You are indeed gracefully decorated. However, Tulasi will bow down his head only when you take bow and arrow in your hand..) 
 
@@ -65,7 +69,10 @@ And it is said, the idol of Sri Krishna was transformed into the form of his cho
 
 But the diversities in the path of devotion did not mean division is society. All are indivisible organs of one common dharma, which held society together. The same philosophy of life, the same goal, the same belief in the supremacy of the inner spirit over the outer gross things of matter, the same faith in rebirth, the same adoration of certain qualities like brahmacharya, satya, etc., the same holy samskars, in short, the same life- blood flowed through all these limbs of our society. It was the propoounder of pure Advaita (non-dualism), Sri Shankaracharya, who prescribed the Panchayatana pooja--the worship of the five deities, Surya, Shakti, Vishnu, Ganapati, and Shiva--for the sake of the common man. What a glorious example of the harmony of the various paths to God Realisation! Diversity of sect had seldom caused bloodshed or unholy rivalry amongst our people in the past. Even while one tried to establish one's own thesis or while attempting to disprove the others there was never any breaking of heads. This deep current of inner unity is described beautifully in Shivamahimna-stotra: 
 
-=k;h lk«[;« ; ̈x% i'kqifrer« oS".kofefr çfHkés çLFkkUks ijfenen% iF;fefr p #phUkk« oSfp×;kêtqdqfVyUkkUkkiFktq"kk« Uk'.kkesd ̈ xE;Lroefl i;lke.kZo bo AA 
+त्रयी साङ्ख्यं योगः पशुपतिमतं वैष्णवमिति  
+प्रभिन्ने प्रस्थाने परमिदमदः पथ्यमिति च।।  
+रुचीनां वैचित्र्याद् ऋजुकुटिल नानापथजुषां  
+नृणामेको गम्यस् त्वमसि पयसामर्णव इव।।
 
 (As the one ocean of all waters, You are the one goal of all men, who, according to their diverse tastes, take to the several paths, straight or crooked, considering this as superior or that as wholesome among the differing paths-the Vedas, the Samkhya, the Yoga, the Shaiva and the Vaishnava faiths.) 
 
@@ -73,13 +80,13 @@ This has been our tradition right form the hoary Vedic days down to the present 
 
 The formation of many of these sects and aspects of philosophy served another very useful purpose. They helped to protect and maintain the integrity of our people. The Sikh sect, for example, came into being to contain the spread of Islam in Punjab. Later on, recognising the need of the times, Guru Govind Singh, the tenth Guru of the Sikhs, armed his disciples and turned them into a band of national heroes. When the Christian missionaries were trying to woo the people on our West Coast of their faith in the name of an all-merciful personal God, Sri Madhwacharya rose with the bhakti aspect of our dharma to neutralise that foreign poison. The efforts of Ramanujacharya and Basaveshwara too were inspired with the aim of removing feelings of high and low that had crept into the people and unifying them all in a common bond of devotion of God. 
 
-The Semitic Effects 
+## The Semitic Effects 
 
 It is our misfortune that this all-embracing aspect of our dharma has been lost sight of today. There are several reasons for this sad state of affairs. The narrow concept of religion that the West practised seems to have had its effect upon us. In all those Semitic religions-Judaism, Christianity and Islam-a single way of worship is prescribed for all. Those creeds have but one prophet, one scripture and one God, other than whom there is no path of salvation for the human soul. It requires no great intelligence to see the absurdity of such a proposition. Naturally this Semitic concept of religion bred intolerance and divided people in the name of religion. Some countries in the West therefore got disgusted with feuds begotten by such religious fanaticism and took the extreme step of ousting religion itself. The Communist and Socialist philosophies, as taken up by Russia, are extreme instances of this revolt. 
 
 This has had its effects on our country also. People forgot that narrow sentiments of sectarian antagonism had never existed here. In their blind following of the Western developments, they too began to deride and disclaim dharma in their life. That has resulted in disrupting the benign bonds that used to hold the people together and inspire them for higher life. 
 
-Present Perversion 
+## Present Perversion 
 
 We are witnessing its disastrous effects today. Stories of mutual derision, even to the extent of becoming household jokes, are rampant throughout the length and breadth of the country. There is talk of 'domination' and 'imperialism' of one sect over another. If we are to speak in terms of 'domination' then we have to say that the North is being 'tyrannised' under the philosophical 'imperialism' of the South! Because, all the major schools of philosophical thought that have encompassed the whole of our land including the remotest corners of the North were propounded by the great teachers born in the South. Shankara, the propounder of the incomparable Advaita Philosophy, Ramanuja with his effulgence of Bhakti of Visishtadvaita, Madhwa with his sublime appeal of Dvaita, the duality of soul and God, and Vallabha too who looked upon the universe as a blissful projection of God Himself-all of them are from the South. So, should we say that the south is philosophically dominating over the whole of the country? How absurd! Well, is my head dominating over my legs? Are not both equally the parts of the same body? 
 
@@ -91,11 +98,11 @@ golden thread that strung together all these pearls of various spiritual hues an
 
 Some of the Sikhs, Jains, Lingayats and Aryasamajists declare that they are separate from Hindus. Some prominent Sikh leaders are demanding and agitating for a separate sectarian Sikh State - though under the grab of a linguistic State, the Punjabi Suba. And strengthen their demand some of them have stooped to justify the creation of a separate State for Muslims, i.e., Pakistan. They have even gone to the extent of seeking its sympathy and help, forgetting all the barbaric atrocities and insults they had suffered at the hands of Pakistanis during the days of Partition. What greater misfortune could there be than that the present Sikh leaders should come forward to treat their great sect on par with the avowed destroyers of our desh and dharam and even seek the help of those very hostile forces from whose aggression it was born to protect the society! 
 
-The head of the Namadhari-panth of Sikh once said, "A person who is not a devout Hindu cannot be a Sikh either, cannot be a disciple of those great gurus who shed their blood in the cause of the mother society and mother religion, i.e., the Hindu". Sri Guru Govind Singh had declared, "A true Sikh is one who has faith in the Vedas and Bhagavad-gita and who worships Rama and Krishna." It is undiluted loyalty to these words of gurus that makes a true Sikh. Those Gurus had forged that band of heroes for the protection of Hindu Society and called the Sikhs as being devoted shishyas (disciples), or as Khalsa for being virtuous and valorous, or as Akali for being the worshippers of Akal--the timeless Reality. 
+The head of the Namadhari-panth of Sikh once said, "_A person who is not a devout Hindu cannot be a Sikh either, cannot be a disciple of those great gurus who shed their blood in the cause of the mother society and mother religion, i.e., the Hindu_"+++(5)+++. Sri Guru Govind Singh had declared, "A true Sikh is one who has faith in the Vedas and Bhagavad-gita and who worships Rama and Krishna." It is undiluted loyalty to these words of gurus that makes a true Sikh. Those Gurus had forged that band of heroes for the protection of Hindu Society and called the Sikhs as being devoted shishyas (disciples), or as Khalsa for being virtuous and valorous, or as Akali for being the worshippers of Akal--the timeless Reality. 
 
 In fact their whole life, even to this day, is permeated with the same thoughts and feelings as the rest of Hindus. Even as recently as a couple of decades ago one son from every Hindu family used to be named Sikh. Our blood relations continue even to this day. It is only the poison of political ambitions that has roused the demon of separatism in that otherwise devoted and heroic 'sword arm' of Hinduism. 
 
-The Anti-Hindu Government 
+## The Anti-Hindu Government 
 
 Even our persons at the helm of affairs have unwittingly fallen a prey to the pernicious idea of Sikh separatism. We often hear them calling upon 'Hindus and Sikhs' to lie in amity and harmony. It never occurs to them the persons in such high positions using an expression, which puts a seal of sanction of separatism between Sikhs and the rest of Hindus would only further embitter their relations. It is clearly written in our Constitution that the term 'Hindu' includes Sikhs, Jains, and Buddhists which means that the expression 'Hindu and Sikh' is opposed to the Constitution. What is misfortune the persons of such a stature should unconsciously insult our Constitution in this way! 
 
@@ -113,23 +120,21 @@ The policy of the present Government has only added fuel to the fire. The very w
 
 How unfortunate that our own leaders, our own people, should be digging at the roots of our social cohesion and destroying the spirit of identity that informed and blended all the various sects into a harmonious whole in the past! 
 
-Once the Glory 
+## Once the Glory 
 
 The other main feature that distinguished our society was the Varna-vyavastha. But today it is being dubbed 'casteism' and scoffed at. Our people have come to feel that the mere mention of Varna-vyavastha is something derogatory. They often mistake the social order implied in it for social discrimination. 
 
 The felling of inequality, of high and low, which has crept into the Varna system, is comparatively of recent origin. The perversion was given a further fillip by the scheming Britisher in line with his 'divide and rule' policy. But in its original form, the distinctions in that social order did not imply any discrimination such as big and small, high and low, among its constituents. On the other hand, the Gita tells us that the individual who does his assigned duties in life in a spirit of selfless service only worships God through such performance: 
 
-LodeZ.kk reH;P;Z flf)a foanfr ekuo% AA 
+स्वकर्मणा तमभ्यर्च्य सिद्धिं विंदति मानवः ।।
 
 Society was conceived of as the fourfold manifestation of the Almighty to be worshipped by all, each in his own way and according to his capacity. If a Brahaman became great by imparting knowledge, a Kshatriya was hailed as equally great by for destroying the enemy. No less important was the Vaishya who fed and sustained society through agriculture and trade or the Shudra who served society through his art and craft. Together and by their mutual interdependence in a spirit of identity, they constituted the social order. 
 
-The wrong Scent 
+## The wrong Scent 
 
 Looking at its present decadent and perverted form and mistaking it for its original form, there are some who never tire of propagating that it was the Varna-vyavastha that brought about our downfall down these centuries. But does this interpretation bear the scrutiny of history? Castes, there were in those ancient times too, continuing for thousands of years of our glorious national life. There is nowhere any instance of its having hampered the progress or disrupted the unity of society. It, in fact, served as a great bond of social cohesion. 
 
-Even during the past one thousand years when our nation fell before foreign onslaughts, there is no instance on record to show that caste distinctions were at the root of our national disunity that helped the invaders to conquer us. The person responsible for the defeat of Prithiviraj, the Hindu King at Delhi, by Mohammed Ghori was his own caste- relation Jayachand. The person who hounded Rana Pratap form forest to forest was none other than his own caste-man Raja Mansingh. Shivaji too was opposed by men of his own 
-
-caste. Even in the last-ditch battle between the Hindus and the British at Poona in 1818, it was a fellow casteman of the Peshwas, Natu by name, who lowered the Hindu flag and hoisted the British flag. There was a veritable race of such traitors but they were so because they fell a prey to other temptations and for other reasons. Caste never came into the picture. 
+Even during the past one thousand years when our nation fell before foreign onslaughts, there is no instance on record to show that caste distinctions were at the root of our national disunity that helped the invaders to conquer us. The person responsible for the defeat of Prithiviraj, the Hindu King at Delhi, by Mohammed Ghori was his own caste- relation Jayachand. The person who hounded Rana Pratap form forest to forest was none other than his own caste-man Raja Mansingh. Shivaji too was opposed by men of his own caste. Even in the last-ditch battle between the Hindus and the British at Poona in 1818, it was a fellow casteman of the Peshwas, Natu by name, who lowered the Hindu flag and hoisted the British flag. There was a veritable race of such traitors but they were so because they fell a prey to other temptations and for other reasons. Caste never came into the picture. 
 
 If the caste system had really been the root cause of our weakness, then our people should have succumbed to foreign invasion far more easily than those people who had no castes. But what does history say? After the death of Mohammed Pygamber, his followers poured out form Arabstan in waves after waves with their swords dripping with blood and overran vast portions of the globe, trampling under their feet all the various empires that lay in their path--Iran, Egypt, Rome, Europe and all others right up to China. The people of those mighty empires were swept away before the fury of the Muslim onslaught-many never to appear again on the world stage. 
 
@@ -139,7 +144,7 @@ We know as a matter of history that our northwestern and northeastern areas, whe
 
 Thus history bears eloquent witness to both sides of the picture. On the one hand, the so- called 'caste-ridden' Hindu Society has remained undying and unconquerable and still has the vitality to produce a Ramakrishana, a Vivekanada, a Tilak and a Gandhi after facing for over two thousand years the depredations of Greeks, Shakas, Hunas, Muslims and even Europeans, by one shock of which, on the other hand, the so-called casteless societies crumbled to dust never to rise again. 
 
-Adding Fuel to the Fire 
+## Adding Fuel to the Fire 
 
 Today, of course, the caste system has degenerated beyond all recognition. Added to the perversity aggravated over the centuries, a new factor has been introduced into our body- politic which has further intensified the rigidity and perversity of castes by those very persons who are most vociferous in their denunciation of the system. During elections, their consideration for selection of candidates as also their appeal to the voters is mainly 
 
@@ -147,7 +152,7 @@ Today, of course, the caste system has degenerated beyond all recognition. Added
 
 In their hearts of hearts, very few of those anti-caste zealots experience the sense of unity that can transcend the present-day perversities. Anti-caste tirade has verily become a mask for them to strengthen their own positions among their caste fellowmen. To what extent this venom has enterd our body-politic can be surmised from an incident which occurred some years ago. There is a 'Victory Pillar' near Pune, raised by the English in 1818 to commemorate their victory over the Peshwas. An eminent leader of the Harijans once addressed his caste-brethren under that Pillar. He declared that the pillar was a symbol of their victory over the Brahmins as it was they who had fought under the British and defeated the Peshwas, the Brahmins. How heart-rending it is to hear an eminent leader thus describing the hated sign of slavery as an emblem of victory, and the despicable action of fighting as slaves of a foreigner against our own kith and kin as an achievement of glory! How utterly his eyes must have been blinded by hatred, not able even to discern the simple fact of who were the victors and who the defeated! What a perversity? 
 
-Many Strings, but Same Melody 
+## Many Strings, but Same Melody 
 
 The diversity of our national heritage has also expressed itself in the field of our languages. Considering the vastness of our country and of our people, it is nothing to be surprised about. If any person in our country starts from his place and moves on foot from one province to another, he can observe a gradual change in language after every ten or fifteen miles, a natural transformation from one language to the other, and coalescing at the border. Even in the same language there is remarkable variance in the usage of words and expressions form place to place owing to the closeness to other languages. It only shows that all these languages are intrinsically one. It is like the gradual changeover of colours in a rainbow. Though it appears resplendent with a variety of hues, it is the same ray of the sun, which has taken those charming grabs. Similar is the glory of our languages. 
 
@@ -157,7 +162,7 @@ These days we are hearing much about Tamil. Some protagonists of Tamil claim tha
 
 In fact all our languages, whether Tamil or Bengali, Marathi or Punjabi are our national languages. All these languages and dialects are like so many flowers shedding the same rich fragrance of our national culture. The source of inspiration for all these has been the queen of languages, the language of gods-Sanskrit. By virtue of its richness and sacred association, it also can serve as the common medium of our national intercourse. Nor is it difficult to acquire a working knowledge of Sanskrit. Sanskrit is to this day one of the greatest cementing factors of our national life. But, unfortunately, it is not in common usage now, nor do our present rulers possess the moral pride and grit to bring it into vogue. 
 
-English or Hindi? 
+## English or Hindi? 
 
 There are some who desire that English should continue as the ‘lingua franca’ for all time to come. Language being a living medium of human intercourse, the foreign language English is bound to bring in its train English culture and English life-patterns also. And allowing foreign life-patterns to take root here would mean the undermining of our own culture and dharma. Centuries of foreign rule has failed to destroy our great nation only because we have preserved our cultural heritage through the media of our languages. Acceptance of English would mean sapping those mainsprings of our vitality. English was just an artificial imposition that accompanied the English domination and as such must be thrown off now that we have become free. To continue to give it the same status as it enjoyed during the foreign domination would be a sign of mental slavery and a blot on our national prestige in the eyes of the world. 
 
@@ -165,7 +170,7 @@ There is not a shadow of doubt that English is bound to go for two very solid re
 
 As a solution to the problem of ‘lingua franca, till the time sanskrit takes that place we shall have to give priority to Hindi on the score of convenience. Naturally we have to prefer that form of Hindi which like all other Bharitya languages, stem from Sanskrit and gets sustenance from Sanskrit for its future growth in all fields of modern knowledge like science and technology. It does not mean that Hindi is the only national language or that it is the oldest or richest of all our languages. In fact Tamil is a much richer and older language. But Hindi has come to be the spoken language of a large section of our people and is the easiest of all our languages for learning and speaking. If we go to Kashi or Prayag on the occasion of Kumbha or some other mela where people from far North, South, East and West flock to have a holy dip in the Ganga, the vast multitude manages to express itself only in Hindi, however crude it may be. 
 
-Long Live All Languages! 
+## Long Live All Languages! 
 
 We have therefore to take Hindi in the interest of national unity and self- respect and not allow ourselves to be swept off our feet by slogans like ‘Hindi imperialism’ or ‘domination of the North’, etc. In fact, Bengali, Marathi and Gujarati have made tremendous strides in spite of British rule. They have succeeded in producing such outstanding works as have drawn unstinted praise from the greatest men of letters the world over. No one would ever tolerate the idea of destroying our various beautiful languages, which have been so ably expressing the soul of our nation for the last so many centuries only to retain a single language. Any apprehensions of encroachment for dominance over other languages by Hindi are therefore pure fiction cooked up by interested politicians. 
 
@@ -173,17 +178,15 @@ In fact, with rise of Hindi, all our sister languages also will flourish. The en
 
 This is how language has become one more point of friction after the advent of Swaraj. The formation of linguistic states has given one more handle to politicians to work up linguistic chauvinism in the minds of people. It is very strange that even eminent men indulge in mud-slinging at other languages. A very eminent personality form the South once said in a public meeting that Hindi had but two great literary works-one, the Tulsi Ramayana and the other, Railway Time Table! To match this, a noted Marathi dramatist made one of his character say, "Southern language? Put some pebbles in a clay pot and shake it vigorously and you hear those languages!" No doubt, this was said out of fun, but such fissiparous fun and ignorant mocking will only make matters worse. 
 
-The Great Myth 
+## The Great Myth 
 
-Today so many other new points of dissension and disintegration are cropping up. The Aryan-Dravidian controversy, for example, is very recent and artificial. It is one of the 
-
-modern superstitions being assiduously built up by unscrupulous power-seeking persons. Whatever diversity of race we may have had in this country to begin with was obliterated long ago by time and processes of history. Two thousand years ago the country had been grouped under Pancha Gowda and Pancha Dravida, the South coming under the letter name. It was not a racial but only a territorial denomination. The people in the South were always considered to be as much 'Aryan' as those in the North. In our country the word 'Aryan' was always a sign of culture and not the name of a race. All through the puranic literature, wives address husbands as 'Arya'. Surely the wives were not anarya! 'Arya' simply conveyed 'a noble person'. We find Sri Krishna too using the word 'Arya' in the same sense in Bhagavad-Gita. When Arjuna's heart fails on the opening day of Kurukshetra war, Sri Krishna chides him for his anaryajustam i.e., ignoble attitude. 
+Today so many other new points of dissension and disintegration are cropping up. The Aryan-Dravidian controversy, for example, is very recent and artificial. It is one of the modern superstitions being assiduously built up by unscrupulous power-seeking persons. Whatever diversity of race we may have had in this country to begin with was obliterated long ago by time and processes of history. Two thousand years ago the country had been grouped under Pancha Gowda and Pancha Dravida, the South coming under the letter name. It was not a racial but only a territorial denomination. The people in the South were always considered to be as much 'Aryan' as those in the North. In our country the word 'Aryan' was always a sign of culture and not the name of a race. All through the puranic literature, wives address husbands as 'Arya'. Surely the wives were not anarya! 'Arya' simply conveyed 'a noble person'. We find Sri Krishna too using the word 'Arya' in the same sense in Bhagavad-Gita. When Arjuna's heart fails on the opening day of Kurukshetra war, Sri Krishna chides him for his anaryajustam i.e., ignoble attitude. 
 
 It is being made out today that the struggle between Rama and Ravana was the one between Arya and Dravida. How ludicrous! Ravana himself was a great Sanskrit scholar and a devotee of Shiva. He is even reported to have set Sama-veda to music. His father Vaishrava was a Brahmin and so was his grandfather, Pulastya. If anything, Ravana was oppressing the South and Rama only liberated the Southern people form his oppression! 
 
 And again, the Harsha-Pulakeshin struggle is sought to be made out as an attempt by the North to dominate the South and its successful rebuttal by the South. But Pulakeshin was not a Dravidian at all, much less a Tamilian! His kingdom was founded in Pratishthan- modern Paithan- on the banks of Godavari in Mahrashtra. In any case, the two kings came to terms and lived amicably. The North-South controversy is pure and simple power-politics got up by modern politicians who find the present climate extremely congenial for sowing seeds of all sorts of separation. 
 
-The Fresh "Inventions" 
+## The Fresh "Inventions" 
 
 We also find ever new denominations coming up in common usage-all connoting a fundamental disparity between one section of the people and the other. In the natural course of our national life, there are some who live in cities, mainly educated employees, industrial labourers and traders; some others, mainly agriculturists, live in villages and some have as yet remained in jungles and hills. But those forest-dwellers, the vanvasis, are now called adivasis, aboriginals, as if all others are upstarts and settlers coming here from somewhere outside! 
 
@@ -193,7 +196,7 @@ Let us not forget that it is the common folk in the villages who have been the r
 
 There is now a clamour for 'equality for women' and their 'emancipation from man's domination'! Reservation of seats in various positions of power is being claimed on the basis of their separate sex, thus adding one more 'ism'-'sexism!'- to the array of casteism, communalism, linguism, etc. 
 
-Realise the Grand Unity 
+## Realise the Grand Unity 
 
 Such is the picture of our people, past and present. The picture should naturally spur every son of this soil to revive once again the age-old spirit of identity in our people in all its pristine purity. The whole of our people should be reinstalled as the living God in our hearts. In fact, such a spirit of identity had been the one undying message of our ancient culture. The others stopped at saying 'Fatherhood of God' and 'brotherhood of man.' We travelled far ahead and realised the identity permeating all things right from Brahma down to inert matter. 
 
@@ -201,29 +204,30 @@ Let us therefore revive that pure spirit of oneness born out of the realisation 
 
 Once the life-stream of unity begins to flow freely in all the veins of our body-politic, the various limbs of our national life will automatically begin to function actively and harmoniously for the welfare of the nation as a whole. Such a living and growing society will preserve out of its multitude of old systems and pattern whatever is essential for and conducive to its progressive march and throw off those which have outlived their utility and evolve new ones in their place. No one need shed tears at the passing of the old order nor shirk to welcome the new order of things. That is in the nature of all living and growing organisms. As a tree grows, ripe leaves and dry twigs fall off making way for fresh growth. The main point to bear in mind is to see that the life-sap of oneness permeates all parts of our social set-up. Every system or pattern will live or change or even entirely disappear according as it nourishes that life-sap or not. Hence, it is useless in the present social context to discuss about the future of all such systems. The supreme call of the times is to revive the spirit of inherent oneness and the awareness of its life- purpose in our society. All other things will take care of themselves. 
 
-A Duty by Birth 
+## A Duty by Birth 
 
 Let us all remember that this oneness is ingrained in our blood from our very birth, because we are all born as Hindus. Some wise men of today tell us that no man is born as Hindu or Muslim or Christian but as a simple human being. This may be true of others. But for a Hindu, he gets the smaskar when he enters the mother's womb, and the last when his body is consigned to the flames. There are sixteen smaskars for the Hindu, which make him what he is. We are Hindus even before we emerge form the womb of our mother. We are therefore born as Hindus. About the others, they are born to this world as simple unnamed human beings and later on, either circumcised or baptised, they become Muslims or Christians. 
 
 Therefore, to strengthen the unity and spirit of identity in our society is a duty born with our birth, our sahaja karma. And that which is our sahaja karma must not be given up even if it may appear to be defective. 
 
-Lkgta deZ dkSUrs; lnks"kefi u R;tsrÃ 
+सहजं कर्म कौन्तेय सदोषमपि न त्यजेत् ।
 
 says the Gita. It is therefore our pre-eminent duty to see that the present differences and dissensions eating into our vitals are removed and our society moulded once again into a unified and harmonious whole. 
 
 We have also to remember that all other persuasions like politics etc., come later in life as we grow. Political parties come and pass away. Even today several parties are ranging one against another and who knows, the party at the zenith of popularity and power today may go down tomorrow and another may come up in its place. The political parties are by nature transitory. But society is eternal, immortal. So many kings and dynasties, so many of administration, so many political and economic systems have come and gone during the last thousands of years. But we as people bound together by ties of blood and history, remain one and whole. Therefore, we have to discriminate between what is permanent and what is transient and stick to that which is permanent and if the transient comes in the way of the permanent, it has to be given up. 
 
-; ̈ /kzqzokf.k ifjR;T; v/kqzoa ifj"ksorsA /kzqzokf.k rL; u';afr v/kqzoa u"Veso fgAA 
+यो ध्रुवाणि परित्यज्य अध्रुवाणि निषेवते। ध्रुवाणि तस्य नश्यन्ति अध्रुवाणि नष्टमेव हि॥
 
 (He who gives up the permanent in pursuance of the transient loses the permanent; nor does the transient remain with him.) Dhruvam (permanent) is society and politics is adhruvam (transient). If in the rave for politics we give up society and destroy its inherent unity we will have gone against our fundamental duty. 
 
-Call of Real Devotion 
+## Call of Real Devotion 
 
 Hindu society, whole and integrated, should forever be the single point of devotion for all of us. No other consideration whether of caste, sect, language, province or party should be allowed to come in the way of that single-minded devotion. That is the criterion for 
 
 real devotion. There is a notable episode in the life of Mira. When she was obstructed in her devotion to Sri Krishna by her own relatives, she wrote to Goswami Tulsidas seeking his advice. He replied in the form of a beautiful poem, which appears in the Vinaya Patrika wherein he has said: 
 
-Tkkds fiz; u jke oSnsfg Rft;s rkfg dksfV oSfj le ;|fi ije lusfgA 
+जाके प्रिय न राम वैदेहि  
+जिये ताहि कोटि वैरि सम यद्यपि परम सनेहि।
 
 That means, those who do not love Rama, i.e., the object of devotion, and who come as an obstacle must be considered as ten million times an enemy, though they may be extremely near and dear to us. Then he has given the examples where the mother, father and all others were given up for sake of the realisation of one's object of devotion. Therefore, in the devotion to our Living God, the Hindu society, the various disruptive passions ruling our minds today have to be given up, as they come in the way of our discharging the essential and foremost duty of upholding and strenghtening the inherent unity of our people. 
 
