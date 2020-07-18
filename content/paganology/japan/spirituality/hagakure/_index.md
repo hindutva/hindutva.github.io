@@ -15,7 +15,7 @@ Yamamoto Tsunetomo
 - 2 It is said that 52
 - 3 Lord Naoshige once said 77
 - 4 When Nabeshima Tadanao 79
-- 5 No text 82
+- 5 No text 82 (No text exists for this Chapter!)
 - 6 When Lord Takanobu 83
 - 7 Narutomi Hyogo said 90
 - 8 On the night of the thirteenth day 104
