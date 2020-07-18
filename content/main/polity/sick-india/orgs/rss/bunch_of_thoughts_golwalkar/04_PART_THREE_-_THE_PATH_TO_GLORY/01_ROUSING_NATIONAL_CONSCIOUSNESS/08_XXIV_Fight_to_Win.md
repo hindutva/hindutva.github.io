@@ -103,7 +103,7 @@ However, one fact has been ignored. Sychronising with the aggression of the Chin
 
 of the volcanic menace that is simmering underneath the apparently calm surface of the present Chinese cease-fire. 
 
-The Green Danger 
+## The Green Danger 
 
 The other danger spot in our internal set-up is the powerful Pakistani fifth column entrenched in strategic points all over the country. Various types of lethal weapons are being distributed among the Muslims in the border areas. Probably, they feel that this is a golden opportunity for them to revolt, to bring our leaders to their knees and force them to part with another chunk of land as before. As a matter of fact, when the Chinese overran post after post in NEFA area, the Pakistani elements all over the country were jubilant. They used to exclaim, "You are well served"! They are especially emboldened because of the recent unholy Pak-China alliance. When the people and even the Government officers were vacating Tejpur and other areas, the Muslims alone stayed there saying that a secret understanding had been reached between China and Pakistan to partition Assam between themselves-the northern portion going to China and the southern portion to Pakistan - and that therefore they were safe. They were fully roused to the frenzy of 1946-47. They raised slogans of 'Pakistan Zindabad', and 
 
