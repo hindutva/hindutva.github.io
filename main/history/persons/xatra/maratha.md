@@ -70,3 +70,14 @@ title: Maratha age
   - Fights: "Dada Rane first mounted an assault against Bardez and looted the Tivim Church where all the hoarded treasures of Hindus accumulated by the Portuguese came into their hands and with this they swiftly struck next at Mapusa. The garrison surrendered as the Mayor was attacked and the entire Municipal Treasury fell into the hands of the rebels. Moving on, they invaded Colvale and broke open the Community Safe. The impact of Dada Rane's ferocity was such that some of the local merchants, landlords and others fled to British India. ... To support them, a reinforcement fleet was deployed from Portugal itself led by their own Prince Alfonso Henriques. With their bolstered numbers and morale, the Portuguese Prince and the Governor-General attacked Dada Rane together. Despite this, the revolt was further intensified and the Portuguese had to end up inviting Dada’s spiritual guru, Shankaracharya of Sankeshwar, who requested Dada to conclude the mutiny peacefully!"
   - End: "They were sentenced guilty and in 1902, he was sentenced to exile in Timor in the Pacific ocean, where he and his son, Indroji, died in the course of time."
 
+## Sources
+- jeDhe shAkAvalI [here](https://archive.org/details/ShivajiSouvenir).
+  - English dates in the shAkAvalI are Julian
+- Uday S Kulkarni book
+  - @MulaMutha actually does mention that all dates used in the book pre 1752 are given as is in "Old Style". (No conversion applied)
+- Shivaji and his times by jadunath sarkar [here](https://archive.org/stream/shivajihistimes00sarkrich#page/n7/mode/2up)
+- English records
+  - Adapted Gregorian in 1752
+- New History Of The Marathas Vol.1 [here](https://archive.org/details/in.ernet.dli.2015.32141)
+- New History Of The Marathas Vol.2	[here](https://archive.org/stream/in.ernet.dli.2015.32142/2015.32142.New-History-Of-The-Marathas-Vol2#page/n13/mode/2up/search/calendar)
+- Marathas and Panipat [here](https://archive.org/stream/in.ernet.dli.2015.530358/2015.530358.marathas-and#page/n249/mode/2up)
