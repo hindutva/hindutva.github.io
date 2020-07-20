@@ -66,5 +66,4 @@ One **should admit** that the study of history involves explaining relatively sp
 ### Drawing lessons
 
 - Hindu approaches in the itihAsa-s, purANa-s and kAvya-s was to digest the most important lessons in a form that is pleasing (eg. context of a drama or story), abstracted away (with supernatural elements, fictional characters) and dramatized (to enhance contrast between positive and negative decisions.)  
-    
-- Periodic reminders are useful: [This day in hindu history](https://docs.google.com/spreadsheets/d/1o7QW1xvvhiZCISiEItOtqnenZ_FerNN6EUsO4Qov998/edit#gid=0).
+- Periodic reminders are useful: [This day in hindu history](event_record/).
