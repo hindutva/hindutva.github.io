@@ -4,14 +4,31 @@ title: Commies
 
 ## Traits
 - For traits common with other Abe 0-theist maturations, see [main page](../).
-- Egalitarianism, anti-elitism, opposition to heredity influence (even in descriptive scientific research on phenotypes important in social functions).
+- Egalitarianism, anti-elitism, opposition to heredity influence (even in descriptive scientific research on phenotypes important in social functions). 
+- Focus on "grievance studies".
+- Oppisition to "both the traditional elite & the real science which can easily call out their imperial nakedness".
+
+### Strains
 - In the old hard strain - Dictatorship of the proletariat. Examples: Soviet state. Khmer Rouge. Naxals.
-- In newer strains - Mixutre with econolatory (see [main page](../) for intro). 
+- In newer strains - Mixture with econolatory (see [main page](../) for intro). 
   - Examples: SJW-s of Soros who participated in 2020 US Race riots and more. Venus project. Urban naxals of India.
 
+## Transmission structures
+- Like u2 it needs a church-nurse (\~ university) and assorted कुटिल-लम्पट-दुष्टाः are playing this role.
+
+### Pseudo elite production
+- Via [MT20](https://twitter.com/blog_supplement/status/1285443764333551621). There is an over production of vast body of degree-holders in James Lindsay& co's "grievance studies". This does smack of the creation of legions of cargo-cult elite who have turned against both the traditional elite & the real science which can easily call out their imperial nakedness. ...  the "possession" of these pseudo-elites is by a 0-grade Abrahamistic religion.
+
+### Expansion strategy
+- Via [MT20](https://twitter.com/blog_supplement/status/1285443764333551621). Now that religion has similar infectivity as its predecessors & is champing at the bit to break into previously virgin territory like H society, where this type of elite overproduction was not an issue. What its pathogenesis triggers is a production of these fake, pathological "elites" in the host society that it invades, like H in India. We are already seeing that in various educational institutions of India, especially like the recently established Ashoka, with arborizations into traditionally scientific institutes.
+- Once such production is established in a host society then it can trigger the same "eruptive" phase of the pathology in that society. With tentacles already reaching down to "catch 'em young" this pathology can rapidly become intergenerational. 
+
 ## History
-- "the old strain was very much dependent on the Soviet continuation of the old Rus empire. Once that fell, it was like a chariot that had lost a wheel." - [MT](https://manasataramgini.wordpress.com/2020/06/08/pandemic-days-the-fizz-is-out-of-the-bottle/)
+### Early eastern incubation and development of resistance.
+- "the old strain was very much dependent on the Soviet continuation of the old Rus empire. Once that fell, it was like a chariot that had lost a wheel." - [MT](https://manasataramgini.wordpress.com/2020/06/08/pandemic-days-the-fizz-is-out-of-the-bottle/) ... "The survivors of the fragment of Hun khangnate have realized it."
 - "While it briefly infected the Cīna-s, what people do not get is that it was domesticated to the ultimate advantage of the Cīna-s as it encountered an even more potent endogenous coopter in the form Wei Yang Lord Shang’s legalism. Thus, the old strain was mostly a failure."
+
+### Outbreaks in western academia 
 - "However, a lineage of it survived in mleccha academia where it was incubated in the Ivy League soft departments and their more pedestrian arborizations as a local disease, much like a virus jumping from animal to animal in a Cīna “wet-market”." - [MT](https://manasataramgini.wordpress.com/2020/06/08/pandemic-days-the-fizz-is-out-of-the-bottle/)
 - "Like SARS-1 it has had localized outbreaks and was mostly used a weapon by mleccha-s against others like the Hindus — e.g. to reinvigorate the Naxals in the form of their urban variant (“the urban Naxals” as a Bollywood producer terms it). " - [MT](https://manasataramgini.wordpress.com/2020/06/08/pandemic-days-the-fizz-is-out-of-the-bottle/)
 - "Its local outbreaks were mostly seen in the mleccha academia and news media. A few years ago we heard of a left-leaning professor couple being forced out of a mleccha liberal arts college by a particularly sustained outbreak of this disease. Some other, otherwise rather neutral and harmless, mleccha physicians/professors were also seriously targeted but being part of the Ivy elite themselves they suffered little from the attacks. Similarly, there was a mlecchikā who used to originally think of the rākṣasonmāda as a great blessing on humanity. "
