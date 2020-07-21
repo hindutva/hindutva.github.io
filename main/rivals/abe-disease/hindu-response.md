@@ -57,4 +57,4 @@ From [Heid1998](https://journals.ub.uni-heidelberg.de/index.php/jiabs/article/vi
 ## Solidarity with other pagans/ polytheists.
 
 - During the Yazidi massacre: Ravishankar gave aid.
-- Assistance to Heraka of Nagaland : [see here](https://agnimaan.wordpress.com/2015/07/04/hindu-influence-on-the-heraka-zeme-of-nagaland/).
+- Assistance to Heraka of Nagaland : [see here](../../../../paganology/para-hindus/zeme-heraka/).
