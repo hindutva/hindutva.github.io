@@ -9,8 +9,8 @@ title: Commies
 - Oppisition to "both the traditional elite & the real science which can easily call out their imperial nakedness".
 
 ### Strains
-- In the old hard strain - Dictatorship of the proletariat. Examples: Soviet state. Khmer Rouge. Naxals.
-- In newer strains - Mixture with econolatory (see [main page](../) for intro). 
+- In the old hard strain (ur1) - Dictatorship of the proletariat. Examples: Soviet state. Khmer Rouge. Naxals.
+- In newer strains (ur2) - Mixture with econolatory (see [main page](../) for intro). 
   - Examples: SJW-s of Soros who participated in 2020 US Race riots and more. Venus project. Urban naxals of India.
 
 ## Transmission structures
