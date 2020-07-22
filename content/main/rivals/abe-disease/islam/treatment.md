@@ -14,6 +14,18 @@ RoP is a memetic (ie mental) disease of epidemic proportions. It CANNOT coexist 
 - "Thus, any campaign with marūnmāda is not finished with the killing of this or that marūnmatta. Certainly, their prominent leaders need to be constantly targeted and comprehensively eliminated. But this in itself gets one nowhere closer to victory. Instead any group which wishes to survive marūnmāda needs to prepare itself for an arms-race on an evolutionary scale, like the ceaseless war between bacteria and their viruses which has been going on for more than three billion years." \[[MT16](https://manasataramgini.wordpress.com/2016/07/09/a-geopolitical-package-july-2016/)\]
 - NN Taleb on how to deal with such - [NNT16](https://twitter.com/nntaleb/status/776691991887347713) [NNT16](http://i.imgur.com/t0fFA6d.jpg). You should not look for mitigation, rather focus on eradication.
 
+### Historical Hindu response
+
+- See [here](../../abe-disease/).
+
+### Thoughts elsewhere
+- Koenraad's recommendations [here](http://koenraadelst.blogspot.com/2014/12/the-gentle-cure-for-intolerance.html).
+
+### General Examples
+- See [sphulinga/u3down](https://sphulinga.wordpress.com/category/twitter/u3down/) stream
+- Related streams: [#u3down](https://twitter.com/search?q=%23u3down&f=live)
+
+
 ## Support apostasy among muslims.
 - [Ex muslims of North America](http://www.exmna.org/). UK.
 - The emotional and physical challenges to being an Ex-Muslim, especially woman - [YT15](https://www.youtube.com/watch?v=aW7wRfuSw0A).
@@ -66,16 +78,4 @@ RoP is a memetic (ie mental) disease of epidemic proportions. It CANNOT coexist 
 
 - "Biggest defeats of sullas were 1) Mongols 2) Spanish 3) Qing (80% of sullas in empire died when curbing Dungan, Panthay etc)." \[[TW](https://twitter.com/search?src=typd&q=from%3Arjrasva%20dungan)\]
 - Hindu military response see [here](../../../../polity/external-affairs/defence/).
-
-## Historical Hindu response
-
-- See [here](../../abe-disease/).
-
-## Thoughts elsewhere
-- Koenraad's recommendations [here](http://koenraadelst.blogspot.com/2014/12/the-gentle-cure-for-intolerance.html).
-
-## General Examples
-- See [sphulinga/u3down](https://sphulinga.wordpress.com/category/twitter/u3down/) stream
-- Related streams: [#u3down](https://twitter.com/search?q=%23u3down&f=live)
-
 
