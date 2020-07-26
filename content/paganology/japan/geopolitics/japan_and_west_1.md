@@ -3,7 +3,7 @@ title = "Japan and West 1"
 +++
 
 ## Source
-Japan - Her first dalliance with West, by Rjrasva and Ravi
+Japan - Her first dalliance with West, by [Rjrasva](https://twitter.com/Rjrasva) and Ravi
 
 ## Foreword
 
