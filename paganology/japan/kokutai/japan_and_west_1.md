@@ -1,5 +1,5 @@
 +++
-title = "Japan and West 1"
+title = "Japan vs Christians"
 +++
 
 ## Source
