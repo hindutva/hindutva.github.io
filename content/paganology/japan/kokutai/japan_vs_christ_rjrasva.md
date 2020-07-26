@@ -1,5 +1,5 @@
 +++
-title = "Japan vs Christians"
+title = "Japan vs Christ"
 +++
 
 ## Source
