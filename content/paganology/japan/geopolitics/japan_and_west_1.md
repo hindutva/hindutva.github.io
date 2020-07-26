@@ -285,20 +285,14 @@ White, Trumbull (2011). The War in the East: Japan, China and Corea. New Delhi: 
 
 ## Notes
 
-[^1]:
->      [http://www.newadvent.org/cathen/06233b.htm](http://www.newadvent.org/cathen/06233b.htm) (accessed on 13th Feb 2016)
+[^1]: [http://www.newadvent.org/cathen/06233b.htm](http://www.newadvent.org/cathen/06233b.htm) (accessed on 13th Feb 2016)
 
-[^2]:
->      [http://www.samuelhawley.com/imjinarticle3.html](http://www.samuelhawley.com/imjinarticle3.html) (accessed on 13th Feb 2016)
+[^2]: [http://www.samuelhawley.com/imjinarticle3.html](http://www.samuelhawley.com/imjinarticle3.html) (accessed on 13th Feb 2016)
 
-[^3]:
->      [http://indiatoday.intoday.in/story/women-in-agra-village-lured-into-christianity-while-husbands-stay-hindus/1/408317.html](http://indiatoday.intoday.in/story/women-in-agra-village-lured-into-christianity-while-husbands-stay-hindus/1/408317.html) (accessed on 20th Feb 2016)
+[^3]: [http://indiatoday.intoday.in/story/women-in-agra-village-lured-into-christianity-while-husbands-stay-hindus/1/408317.html](http://indiatoday.intoday.in/story/women-in-agra-village-lured-into-christianity-while-husbands-stay-hindus/1/408317.html) (accessed on 20th Feb 2016)
 
-[^4]:
->      [https://vajrin.wordpress.com/2014/04/18/how-japan-dealt-with-the-christian-threat/](https://vajrin.wordpress.com/2014/04/18/how-japan-dealt-with-the-christian-threat/) (accessed on 21<sup>st</sup> Feb 2016)
+[^4]: [https://vajrin.wordpress.com/2014/04/18/how-japan-dealt-with-the-christian-threat/](https://vajrin.wordpress.com/2014/04/18/how-japan-dealt-with-the-christian-threat/) (accessed on 21<sup>st</sup> Feb 2016)
 
-[^5]:
->      [http://www.patheos.com/blogs/anxiousbench/2014/02/destroying-japanese-christianity/?repeat=w3tc](http://www.patheos.com/blogs/anxiousbench/2014/02/destroying-japanese-christianity/?repeat=w3tc) (accessed on 21<sup>st</sup> Feb 2016)
+[^5]: [http://www.patheos.com/blogs/anxiousbench/2014/02/destroying-japanese-christianity/?repeat=w3tc](http://www.patheos.com/blogs/anxiousbench/2014/02/destroying-japanese-christianity/?repeat=w3tc) (accessed on 21<sup>st</sup> Feb 2016)
 
-[^6]:
->      [http://www.patheos.com/blogs/anxiousbench/2014/02/denying-the-faith/?repeat=w3tc](http://www.patheos.com/blogs/anxiousbench/2014/02/denying-the-faith/?repeat=w3tc) (accessed on 21<sup>st</sup> Feb 2016)
+[^6]: [http://www.patheos.com/blogs/anxiousbench/2014/02/denying-the-faith/?repeat=w3tc](http://www.patheos.com/blogs/anxiousbench/2014/02/denying-the-faith/?repeat=w3tc) (accessed on 21<sup>st</sup> Feb 2016)
