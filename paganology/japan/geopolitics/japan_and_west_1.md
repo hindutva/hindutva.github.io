@@ -64,19 +64,19 @@ Finally after careful consideration, Hideyoshi decided to expel the missionaries
 > _Decree 1: Limitation on Propagation of Christianity_
 
 
-> _1. Whether one desires to become a follower of the padre is up to that person's own conscience. _
+> _1. Whether one desires to become a follower of the padre is up to that person's own conscience._
 
 
-> _2. If one receives a province, a district, or a village as his fief, and forces farmers in his domain who are properly registered under certain temples to become followers of the padre against their wishes, then he has committed a most unreasonable illegal act. _
+> _2. If one receives a province, a district, or a village as his fief, and forces farmers in his domain who are properly registered under certain temples to become followers of the padre against their wishes, then he has committed a most unreasonable illegal act._
 
 
-> _3. When a vassal (kyunin)receives a grant of a province or a district, he must consider it as a property entrusted to him on a temporary basis. A vassal may be moved from one place to another, but farmers remain in the same place. Thus if an unreasonable illegal act is committed [as described above], the vassal will be called upon to account for his culpable offense. The intent of this provision must be observed. _
+> _3. When a vassal (kyunin)receives a grant of a province or a district, he must consider it as a property entrusted to him on a temporary basis. A vassal may be moved from one place to another, but farmers remain in the same place. Thus if an unreasonable illegal act is committed [as described above], the vassal will be called upon to account for his culpable offense. The intent of this provision must be observed._
 
 
-> _4. Anyone whose fief is over 200 cho and who can expect two to three thousand kan of rice harvest each year must receive permission from the authorities before becoming a follower of the padre. _
+> _4. Anyone whose fief is over 200 cho and who can expect two to three thousand kan of rice harvest each year must receive permission from the authorities before becoming a follower of the padre._
 
 
-> _5. Persons holding fiefs smaller than the aforementioned: It being a question of the Eight Sects or Nine Sects, each head of the house may decide individually as he pleases. (Note: These are sects of Buddhism – nothing to do with Christianity) _
+> _5. Persons holding fiefs smaller than the aforementioned: It being a question of the Eight Sects or Nine Sects, each head of the house may decide individually as he pleases. (Note: These are sects of Buddhism – nothing to do with Christianity)_
 
 
 > _6. The sectarians of Bateren, it has come to His Highness’ attention, are even more given to conjurations with outsiders than the Single Minded sect. The Single-Minded sect established temple precincts in the provinces and districts and did not pay the yearly dues to the enfeoffed recipients. Moreover, it converted the entire province of Kaga into its own sectarians; chased out Togashi, the lord of the province;  turned over the fiefs to priests of the Single-Minded sect; and beyond that, even took over the province of Echizen. Everyone knows that this was harmful to the realm._
@@ -88,13 +88,13 @@ Finally after careful consideration, Hideyoshi decided to expel the missionaries
 > _8. If a daimyo who has a fief over a province, a district, or a village, forces his retainers to become followers of the padre, he is committing a crime worse than the followers of Honganji who assembled in their temple [to engage in the Ikko riot]. This will have an adverse effect on [the welfare of] the nation. Anyone who cannot use good judgment in this matter will be punished._
 
 
-> _9. Those among the common people who freely choose to become sectarians of the Bateren may do so, it being a question of the Eight Sects or Nine Sects. _
+> _9. Those among the common people who freely choose to become sectarians of the Bateren may do so, it being a question of the Eight Sects or Nine Sects._
 
 
 > _10. It is illegal to sell Japanese people to China, to the South Seas, or to Korea [as slaves]. Henceforth, sale of persons in Japan is forbidden. [Note: Compare it with abolition of slave trade by Chhatrapati Shivaji]_
 
 
-> _11. To buy or sell cattle and horses for slaughter and consumption shall also be considered miscreant. _
+> _11. To buy or sell cattle and horses for slaughter and consumption shall also be considered miscreant._
 
 
 > _The above shall be strictly prohibited. Any transgressor shall swiftly be brought to justice for his offense._
@@ -189,22 +189,22 @@ To be noted that even during these trying times, Portuguese printed Christian te
 An Edict was promulgated in 1635 to the Joint Bugyo of Nagasaki to ordering closure of Japan (wherein Japanese were prevented from travelling abroad) and strict surveillance to ensure there was no spreading of Christianity (Lu 1997: 221):
 
 
-> _1. Japanese ships are strictly forbidden to leave for foreign countries. _
+> _1. Japanese ships are strictly forbidden to leave for foreign countries._
 
 
 > _2. No Japanese is permitted to go abroad. If there is anyone who attempts to do so secretly, he must be executed. The ship so involved must be impounded and its owner arrested, and the matter must be reported to the higher authority._
 
 
-> _3.  If any Japanese returns from overseas after residing there, he must be put to death. _
+> _3.  If any Japanese returns from overseas after residing there, he must be put to death._
 
 
-> _4. If there is any place where the teachings of padres (Christianity) is practiced, the two of you must order a thorough investigation. _
+> _4. If there is any place where the teachings of padres (Christianity) is practiced, the two of you must order a thorough investigation._
 
 
-> _5. Any informer revealing the whereabouts of the followers of padres (Christians) must be rewarded accordingly. If anyone reveals the whereabouts of a high ranking padre, he must be given one hundred pieces of silver. For those of lower ranks, depending on the deed, the reward must be set accordingly. _
+> _5. Any informer revealing the whereabouts of the followers of padres (Christians) must be rewarded accordingly. If anyone reveals the whereabouts of a high ranking padre, he must be given one hundred pieces of silver. For those of lower ranks, depending on the deed, the reward must be set accordingly._
 
 
-> _6. If a foreign ship has an objection [to the measures adopted] and it becomes necessary to report the matter to Edo, you may ask the Omura domain to provide ships to guard the foreign ship, as was done previously. _
+> _6. If a foreign ship has an objection [to the measures adopted] and it becomes necessary to report the matter to Edo, you may ask the Omura domain to provide ships to guard the foreign ship, as was done previously._
 
 
 > _7. If there are any Southern Barbarians (Westerners) who propagate the teachings of padres, or otherwise commit crimes, they may be incarcerated in the prison maintained by the Omura domain, as was done previously._
@@ -212,13 +212,13 @@ An Edict was promulgated in 1635 to the Joint Bugyo of Nagasaki to ordering clos
 Japanese were soon forced to take cognizance of the fact that Portuguese were smuggling missionaries (and literature) to Japan to propagate the Christian religion. Thus, an edict was issued in 1639 stating the following (Lu 1997: 222):
 
 
-> _1. The matter relating to the proscription of Christianity is known [to the Portuguese], however, heretofore they have secretly transported those who are going to propagate that religion. _
+> _1. The matter relating to the proscription of Christianity is known [to the Portuguese], however, heretofore they have secretly transported those who are going to propagate that religion._
 
 
-> _2. If those who believe in that religion band together in an attempt to do evil things, they must be subjected to punishment. _
+> _2. If those who believe in that religion band together in an attempt to do evil things, they must be subjected to punishment._
 
 
-> _3. While those who believe in the preaching of padres are in hiding, there are incidents in which that country (Portugal) has sent gifts to them for their sustenance. _
+> _3. While those who believe in the preaching of padres are in hiding, there are incidents in which that country (Portugal) has sent gifts to them for their sustenance._
 
 
 > _In view of the above, hereafter entry by the Portuguese galeota is forbidden. If they insist on coming [to Japan], the ships must be destroyed and anyone aboard those ships must be beheaded. We have received the above order and are thus transmitting it to you accordingly_
