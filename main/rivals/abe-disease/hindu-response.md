@@ -34,16 +34,28 @@ In classical Indian literature "the Muslims, who were not only present in India 
 From [Heid1998](https://journals.ub.uni-heidelberg.de/index.php/jiabs/article/viewFile/8878/2785): In Sanskrit literature the Kalacakra tantra is unique in presenting a fairly comprehensive and quite accurate portrayal of Islamic beliefs and practices. \[[WP](https://agnimaan.wordpress.com/2015/06/08/portrayal-of-muslims-in-kalachakra-tantra/)\]
 
 ## Heathenizing Abrahamists
-- Recovery of Mansur.
-    - Mansur was the son of a first gen Zoroastrian convert to Islam. At Gujarat where his unconverted relatives had fled, he was trained in haTha Yoga by nAthas.
-    - Mansur was accused of leaving Islam. Mansur didn't deny the charge but kept saying "An al Haq" (I am truth) even as he was executed by the Caliph.
-    - while contemporary Sufis denounced Mansur, later Sufis accepted him.
-- There was some extra-military response to Islam during muslim reign \[[MT](http://manasataramgini.wordpress.com/2014/02/04/some-notes-on-the-extra-military-aspects-of-the-islamo-hindu-confrontation/)\], involving conversion of muslims, apostacies of Akbar and Dara Shukoh etc..
-    - Apostasy of Akbar: [MT](http://manasataramgini.wordpress.com/2014/02/04/some-notes-on-the-extra-military-aspects-of-the-islamo-hindu-confrontation/) and [B](http://bharatendu.com/2009/07/06/akbar-transition-5/).
+### Famous cases
+#### Akbar
+- There was some extra-military response to Islam during muslim reign \[[MT](http://manasataramgini.wordpress.com/2014/02/04/some-notes-on-the-extra-military-aspects-of-the-islamo-hindu-confrontation/)\], involving conversion of muslims, apostacy of Akbar; reducing virulence of Islam in Dara Shukoh etc..
+- Apostasy of Akbar: [MT](http://manasataramgini.wordpress.com/2014/02/04/some-notes-on-the-extra-military-aspects-of-the-islamo-hindu-confrontation/) and [B](http://bharatendu.com/2009/07/06/akbar-transition-5/).
+
+#### Recovery of Mansur Al Hallaj
+- Mansur was the son of a first gen Zoroastrian convert to Islam. At Gujarat where his unconverted relatives had fled, he was trained in haTha Yoga by nAthas.
+- Mansur was accused of leaving Islam. Mansur didn't deny the charge but kept saying "An al Haq" (I am truth) even as he was executed by the Caliph.
+- while contemporary Sufis denounced Mansur, later Sufis accepted him.
+
+### General reconversion
 - Tuglaq times: " brAhmaNa of Delhi had constructed a wooden seal on which were engraved the pictures of Hindu deities. Large numbers of Hindus resorted to his house to worship the seal. He had also converted Moslem women to the Hindu polytheism." [MT](http://manasataramgini.wordpress.com/2014/02/04/some-notes-on-the-extra-military-aspects-of-the-islamo-hindu-confrontation/)
-- mahArAShTra: "In mahArAShTra the influencing and conversion of Moslems by Hindu religious figure is recorded into the 1600s of CE – e.g. an enigmatic female shaiva teacher who was active in this regard in the Adilshahi territory of the 1600s. In south India we hear of the great bhAskararAya makhIndra converting a Turkic woman to the Hindu fold in the 1700s. " \[[MT](http://manasataramgini.wordpress.com/2014/02/04/some-notes-on-the-extra-military-aspects-of-the-islamo-hindu-confrontation/)\]
-- vanga-desha
-    - maa bonbibi (= mulsimified forest deity vanadevI durgA) of the sundarban-s [IFC15](http://infochangeindia.org/environment/features/maa-bonbibi-in-the-land-of-tigers.html).
+
+#### Kashmir
+- "In the sixth year of his reign when Shāh Jahān was returning from Kashmir through Jammu, he discovered, as Jahāngir had discovered before him, that the Hindus of Bhadauri and Bhimbar accepted daughters of Muslim parents and converted them to their own faith. These women were cremated at their death according to Hindu rites. Jahāngir had tried to stop this practice but to no avail. Shāh Jahān not only issued orders making such marriages unlawful henceforward, but ordered that these converted Muslim girls be taken away from their husbands, who in turn were to be fined. They could escape the fine if they accepted Islam. So widespread was this practice of converting Muslim girls to Hinduism that these orders discovered more than 4,000 such women."
+- Bogus malicious myth: "after Sikh conquest of Kashmir, Hari Singh Nalwa wanted to convert Muslims back to Hinduism ( & not Sikhism!). Muslims were ready to convert but "evil" Kashmiri Pandits refused!"
+
+#### mahArAShTra
+"In mahArAShTra the influencing and conversion of Moslems by Hindu religious figure is recorded into the 1600s of CE – e.g. an enigmatic female shaiva teacher who was active in this regard in the Adilshahi territory of the 1600s. In south India we hear of the great bhAskararAya makhIndra converting a Turkic woman to the Hindu fold in the 1700s. " \[[MT](http://manasataramgini.wordpress.com/2014/02/04/some-notes-on-the-extra-military-aspects-of-the-islamo-hindu-confrontation/)\]
+
+#### vanga-desha
+- maa bonbibi (= mulsimified forest deity vanadevI durgA) of the sundarban-s [IFC15](http://infochangeindia.org/environment/features/maa-bonbibi-in-the-land-of-tigers.html).
 
 
 
