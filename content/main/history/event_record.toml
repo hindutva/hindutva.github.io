@@ -1736,6 +1736,14 @@ Citation = ''
 "Other notes" = ''
 
 [[data]]
+"Index Day Gregorian" = '2016-07-23'
+"Gregorian date" = '1856-07-23'
+tithi = 'AshADha k1'
+Incident = ''' lokamAnya bhAlagangAdhara Tilak born.'''
+Citation = ''
+"Other notes" = ''
+
+[[data]]
 "Index Day Gregorian" = '2016-07-24'
 "Gregorian date" = ''
 tithi = ''
@@ -1801,9 +1809,9 @@ Citation = ''
 
 [[data]]
 "Index Day Gregorian" = '2016-08-01'
-"Gregorian date" = ''
+"Gregorian date" = '1920-08-01'
 tithi = ''
-Incident = ''
+Incident = 'LokamAnya Tilak died at age 64.'
 Citation = ''
 "Other notes" = ''
 
