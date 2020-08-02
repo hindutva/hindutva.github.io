@@ -13,5 +13,9 @@ disablePathToLower = true
   background_color_class = "bg-light-red"
   body_classes = "bg-washed-yellow"
 
+[outputs]
+  home = ["HTML", "RSS", "JSON", "CSV"]
+  section = ["HTML", "RSS", "JSON"]
+
 [markup.goldmark.renderer]
   unsafe= true
