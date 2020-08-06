@@ -8,7 +8,7 @@ title: Judaism यहूदोन्मादः
   - Mishnah, a written compendium of Rabbinic Judaism's Oral Torah
   -  Gemara (circa year 500 CE), an elucidation 
 
-## Anti-polytheist philosophy and practice
+## Anti-polytheist philosophy
 - Noah's rules: "Non-Jews do not have to become Jews to become righteous. They only have to embrace the Seven Laws of Noah. According to Torah tradition, God gave Noah and his family seven commandments to observe when he saved them from the flood. These commandments, referred to as the Noachide Commandments or Laws, are learned by tradition but also suggested in Genesis Chapter 9, and are as follows: 1. Not to commit idolatry; 2. Not to commit blasphemy; ... 7. To establish courts of justice to punish violators of the other six laws..." ([YT](https://www.youtube.com/watch?v=5O1ve4Hs4Po))
 - More about fanatic intolerant Judaic acts against European polytheism [here](../../../../paganology/europe/).  
 - Anti-polytheist actions are specified in Avodah Zarah which clearly specifies efficient idol desecration instructions - "cut off the tip of ear or nose or finger, or batter it".
@@ -35,6 +35,10 @@ title: Judaism यहूदोन्मादः
 - The Kitos War (115–117) before being crushed by Quietus (Kitos): widespread slaughter of left-behind Roman garrisons and Roman citizens by Jewish rebels. In Cyrenaica (Libia), the rebels were led by one Lukuas or Andreas. His group destroyed many temples, including those to Hecate, Jupiter, Apollo, Artemis, and Isis, as well as the civil structures that were symbols of Rome, including the Caesareum, the basilica, and the public baths. Lukuas led the rebels toward Alexandria, entered the city, which had been abandoned by the Roman governor, Marcus Rutilius Lupus, and set fire to it. The Egyptian temples and the tomb of Pompey were destroyed. This resulted in great depopulation and the need to establish new colonies.
 - Bar Kokhba revolt (132–136 CE) triggered by building Aelia Capitolina, over the ruins of Jerusalem and the erection of a temple to Jupiter on the Temple Mount. Simon bar Kokhba, the commander of the revolt, was regarded by many Jews as the Messiah, who would restore their national independence. Result: Suppression of Jewish religious and political autonomy by Hadrian (no circumcision allowed), Large-scale destruction of Judean population by Roman troops.
 - Jewish leaders and population - to this day - regard the Bar Kokhba assault with reverence and fondness.
+
+### Iconoclasm
+- "Josiah destroyed all the shrines in Judah outside of Jerusalem. Burned the "Asherah" in the temple and scattered the ashes in a graveyard. He also went up to Bethel(an important Israelite temple). Josiah destroyed Bethel, defiled it by killing priests on the altar and burning their corpses on it. Bethel, that means "house of god", that was supposedly founded by Jacob and had its sacred stone pillar set up by him. The rulers and priests aggressively promoted Jerusalem, until they finally decided that it was to have the only temple."
+- Consequences: "From Jeremiah 44. Jews in Egypt blaming the disaster on the king's(Josiah and after) banning of the Queen of Heaven's cult. Times were good until that happened, then it was just misfortune after misfortune. "
 
 ## Specific Anti-hindu actions
 - Opinions expressed during modern Jewish visits to India \[[T1](https://twitter.com/sighbaboo/status/725514089850503168)\].
