@@ -33,8 +33,38 @@ In classical Indian literature "the Muslims, who were not only present in India 
 
 From [Heid1998](https://journals.ub.uni-heidelberg.de/index.php/jiabs/article/viewFile/8878/2785): In Sanskrit literature the Kalacakra tantra is unique in presenting a fairly comprehensive and quite accurate portrayal of Islamic beliefs and practices. \[[WP](https://agnimaan.wordpress.com/2015/06/08/portrayal-of-muslims-in-kalachakra-tantra/)\]
 
+## Counteract subversion
+
+### Old institutions
+maThas (monasteries), temples, utsavas have offered continued access to some part of the the dharma's ethos and ideas. They have thus been a potent force in the dvijas with strong saMskAras and rural people resisting the subversion.
+
+### Spiritual movements
+The great patriot vivEkAnanda worked to revive hindu svAbhimAna and conscience through the rAmakRRiShNa mission. His presentation of the hindu dharma and saMskAras found great appreciation abroad; and there fore became 'cool' in bhArata. Arya-samAja, yOgAnanda's 'self realization fellowship', bhakti movements such as that of gauDIya vaiShNavas through ISKCON, mahEsha yOgi's transcendental meditation movement, ravisha\~Nkara's 'Art of living' continued and strengthened this resistance.
+
+Non-hindu movements springing from bhAratIya darshaNas such as various bauddha traditions of various bauddha countries, sikh movments reinforced this to some extant.
+
+yOga gaining popularity in the west - through the efforts of people from shivAnanda, bikrama and kRRiShNamAchArya's gurukulas (BKS iye\~NgAr, paTThAbhi jois), has again subverted the westerd subversion of the dharma.
+
+### Resistance: cultural movements
+Inspired in part by vIra sAvarkar, rAShTRIya svayaMsEvaka sangha (RSS) pioneered hindu revivalism - they have tried to cultivate hindu youth strong in both body and intellect by starting a grassroots/ bottom-up movement across bhArata in the form of shAkhAs in different places.
+
+saMskRRita-bhAratI, another grassroots movement, is working towards the revival of sanskrit, the language of liturgy in bhAratIya darshaNas and of classical culture. saMskRRita has great potential to function in bhAratIya revival in a way analogous to the role of the 'master switch' in a house's electrical circuitry.
+
+More traditionalist movements, such as the vishva hindu parishat (VHP), have worked to organize hindu leaders.
+
+All these movements have spread to the bhAratIya diaspora abroad.
+
+### Media, internet and videos
+Videos of the epics rAmAyaNa and mahAbhArata (and later some purANas) broadcast on national television reacquainted bhAratIya children with the dharma, and reminded their elders of it. Books by rAjagOpAlachAri, amar chitra kathA comics did the same.
+
+Videos about historical figures such as the marATha empire, chANakya, gAndhi reminded people of past successful hindu resistance to foreign rule.
+
+The internet has allowed people to connect with people who care about the dharma even when they are far away from it.
+
 ## Heathenizing Abrahamists
 ### Famous cases
+- AshIsh khAn, son of the master musician ali akbar khAn, stated in 2006 that his family were never officially converted into Islam, but hid under the guise of being muslims.
+
 #### Akbar
 - There was some extra-military response to Islam during muslim reign \[[MT](http://manasataramgini.wordpress.com/2014/02/04/some-notes-on-the-extra-military-aspects-of-the-islamo-hindu-confrontation/)\], involving conversion of muslims, apostacy of Akbar; reducing virulence of Islam in Dara Shukoh etc..
 - Apostasy of Akbar: [MT](http://manasataramgini.wordpress.com/2014/02/04/some-notes-on-the-extra-military-aspects-of-the-islamo-hindu-confrontation/) and [B](http://bharatendu.com/2009/07/06/akbar-transition-5/).
@@ -70,3 +100,8 @@ From [Heid1998](https://journals.ub.uni-heidelberg.de/index.php/jiabs/article/vi
 
 - During the Yazidi massacre: Ravishankar gave aid.
 - Assistance to Heraka of Nagaland : [see here](../../../../paganology/para-hindus/zeme-heraka/).
+
+## Temple Reconstruction
+Whenever hindu kings regained dominion, they restored or built fresh new temples the turuShkAs destroyed. Eg: somanAtha temple was rebuilt repeatedly, the vishvanAtha temple in kAshi (by the rAjaputra prince. then by ahilyAbAi, with gold added by raNajIt singh).
+
+The vaishyas kept financing recontructions and repairs. Eg: mArvADis in the case of kAShi.

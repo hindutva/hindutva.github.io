@@ -5,7 +5,8 @@ title: +Rituals
 
 ![](http://upload.wikimedia.org/wikipedia/commons/thumb/5/54/Chakra_ayudhapurusha.jpg/220px-Chakra_ayudhapurusha.jpg)![](http://upload.wikimedia.org/wikipedia/en/c/c0/Krishnamacharya_scorpion.jpg)
 
-## Intro and notes elsewhere
+## Notes in external sites
+- Wiki
 - [VV](https://vvasuki.github.io/saMskAra/kalpaH/general/benefits/)
 
 ## Language
