@@ -1,5 +1,5 @@
 ---
-title: Americas
+title: +Americas
 ---
 
 - Defences
