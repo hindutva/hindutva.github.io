@@ -4,6 +4,9 @@ title: Opindia Fake news
 
 We copy the below top-fake-news-lists from [opindia.com](https://www.opindia.com/page/2/?s=Lies+spread), a news analysis site - just in case that website goes away in the future. 
 
+## General notable fakes
+- Breast tax in kerala. [OP18](https://www.opindia.com/2018/01/the-recurring-myth-of-breast-tax-doesnt-seem-to-die-down-this-time-propagated-by-scroll/)
+
 ## 2019
 
 - 1\. [The Wire uses 2015 survey and laces it with lies to say mental health issues on the rise in Kashmir post abrogation of Article 370](https://www.opindia.com/2019/09/the-wire-uses-2015-survey-and-laces-it-with-lies-to-say-mental-health-issues-on-the-rise-in-kashmir-post-abrogation-of-article-370/)
