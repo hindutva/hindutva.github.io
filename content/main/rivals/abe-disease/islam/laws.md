@@ -32,3 +32,16 @@ See [types](../types/) page.
     - Muhammad is the ideal muslim. (Anyone blaspheming him is going to be in deep trouble in almost any muslim country.)
     - Muhammad was a horrible human being - a lecherous person, slaver and a mass murderer. (Look at his life stories, starting with the [banu qurayza](http://en.wikipedia.org/wiki/Banu_Qurayza) massacre.)
 
+## Homosexuality
+- Like other Abe's madnesses, classical Islam considers homosexuality a sin.
+
+> "Ottoman Sheikhulislam Ebu Su'ud effendi (d. 1574), who served as the grand mufti of the Ottoman Empire under Sultan Suleyman (d. 1566), distinguished between sodomy with 'men' (rijal) and with youths' (ghilman), the violations of the former motivating God's condemnation of the people of Lot (el-Rouayheb, 2005, p. 126). This variation emphasizes a much discussed differential based on maturity indicating that sex with a pre-pubescent ghilman boy fell in many cases outside the purview of the law. In the Muslim religious tradition, it was when the people of Lot began sodomizing adult males that they were punished, leaving room for the interpretation that it was only sex between adult men that was condemned."
+
+### Practice 
+- However, many of the muslim elite (even ghAzi-s) sodomized each other and other youth. Examples below
+  - Mohammed Ghori, his slave Qutbuddin Aibak
+  - Alaudin Khilji and his neutred slave Malik Kafur 
+- Pederasty (aka Baccha Bazi in Afghanistan) was/ is practiced in many muslim cultures. 
+
+### Boosting due to non-availability
+> In his 29 years, Mohammed Daud has seen the faces of perhaps 200 women. A few dozen were family members. The rest were glimpses stolen when he should not have been looking and the women were caught without their face-shrouding burkas. "How can you fall in love with a girl if you can't see her face?" he asks. Daud is unmarried and has sex only with men and boys. But he does not consider himself homosexual, at least not in the Western sense. "I like boys, but I like girls better," he says. "It's just that we can't see the women to see if they are beautiful. But we can see the boys, and so we can tell which of them is beautiful."
