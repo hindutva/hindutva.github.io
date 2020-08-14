@@ -1,5 +1,5 @@
 ---
-title: Zoro reconfiguration
+title: 1 Zoro reconfiguration
 ---
 
 ## yazata-s
@@ -27,6 +27,10 @@ title: Zoro reconfiguration
 
 ## Motivations
 "The old IE system, like many heathen systems, has deities who as actions relative to humans or their domesticated animals is ambivalent. The raudra class of deities are epitomes of this ambivalence of action. Why the Hindu system revels in the various shades of grey, zarathuShtra was driven by black and white binary thought. "
+
+### Hindu borrowing
+According to their own internal narrative, there was an internecine war, they lost and were pushed out, and then Zarathushtra Spitama brought a people in despair “glad tidings” and new moral courage. The cosmic dispensation had kathenotheistically revolved, it was said, and the people of Ahura had now been chosen over the people of the Daevas. Nevertheless, Zarathushtra himself and many Magi and others after that continued to borrow or steal knowledge and tradition from the Hindus. This and other details are also recorded by Roman students of this tradition – The 4th century CE, Roman historian Ammianus Marcellinus made the following observations in his Rerum gestarum libri 23.6.31-36: “When Zoroaster had boldly made his way into the unknown regions of Upper India, he came to a certain woody retreat, of which with its tranquil silence the Brahmans, men of sublime genius, were the possessors. From their teaching he learnt the principles of the motion of the world and of the stars, and the pure rites of sacrifice, as far as he could; and of what he learnt he infused some portion into the minds of the Magi, which they have handed down by tradition to later ages, each instructing his own children, and adding to it their own system of divination.” Asho Zarathushtra converted the chieftains of a few immediate kshatriya clans, and then they later created a confederacy. They also infused this modified Brahminical knowledge into other existing priesthoods in the Middle East – the Magi were an existing pre-Zoro priesthood in that region.
+
 
 ## References
 - [MT1](https://manasataramgini.wordpress.com/2008/12/26/iranian-miscellany/)
