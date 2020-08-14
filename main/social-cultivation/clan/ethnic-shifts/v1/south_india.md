@@ -31,3 +31,8 @@ Every land grant mentions the following details -
 - "Cynthia Talbot mined epigraphic records and labeled Vengi as the “core area” of Andhra in this period.5 Here again land grants to Brahmans were frequent and inscriptions indicate migrations from the north to Andhra. One copper plate records the donation of a village in Guntur District, west of the Krishna River, to one thousand Brahmans from the village of Ahicchatra on the Ganges." \["vedic voices" book\]
 - "Cynthia Talbot notes a special tradition in medieval Andhra, sapta-santana, “seven offerings,” by which donors could perpetuate their names.40 In addition to having a son, other legacies include provision of a deity image to a temple, constructing a tank for water supply, and donating an agrahara."   \["vedic voices" book\]
 - "Sriramapuram agrahara, established in 1940 in land grants to respected Veda pandits by a wealthy merchant, Dokka Rama, originally contained a single straight dirt lane of fourteen houses and a panca-ayatana (five-deity) temple housing Isvara, Radha-krsna, Surya, Ambika, and Vighnesvara (Ganesa)" \["vedic voices" book\]
+
+## mahArAShTra
+deshastha-s and chitpAvans appear to come from distinct paternal lines.
+
+{{< figure src="../images/konkaNastha_deshastha_chitpAvan.png" title="" class="thumbnail">}}
