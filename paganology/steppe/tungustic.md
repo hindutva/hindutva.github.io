@@ -9,7 +9,10 @@ title: Tungustic
 
 "The Jurchen were initially allied to the Khitan and formed part of their their invasionary force during the conquest of the Koreans. Subsequent to the occupation of northern China the Jurchen sinicised as the Jin dynasty. While they initially practiced apartheid against the Han, the Han eventually subsumed and weakened them."
 
+### End
 The jurchen were in turn toppled and pushed south by Chingiz Khan; aided by khiTan remnants who acted as their bridge with Chinese.
+
+"The Jin tried to help the (Tangut) Xixia empire survive by sending aid from the east. But Chingiz Khan sent his mobile squadrons to punish them. One rapidly moving Mongol force launched an audacious assault deep into Jin territory to strike their capital Kaifeng and return. Shaken by this attack, the Jin asked for peace but Chingiz turned down the offer."
 
 ## manchu
 "A repeat of this happened again with the second Jurchen empire of the Manchus. On this occasion they eventually even lost Manchuria after the whites crushed their protector Japan and gifted their lands to the Han."
