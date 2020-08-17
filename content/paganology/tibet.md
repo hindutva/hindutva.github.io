@@ -12,16 +12,18 @@ title: Tibet
         - " Taizong’s initial invasionary force in 648 was defeated and massacred to man by aruNAshva but a second force backed by Songtsen captured aruNAshva and a chIna-bhoTa force occupied tirAbhukti. But they were defeated and evicted by alliance of narendradeva and bhAskaravarman. Taizong, Songtsen and bhAskaravarman died shortly thereafter within few months of each other in 649 bringing a closure to this tumultuous period. But the Tibetan conquests were to continue. One wave of them surging into Arunachal conquered Assam from bhAskaravarman’s clan (He had died without an offspring) in 650 CE. But the local brAhmaNa-s crowned the Tibetan general as a descendant of narakAsura under the Hindu name sAlastambha and his dynasty ruled for 250 years as Hindu rulers."
     - khoTAn hindu kingdom, aided by the Tang repulsed the tibhoTa-s. " their war cry from those times, which survives to date, was “ki ki so so lha gyalo!” meaning “May the deva-s be victorious!”" \[[MT](https://manasataramgini.wordpress.com/2013/12/26/the-successors-of-the-kaunteya-s-in-the-national-memory-of-bharata-s-and-bhota-s-and-related-discursions/)\]
     - "The Bön layer was still very active just before Trisong Detsen: In the 730s of CE the Tang emperor Xuanzong was alarmed by the deep conversion of several members of his clan to the bauddha fold and he felt that a Tantric state on Indian lines might be established in China threatening the inner core of legalism. So he banned the bauddha-dharma and gave a short notice to all Indian, Korean and Japanese bauddha-s to leave China. Many of the bauddhas went to Tibet and brought with them smallpox which raged through the land killing a part of the population. Even a bauddha chIna princess who had gone to Tibet died in this epidemic. The Bön exponents felt that this disaster could because the old deva-s had been neglected under the bauddha influence and suggested that even the Tibetans should abolish the bauddha-mata." \[[MT](https://manasataramgini.wordpress.com/2013/12/26/the-successors-of-the-kaunteya-s-in-the-national-memory-of-bharata-s-and-bhota-s-and-related-discursions/)\]
-- bauddha transmissions
-    - Nyinma (“ancient,” rnying ma)
-        - Under the direction of the Tibetan King Trisong Deutsen, the Indian Abbot Shantarakshita, and the Master from Uddiyana Padmasambhava.
-        - " chIna Zen practitioners threatening to kill the Indian bauddhas in Tibet followed by a ritual suicide. It was then that their great tsenpo Trisong Detsen had the famous Indian Acharya kamalashIla from nAlandA debate the chInAcharya Moheyan and the latter was roundly defeated. With that the chIna interpretation of the bauddhamata was comprehensively overthrown. Importantly, during Trisong Detsen reign he was visited by the tAntrika padmasaMbhava from northwestern India, considered by many as the second buddha of the age. The tsenpo gave one of his own wives Yeshe Tsogyal, who was considered an incarnation of the supreme goddess sarasvatI, as the tAntrika ritual consort of padmasaMbhava. This marked the completion of the transition of Tibet into tAntrika state ruled by Trisong Detsen as the dharmarAjan." \[[MT](https://manasataramgini.wordpress.com/2013/12/26/the-successors-of-the-kaunteya-s-in-the-national-memory-of-bharata-s-and-bhota-s-and-related-discursions/)\]
-    - Sarma (“new,” gsar ma)
-        - Root indian transmitters : Naḍapāda / nAropa , many DAkinI-s.
-        - Sakya (sa skya)
-        - Marpa Kagyu (mar pa bka’ brgyud)
-        - Shangpa Kagyu (shang pa bka’ brgyud)
-        - Jonang (jo nang)
-            - Transmission from India through yogi-s continued until 1600-s:
-                - (advaita-[like](https://en.wikipedia.org/wiki/Jonang) jona~N sect later suppressed by geluk-s) Tirthanatha, Brahmanatha, Krishnanatha likely of the syncretic Natheshvari sect +  siddha shAntigupta → buddha-gupta-nAtha \[[bio1](https://undumbara.wordpress.com/2009/05/07/buddhaguptanatha-and-the-late-survival-of-the-siddha-tradition-in-india-d-templeman/), [bio2](http://rywiki.tsadra.org/index.php/Buddhagupta-natha)\] -\> tAranAtha \[[TW17](https://twitter.com/blog_supplement/status/888947871017578496)\]
-        - Geluk (dge lugs)
+
+## bauddha transmissions
+### Nyinma (“ancient”, rnying ma)
+- Under the direction of the Tibetan King Trisong Deutsen, the Indian Abbot Shantarakshita, and the Master from Uddiyana Padmasambhava.
+- " chIna Zen practitioners threatening to kill the Indian bauddhas in Tibet followed by a ritual suicide. It was then that their great tsenpo Trisong Detsen had the famous Indian Acharya kamalashIla from nAlandA debate the chInAcharya Moheyan and the latter was roundly defeated. With that the chIna interpretation of the bauddhamata was comprehensively overthrown. Importantly, during Trisong Detsen reign he was visited by the tAntrika padmasaMbhava from northwestern India, considered by many as the second buddha of the age. The tsenpo gave one of his own wives Yeshe Tsogyal, who was considered an incarnation of the supreme goddess sarasvatI, as the tAntrika ritual consort of padmasaMbhava. This marked the completion of the transition of Tibet into tAntrika state ruled by Trisong Detsen as the dharmarAjan." \[[MT](https://manasataramgini.wordpress.com/2013/12/26/the-successors-of-the-kaunteya-s-in-the-national-memory-of-bharata-s-and-bhota-s-and-related-discursions/)\]
+
+### Sarma (“new,” gsar ma)
+- Root indian transmitters : Naḍapāda / nAropa , many DAkinI-s.
+- Sakya (sa skya)
+- Marpa Kagyu (mar pa bka’ brgyud)
+- Shangpa Kagyu (shang pa bka’ brgyud)
+- Jonang (jo nang)
+    - Transmission from India through yogi-s continued until 1600-s:
+        - (advaita-[like](https://en.wikipedia.org/wiki/Jonang) jona~N sect later suppressed by geluk-s) Tirthanatha, Brahmanatha, Krishnanatha likely of the syncretic Natheshvari sect +  siddha shAntigupta → buddha-gupta-nAtha \[[bio1](https://undumbara.wordpress.com/2009/05/07/buddhaguptanatha-and-the-late-survival-of-the-siddha-tradition-in-india-d-templeman/), [bio2](http://rywiki.tsadra.org/index.php/Buddhagupta-natha)\] -\> tAranAtha \[[TW17](https://twitter.com/blog_supplement/status/888947871017578496)\]
+- Geluk (dge lugs)

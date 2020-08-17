@@ -23,7 +23,7 @@ From [MT](https://manasataramgini.wordpress.com/2015/01/21/some-notes-on-the-ris
 "Around 1460CE, Amasanji moved west to tackle the Mohammedan threat by invading the Chagadai ulus of Mogholistan and overthrowing Khan Yunus. He then moved against the Khan Abu’l Khair who sought to unify the Chagadais and the Jochids in an Islamic alliance against the heathen Mongols. ... In battle that ensued the Army of Islam led by Abu’l Khair was smashed to bits upon encirclement by Amasanji. Khan Abu’l Khair barely escaped with his life. This was the highpoint of the Oirat Mongol empire which remained a great power till 1490CE. "
 
 ## Fall
-Chingizids Mandughai Khatun, Dayan Khan, Altan Khan drove them out and recouped Mongolia. 
+Chingizids Mandughai Khatun, Dayan Khan, Altan Khan drove them out and recouped Mongolia. As the Dzungars later attacked the khAlkha under Galdan Boshugtu Khan (with Rus assistance) Chingizid Zanbazar despite all attempts at appeasement, the latter subjected themselves to Qing.
 
 ## Dzungaria
 The Oirats would later regroup south of the Altai Mountains in Dzungaria. Even there they saw back and forth struggle with Chingizids and Qing. The struggle ended in 1757 with the defeat of the Oirats in Dzungaria; they were the last of the Mongol groups to resist vassalage to Qing. The attempted unification of the Oirats caused dissension among the tribes and their Chief Tayishis who were independent minded but also highly regarded leaders themselves. This dissension reputedly caused Kho Orluk to move the Torghut tribe and elements of the Dörbet tribe westward to the Volga region where his descendants formed the Kalmyk Khanate.
