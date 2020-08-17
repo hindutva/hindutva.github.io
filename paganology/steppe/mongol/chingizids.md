@@ -52,9 +52,16 @@ Thence emerged:
 - "This was the highpoint of the Oirat Mongol empire which remained a great power till 1490CE. But at that point a remarkable Chingizid princess, Mandughai Khatun, who was seen by some as a reincarnation of Chingiz Khan’s mother Hoelun, restored Chingizid power by overthrowing the Oirats in 1491CE." Her husband Batumongke Dayan Khan's decision to divide the Six tumens of Eastern Mongolia as fiefs for his sons created decentralized but stable Borjigin rule over Mongolia for a century. A legend says: "She defeated several Ming attacks and protected Mongolia, she wore the helmets and the sword and fought with the Ming soldiers. She was pregnant, but still fought and delivered twin boys during a long battle. "
 - Borjigin Barsboladiin Altan Khan, grandson of Dayan Khan pushed out the Oirats and reunited Mongolia.
 - A century later, after the khan lost most power, they fell to Nurhachi and the Manchu Qing as they took over China. Russia also gobbled up siberian parts (esp Buryatia).
-- Chakhar / Chahar mongols (under a chingizid) of inner mongolia initially split and moved east. They surrendered to the manchu-s, heavily intermarried as vassals. But around 40 years later, they started a failed rebellion, and the leadership was annihilated (females enslaved).
+- Chakhar / Chahar mongols (under a chingizid) of inner mongolia initially split and moved east. They surrendered to the manchu-s, heavily intermarried as vassals. But around 40 years later, they started a failed rebellion, and the leadership was annihilated (females enslaved). Inner mongolia was colonized by hans.
+- As the Dzungars under Galdan Boshugtu Khan (with Rus assistance) later attacked the khAlkha Chingizid Zanbazar despite all attempts at appeasement, the latter subjected themselves to manchu Qing Kanxi.
 
 ### Late Indo-tibetan influence
-- Adoration of the 5th dalAi lAma sonam gyatso by Altan kakhAn, partial suppression of shamanism \[[tengrism page](../religion/tengrism/)\]. Within 50 years virtually all Mongols had become Buddhist, with tens of thousands of monks, who were members of the Gelug order, loyal to the Dalai Lama.
+- Adoration of the 5th dalAi lAma sonam gyatso by Altan kakhAn, partial suppression of shamanism \[[tengrism page](../../religion/tengrism/)\]. Within 50 years virtually all Mongols had become Buddhist, with tens of thousands of monks, who were members of the Gelug order, loyal to the Dalai Lama.
 - Later transmission through the geluk-influenced incarnation of tAranAtha - jJNAnavajra (zanbazar).
 
+## Independence
+- By 19th century, mongols were impoverished. Qing manchus (with army heavily consisting of Chakhar mongols) began colonization plans.
+- Mongols led by Bogd Gegeen Ezen Khan (reincarnation of zanbazar), chingizid prince Tögs-Ochiryn Namnansüren, mystic buddhist shaman Ja lama etc rebelled. It was mostly an orderly transference of power given Qing realism. They got support from Russians for a buffer state against Chinese and Japanese. Treaty of Kyakhta (1915) gave de-facto independence.
+- Inner Mongolia was divided and stayed with Qing.
+- After Russian Revolution in 1917, threatened by Grigori Semyonov and jealous of Bogd Khan, some princes invited Chinese military; who came and abolished autonomy. The White guard under Baron Roman Fyodorovich von Ungern-Sternberg invaded, but was repulsed. He reattacked in 1921 and restored Bogd Khan. Soviet supported communists gained ground. Red army invaded. Thousands of princes and princesses were killed, surnames abolished, geneologies forgotten. 2/3 years later, nominal theocratic rule was abolished.
+- Finally, in 1990, mongols became de-communized, but were cut off from their specific pitR-s.
