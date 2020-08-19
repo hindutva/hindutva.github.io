@@ -4,14 +4,30 @@ title: Commies
 
 ## Traits
 - For traits common with other Abe 0-theist maturations, see [main page](../).
+
+### Change in perception of reality
+- Focus on "grievance studies". See [J Lindsay 20](https://www.youtube.com/watch?v=DdlNIJB9ZVU). They seek to warp the perception of reality in terms of oppressors and oppressed.
+- Rooted in marxist concept of "conflict theory" of fundamental conflict between classes. Could be bourgeoisie vs proletariat or white vs black lives, male patriarchy vs women, hetero-normative straight culture vs sexual minorities.
+- This involves some rejection of science (eg. "scientific racism") and even undermining mathematics. There was a movement in 2020 which sought to argue that 2+2=5 based on various nuances/ suppositions such as 2.3+2.4=2.7; two fowl produce a chick etc. - which was actually an attempt to shock, confuse and browbeat into believing that they are stupid and should respect "critical theory" and the like.  
+- Post-modernists want to tear everything apart. "Critical theory" people want to "deconstruct" everything (gender, race etc..) - except "systemic oppressed vs oppressor" (said to be very real).
+- The look at "systems of power" and deny agency to individuals - so revolutionary rioters and the "oppressors" are not actually responsible for their actions. But agency comes in when doing as their "theory" says.
+- With "intersectionality", you look at all the opperssion classes/ identities one might have - then pare it down to a small group (but never to an individual, because he does not have agency). With "positionality", they measure your position in relation to system of power.
+- The can spin a favored oppression angle in any situation. Example - "White man and Black man walk to a tailor shop. Attend to white person first? Racist. Attend to black person first? Racist because you want to get rid of him."
+
+### Restructuring society 
 - Egalitarianism, anti-elitism, opposition to heredity influence (even in descriptive scientific research on phenotypes important in social functions). 
-- Focus on "grievance studies".
-- Oppisition to "both the traditional elite & the real science which can easily call out their imperial nakedness".
+- Oppisition to "both the traditional elite & the real science which can easily call out their imperial nakedness". In west, traditional elite/ "System" is often identified with capitalist, western, scientific civilization.
+
+
+#### Iconoclasm
+- Chinese cultural revolution.
+- Khmer Rouge
+- Black lives matter 2020 / cancel culture protesters tearing down statues. 
 
 ### Strains
 - In the old hard strain (ur1) - Dictatorship of the proletariat. Examples: Soviet state. Khmer Rouge. Naxals.
 - In newer strains (ur2) - Mixture with econolatory (see [main page](../) for intro). 
-  - Examples: SJW-s of Soros who participated in 2020 US Race riots and more. Venus project. Urban naxals of India.
+  - Examples: (Social Justice warriors) SJW-s of Soros who participated in 2020 US Race riots and more. Venus project. Urban naxals of India.
 
 ## Transmission structures
 - Like u2 it needs a church-nurse (\~ university) and assorted कुटिल-लम्पट-दुष्टाः are playing this role.
@@ -22,6 +38,9 @@ title: Commies
 ### Expansion strategy
 - Via [MT20](https://twitter.com/blog_supplement/status/1285443764333551621). Now that religion has similar infectivity as its predecessors & is champing at the bit to break into previously virgin territory like H society, where this type of elite overproduction was not an issue. What its pathogenesis triggers is a production of these fake, pathological "elites" in the host society that it invades, like H in India. We are already seeing that in various educational institutions of India, especially like the recently established Ashoka, with arborizations into traditionally scientific institutes.
 - Once such production is established in a host society then it can trigger the same "eruptive" phase of the pathology in that society. With tentacles already reaching down to "catch 'em young" this pathology can rapidly become intergenerational. 
+
+### Rapid response mobs and bullying
+People are oft coerced into following the rudhironmAdas because - they don't want to be regressive; on the wrong side of history; prove themselves too stupid to understand "intersectionality and critical theory".
 
 ## History
 ### Early eastern incubation and development of resistance.
@@ -40,3 +59,6 @@ title: Commies
 ### Urban Naxalism
 - "A part of the urban Bhārata elite are nothing other than mleccha-s with an asita-tvak; hence, they would get similarly afflicted by the disease. Like all the prior abrahma-ruj-s, this latest strain retains its inherent hate for dharma and theoclasm. Hence, the Hindu elite will need to become aware of this dangerous disease and not be fooled by the subterfuge it practices of hiding beneath other causes of jana-kopa. One thing that will show its face to Hindus will be its collaboration with marūnmāda and its śanti-dūta-s and pretonmāda and its prema-dūta-s in Bhārata." - [MT](https://manasataramgini.wordpress.com/2020/06/08/pandemic-days-the-fizz-is-out-of-the-bottle/)
 - 2020 eruptions - "Already it was used by the duṣṭa Sora against Bhārata in conjunction with the marūnmatta-s in the recent past." - [MT](https://manasataramgini.wordpress.com/2020/06/08/pandemic-days-the-fizz-is-out-of-the-bottle/). Soros vs Modi [YT20](https://www.youtube.com/watch?time_continue=4&v=c8yiM-uI0nI&feature=emb_logo).
+
+## Defences
+- Works such as "1984" by George Orwell.
