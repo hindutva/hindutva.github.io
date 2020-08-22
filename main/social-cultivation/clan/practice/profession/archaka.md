@@ -8,14 +8,21 @@ title: Temple Archakas
 
 ## Traditional non-brAhmaNa temples
 - Several hindu old temples in India have been officiated by non-brAhmaNa priests - a phenomenon which has increased today \[[ST](http://swordoftruth.in/non-brahmin-priests-in-south-india/)\]. In many cases, the reason has been the deity's express wishes.
-- In tamiL nADu : For mAryAmbA, paNDAram priests only. For draupadyammA, only vanniyar priests.
-- "Siruvachoor mathurakaliamman temple - priests r vanniyars. Many brahmins n other castes worship her as kuladevi. Temple used to belong to vanniyar community person before govt took over. "
-- "One of my tutelary deities is alankAri amman; pandAram caste priests. Some very famous temples such as esakki amman (saved my maternal grandfather from abhicAra) are all served by non-brahmins"
-- "At a Muthu Veeran temple, a Nitya Shiva Pujaka with a kudumi stands outside the garbagriham while a Vellalar priest performs the archanai"
--  An Orissa temple exclusively officiated by married dalit women \[[NDTV18](https://www.ndtv.com/india-news/in-odisha-a-temple-where-only-dalit-women-are-allowed-breaks-rules-first-time-in-400-years-1841251)\].
 - In a temple, deity's wishes are supreme
     - nandan who was indeed unfit to enter temples as per smRtis and deemed himself unfit without others telling him anything....(nobody prevented him from going) How did he enter tillai? bhagavAn gives direct command.
     - While pANan refused to keep his foot inside as it might pollute temple, Archaka adhered to his Lords command by bodily carrying him in.
+
+### In tamiL nADu
+- For mAryAmbA, paNDAram priests only. For draupadyammA, only vanniyar priests.
+- "Siruvachoor mathurakaliamman temple - priests r vanniyars. Many brahmins n other castes worship her as kuladevi. Temple used to belong to vanniyar community person before govt took over. "
+- "One of my tutelary deities is alankAri amman; pandAram caste priests. Some very famous temples such as esakki amman (saved my maternal grandfather from abhicAra) are all served by non-brahmins"
+- "At a Muthu Veeran temple, a Nitya Shiva Pujaka with a kudumi stands outside the garbagriham while a Vellalar priest performs the archanai"
+
+### Orissa
+-  An Orissa temple exclusively officiated by married dalit women \[[NDTV18](https://www.ndtv.com/india-news/in-odisha-a-temple-where-only-dalit-women-are-allowed-breaks-rules-first-time-in-400-years-1841251)\].
+
+### North India
+Even in North, several temples have Priests from the Gosai jAti traditionally. Why do you visit those temples then? In Bihar some Pandas for Mahavir Temples are Dalits while Dhaneshwar Nath Mandir has Kumhar (Pottery) Pujaris.
 
 ## Increased non-brAhmaNa admittance to temple-archaka posts
 ### New courses
