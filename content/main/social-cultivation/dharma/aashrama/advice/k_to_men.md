@@ -2,7 +2,9 @@
 title = "K to men"
 +++
 
-Title: Marriage advice for Hindu snAtaka-s
+## Intro
+- Title: Marriage advice for Hindu snAtaka-s
+- Background of author: practicing gRhya ritualist and gRhastha; engineer and scholar.
 
 ## Mate selection
 

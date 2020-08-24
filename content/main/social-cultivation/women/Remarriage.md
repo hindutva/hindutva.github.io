@@ -1,0 +1,5 @@
++++
+title = "Remarriage"
+
++++
+- Gazetteer of the Ambala District: 1883 "As regards remarriages of widows the only classes that remarry are Jats Lohárs Jhínwars Tarkháns Mehtams who are allowed by their custom to go through the ceremony of Karewa Among Musalmans with the exception of Saiyads Moghals Pathans Shekhs and Rájpúts all women remarry. Among a the inferior castes who are in short Shúdras when one brother dies the widow is not allowed to go out of the family but is claimed by one of the other of the brothers who look upon her as belonging to the family money having been spent upon her and litigation in the courts both on Civil and Criminal sides to enforce these supposed rights froquently takes place I mention the Criminal as well as Civil Courts since it is not an uncommon matter for a brother to prosecute his sister in law and any second husband she may take for Bigamy because she has failed to transfer her affections to the surviving brother..." 
