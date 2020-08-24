@@ -4,8 +4,8 @@ title = "Hygene by P"
 
 ## Intro 
 Title: Hindu (Brahminical) hygiene
-Author:
-Time: 
+Author: [preShThA](https://twitter.com/jagadakka/status/1239420389257703426) of MH
+Time: Mar 2020 - Beginning of Wuhan epidemic in India. 
 
 ## Items 
 - 1. Wake up early in the morning before sun rises. By the arunodaya, you should have finished shaucham and out to bathe in bālārka. Women would be doing gomaya-parimarjana in courtyards, rangoli. 
