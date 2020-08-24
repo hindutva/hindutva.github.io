@@ -4,6 +4,7 @@ title = "K to men"
 
 ## Intro
 - Title: Marriage advice for Hindu snAtaka-s
+- Date: Apr 2018
 - Background of author: practicing gRhya ritualist and gRhastha; engineer and scholar.
 
 ## Mate selection

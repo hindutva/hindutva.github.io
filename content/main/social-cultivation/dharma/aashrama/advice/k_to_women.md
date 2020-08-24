@@ -3,7 +3,9 @@ title = "K to women"
 +++
 
 ## Intro
-Source [here](https://twitter.com/katyyayanii/status/1257289551271342080).
+- Source [here](https://twitter.com/katyyayanii/status/1257289551271342080).
+- Date: Aug 2020.
+- Background of author: Artist.??
 
 I'm writing this thread on how should be a hindu woman's acharan with whatever little understanding I have. Forgive me for any त्रुटि.
 
