@@ -24,10 +24,10 @@ Time: Mar 2020 - Beginning of Wuhan epidemic in India.
 - 15. Vastra-shuchita some more. Wearing unwashed cloths not allowed. Wearing cloths overnight not allowed. Sharing cloths absolutely not allowed. If can't be helped, use only washed clothes and return them after washing only. Towels, blankets etc for atithis were kept in storage. 
 - 16. Achamanam. I'm not much well versed in this. Literally everything invited achamanam. A sneeze, a cough, a clearing of throat while taking. Often enough during pooja. Before beginning meal. Before anushthanas. Before speaking any mantras. Achamanam is a marvelous thing. 
 - 17. Serving food. Serving by left hand NOT ALLOWED. Serving by self not allowed. Too much serving not allowed. Eating from a bhāndam directly not allowed, take it in plate or bowl. Eating with spoon not preferred. Wash hands and eat. Eating while standing NO. Plate in hand NO. 
-18. Etc. I do not know the word in any other language. Cooked food. You wash have after you touch cooked food (yes you read right). Touching uncooked food like milk, fruits etc not always after touching cooked food. Cooked and uncooked to be kept separate. Ghee is uncooked. 
-19. खरकटम्. Using the hand with which you're eating. Strictly not allowed. Don't serve with it. Don't pick things with it. Don't pour water with it. Paryushitam. Night should not pass over the food. Little food was kept for emergency though. Given to cow etc in morning. 
-20. These are just a few rules. The finer rules of shaucha are mind-boggling. Please do add as many as you want. 
-21. NO FOOTWEAR inside house. The slippers are a modern thing, necessitated by the tiles which induce vāta-vikāras. Even so, we keep outside footwear at door and house-slippers are separate. Where slippers are used in bathroom, they're separate too.
+- 18. Etc. I do not know the word in any other language. Cooked food. You wash have after you touch cooked food (yes you read right). Touching uncooked food like milk, fruits etc not always after touching cooked food. Cooked and uncooked to be kept separate. Ghee is uncooked. 
+- 19. खरकटम्. Using the hand with which you're eating. Strictly not allowed. Don't serve with it. Don't pick things with it. Don't pour water with it. Paryushitam. Night should not pass over the food. Little food was kept for emergency though. Given to cow etc in morning. 
+- 20. These are just a few rules. The finer rules of shaucha are mind-boggling. Please do add as many as you want. 
+- 21. NO FOOTWEAR inside house. The slippers are a modern thing, necessitated by the tiles which induce vāta-vikāras. Even so, we keep outside footwear at door and house-slippers are separate. Where slippers are used in bathroom, they're separate too.
 
 ## Conclusion
 Simple things that kept people free from contagious diseases to a large extent. Though that wasn't their purpose, just a bonus. Hindu hygiene is a wonderful thing. 
