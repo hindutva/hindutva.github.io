@@ -5,11 +5,13 @@ title = "K to women"
 ## Intro
 - Source [here](https://twitter.com/katyyayanii/status/1257289551271342080).
 - Date: Aug 2020.
-- Background of author: Artist.??
+- Background of author: Artist. From mithilA. Married 2 years, with 1 kid.
 
-I'm writing this thread on how should be a hindu woman's acharan with whatever little understanding I have. Forgive me for any त्रुटि.
+I'm writing this thread on how should be a hindu woman's acharan with whatever little understanding I have. Forgive me for any त्रुटि. 
 
-P.S. This is not moral policing or dictation to anyone, it's my personal opinion and experience. Also this thread is concerning women so o please don't ask why not men has to do, I'll write on men some other day.
+### Disclaimers 
+- This is not moral policing or dictation to anyone, it's my personal opinion and experience. Also this thread is concerning women so o please don't ask why not men has to do, I'll write on men some other day.
+- It's a thread about normal families with normal lives, not about abusive families.
 
 ## Pre marital conduct
 
