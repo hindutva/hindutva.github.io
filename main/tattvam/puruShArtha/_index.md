@@ -45,6 +45,7 @@ All sAdhaka-s (mystics) don't necessarily follow the same dharma shAstra (moral 
 
 - [mOkSha](http://en.wikipedia.org/wiki/Moksha): Pursuit of enjoyment through kaama is, in the end, unsatisfactorily riddled with compromises due to limited artha (eg: wealth) and the need for dharma (accommodation for the well being of others). So, the ancients sought something beyond dharma/ artha/ kaama. They sought a path towards the ultimate joy (Ananda). This objective was popularized in later texts.
     - One feels the need to transcend the many masks/ roles one dons in this world (father, servant, scholar etc..), except that one feels that this needs to be done in the spirit of "being in the world, but not of the world". This mildly insulates us from upheavals of life, while still letting us enjoy it even more - like a person performing in a drama.
+    - " mokSha or some equivalent thereof acquired greater importance in the brahmasUtra tradition and its successors. In the heterodox nAstika phase of nirgrantha &the tathAgata, a substitute for the same was proposed. What we see is by this time a synthesis was attempted."
 
 #### The nature of the end goal
 - For some, this goal was other-worldly - eg: eternal union with the paramAtmA after leaving the body (-- I consider this goal ill-founded, having rejected the [sUkShma-sharIr](http://en.wikipedia.org/wiki/Subtle_body)a and [karman](http://en.wikipedia.org/wiki/Karma) as described earlier).
