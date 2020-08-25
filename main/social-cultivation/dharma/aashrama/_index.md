@@ -4,7 +4,7 @@ title = "+आश्रमः Life-stages"
 +++
   
 
-\## Intro
+## Intro
 
 An individual's life passes through various phases. Important among them were described and suggested by dharma-shAstra writers with the view of bringing and maintaining individual and social harmony. Phase transitions were especially marked. Following are the four major stages of life: 
 
