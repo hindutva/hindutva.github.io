@@ -56,9 +56,13 @@ People are oft coerced into following the rudhironmAdas because - they don't wan
 ## Anti Hindu activity
 - Naxalism
 
+### Elite susceptibility
+-"unless it mutates into a version that is more in line with basic biology it will unerringly face the adverse edge of natural selection. H are low immunity population currently and the the disease could rip through the H laying their elite low, given that they have shown a particular susceptibility to the disease. Thus, there remains question of whether there will be enough of H elite left after the disease rips through to survive a frontal assault from marUnmada and the more vigorous pretonmada strains."
+
 ### Urban Naxalism
 - "A part of the urban Bhārata elite are nothing other than mleccha-s with an asita-tvak; hence, they would get similarly afflicted by the disease. Like all the prior abrahma-ruj-s, this latest strain retains its inherent hate for dharma and theoclasm. Hence, the Hindu elite will need to become aware of this dangerous disease and not be fooled by the subterfuge it practices of hiding beneath other causes of jana-kopa. One thing that will show its face to Hindus will be its collaboration with marūnmāda and its śanti-dūta-s and pretonmāda and its prema-dūta-s in Bhārata." - [MT](https://manasataramgini.wordpress.com/2020/06/08/pandemic-days-the-fizz-is-out-of-the-bottle/)
 - 2020 eruptions - "Already it was used by the duṣṭa Sora against Bhārata in conjunction with the marūnmatta-s in the recent past." - [MT](https://manasataramgini.wordpress.com/2020/06/08/pandemic-days-the-fizz-is-out-of-the-bottle/). Soros vs Modi [YT20](https://www.youtube.com/watch?time_continue=4&v=c8yiM-uI0nI&feature=emb_logo).
+
 
 ## Defences
 - Works such as "1984" by George Orwell.
