@@ -1,5 +1,5 @@
 +++
-title = "Biology of political orientation"
+title = "Political orientation"
 +++
 
 ## Attractiveness
