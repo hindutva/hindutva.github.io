@@ -99,7 +99,8 @@ Meanings of apauruSheya-tva:
     - ‘यज्ञेन वाचः पदवीयमायन् तामन्वविन्दन्नृषिषु प्रविष्टाम्’ (ऋ. सं. १० । ७ । ३) इति स्थितामेव वाचमनुविन्नां दर्शयति ।
 
 ## Ignorance and distasteful recommendations
-- There is a lot of good knowledge (ie. jjnAna), but also some ignorance (ajJNAna) and distasteful (to modern people) recommendations in the veda-s (which are not necessarily wrong).
+- There is a lot of good knowledge (ie. jjnAna), but also a bit of ignorance (ajJNAna) and distasteful (to modern people) recommendations in the veda-s (which are not necessarily wrong).
+- muNDaka upaniShat denounces pravRtti-dharma.
 - brhadAraNyaka's endorsement of wife beating and marital rape \[[IMG](../../http://i.imgur.com/3GhF0HB.jpg)\]. Details [here](../../social-cultivation/women/).
 
 ## Boundaries of the veda
