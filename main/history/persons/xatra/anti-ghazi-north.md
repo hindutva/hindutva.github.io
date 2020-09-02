@@ -34,6 +34,7 @@ title: Anti-ghazis (north)
 - jhUlE lAl, savior of sindhIs.
 - koTA rANI ([wiki](https://en.wikipedia.org/wiki/Kota_Rani)), the last hindu ruler of kAshmIra married twice (to rinchan and udayanadeva), who drove away alien invaders, but ultimately succumbed to the intrigue of shAh mIr.
 - rAjJNI [padminI](http://en.wikipedia.org/wiki/Rani_Padmini), whom allauddin khilji coveted, but killed herself in jIvahara rather than loose honor.
+- chaNDeshvara ThAkkura, dharmashAstra authority who wrote kRtya-ratnAkara, gRhastha-ratnAkara, shuddhi-ratnAkara, vivAda-ratnAkara, vyavakAra-ratnAkara, pUjA-ratnAkara; war minister of harisimhadeva, defeated nepali-s and mlecCha invaders (likely Tughlaq's invasion of Tirhut in 1324). 
 - [hammIra deva chAhamAna](http://manasataramgini.wordpress.com/2004/06/20/hammira-devas-last-stand/), ruler of raNathambore, Ayurvaidika scholar, author of sadyogamuktAvalI, sheltered mongols fleeing khilji, who refused to convert and died fighting Allauddin khilji.  
     आष्टाविंशे तारुणे वर्षभोगे  
     प्राणान् दत्त्वोन्मत्तशूरान् प्रणाश्य।  
