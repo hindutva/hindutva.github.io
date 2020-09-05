@@ -17,7 +17,7 @@ title: Comparison
 ## Ritual purity
 - "najasat" in Islamic socieites (spiritual pollution, separate from "kesafat", physical uncleanliness).
 - A 3rd-century CE account of the Egyptian Priesthood and the lives of its priests by Porphyry in his Abstinence, Book 4 illustrating:
-    - much admired, exclusive, mostly-isolated state \[[TW](https://twitter.com/GhorAngirasa/status/888768695308238848)1, [TW2](https://twitter.com/GhorAngirasa/status/888768695308238848)\]
+    - much admired, exclusive, mostly-isolated state \[[TW](https://twitter.com/GhorAngirasa/status/888768695308238848)1, [TW2](https://twitter.com/GhorAngirasa/status/888768695308238848)\]
     - self-restriction in diet, attire, countenance, travel \[[TW](https://twitter.com/GhorAngirasa/status/888768695308238848)\]
     - regular engagement in rituals
-    - engagement in geometry etc.. in leisure [TW3](https://twitter.com/GhorAngirasa/status/888768695308238848)
+    - engagement in geometry etc.. in leisure [TW3](https://twitter.com/GhorAngirasa/status/888768695308238848)

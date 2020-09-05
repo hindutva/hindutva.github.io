@@ -11,7 +11,7 @@ title: Iconoclasm
 
 ### Digestion
 - Digestion of icon-worship and polytheism within Catholicism and Eastern Orthodox Christianity
-    - In Catholicism there are many angels and saints, whose icons are worshiped, sometimes infused with prechristian rites, identities and traits. 
+    - In Catholicism there are many angels and saints, whose icons are worshiped, sometimes infused with prechristian rites, identities and traits. 
 
 ## Roman empire
 - Vandalism \[[MT](https://twitter.com/blog_supplement/status/897631604574744580)\]
@@ -46,7 +46,7 @@ See cursades page.
 ## Americas
 ### Central America
 - [M16](http://www.telesurtv.net/english/news/Jehovahs-Witnesses-Destroy-Ancient-Indigenous-Temple-in-Mexico-20160628-0009.html).
-- Central America: [Jeh16](http://www.rawstory.com/2016/06/jehovahs-witnesses-accused-of-vandalizing-7000-year-old-pyramid-out-of-fears-of-devil-worship/#.V3MEbhgNMtF.twitter).
+- Central America: [Jeh16](http://www.rawstory.com/2016/06/jehovahs-witnesses-accused-of-vandalizing-7000-year-old-pyramid-out-of-fears-of-devil-worship/#.V3MEbhgNMtF.twitter).
 
 ### Brazil
 - Eg. Brazil [here](http://www.businessinsider.com/brazils-rapidly-growing-evangelical-movement-has-a-dark-side-2015-6?IR=T).
@@ -59,7 +59,7 @@ See cursades page.
 
 ## Africa
 - Nigeria
-  - 2015 shrine attack [here](http://www.bloomberg.com/news/articles/2015-05-21/christians-mimic-islamists-in-attacks-on-nigerian-cultural-sites).
+  - 2015 shrine attack [here](http://www.bloomberg.com/news/articles/2015-05-21/christians-mimic-islamists-in-attacks-on-nigerian-cultural-sites).
 
 ## Persia
 See separate page.

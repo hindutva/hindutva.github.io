@@ -14,7 +14,7 @@ The great chingiz temujin khAn conquered and started the empire (details [separa
 
 Thence emerged:
 
-- The Golden horde (urdu)/ Ulus of Jochi towards Russia, which after Öz Beg Khan declined due to internal conflict and Islamicized.
+- The Golden horde (urdu)/ Ulus of Jochi towards Russia, which after Öz Beg Khan declined due to internal conflict and Islamicized.
 - Remnants of (Chagatai) Tsagadaina Khaanat Ulus ruled over mughalistaan in Ferghana area - also islamicized.
     - gUrkhAni-s Timur and babur's mogols (displaced by Oirat-s) came thence.
 - House of Ögedei, later split and subsumed by chagatai and Tolui's descendents. 

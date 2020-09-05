@@ -28,5 +28,5 @@ title: Problem समस्या
 - Having to hide and secretly preserve one's polytheistic beliefs from dormant or active monotheist enforcers is irksome for polytheists. 
 - "Our Gods are real and desire and deserve devotion without being hidden inside an oppressive faith". 
 - Further, it is in a sense "claustrophobic" and ugly for polytheist devotees.
--  As a certain pUjA put it: "Sauron has reached out far and stretched his nazgul arms wide indeed. What will the hobbits do now? Gandalf? Aragorn? The elves? The hobbits are all drinking to their health in the Green Dragon while the shire, no - Middle earth, is threatened. Dark days are indeed at our doors. I hope the Frodo in us is kicked up back alive by the ever loyal Samwise."
+-  As a certain pUjA put it: "Sauron has reached out far and stretched his nazgul arms wide indeed. What will the hobbits do now? Gandalf? Aragorn? The elves? The hobbits are all drinking to their health in the Green Dragon while the shire, no - Middle earth, is threatened. Dark days are indeed at our doors. I hope the Frodo in us is kicked up back alive by the ever loyal Samwise."
 

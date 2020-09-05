@@ -39,7 +39,7 @@ Details follow.
 
 ### Examples
 
-- Eg: [dharmadeen list](http://dharmadeen.com/),[gay imam](http://www.spiegel.de/international/world/gay-muslim-imam-brings-message-of-tolerance-to-europe-a-985863.html#spRedirectedFrom=www&referrrer=http://t.co/EC09h1pcc4).
+- Eg: [dharmadeen list](http://dharmadeen.com/),[gay imam](http://www.spiegel.de/international/world/gay-muslim-imam-brings-message-of-tolerance-to-europe-a-985863.html#spRedirectedFrom=www&referrrer=http://t.co/EC09h1pcc4).
 
 ## Source of goodness
 

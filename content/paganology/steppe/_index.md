@@ -2,7 +2,7 @@
 title: +Steppe radiations
 ---
 
-- Summary - Huns→Blue Turks→China→Blue Turks→\[Arabs, Tibetans, various Turks, China\]→Uighurs→Kirghiz→Kitans→Mongols of Chingiz Kha’Khan \[[MT](https://manasataramgini.wordpress.com/2010/03/06/the-epic-on-stone/)\]
+- Summary - Huns→Blue Turks→China→Blue Turks→\[Arabs, Tibetans, various Turks, China\]→Uighurs→Kirghiz→Kitans→Mongols of Chingiz Kha’Khan \[[MT](https://manasataramgini.wordpress.com/2010/03/06/the-epic-on-stone/)\]
 
 ## IE invasions
 - "Indo-Europeans reached and probably overwhelmed the Eastern Steppes starting first around 5300 YBP symmetrically with the first invasion of western Europe. This eastern branch perhaps gave rise to the Tocharians though more data from the time Tocharian was actually attested would be useful. ... While the Afanasievo people who represent the 1st IE invasion of the east did not mix noticeably with the east Asians."

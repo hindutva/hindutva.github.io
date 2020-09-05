@@ -15,13 +15,13 @@ vanavAsI-s depicted in the kAvya-s:
 - ekalavya, great student of droNa.  
     
 
-Self identification of the vanavAsI-s: [ST2015-data](http://indiafacts.co.in/are-indian-tribals-hindus-the-figures/).
+Self identification of the vanavAsI-s: [ST2015-data](http://indiafacts.co.in/are-indian-tribals-hindus-the-figures/).
 
 ## Contrast with interactions with Abrahamisms
 
 Consider:  
 
-- [Prisoners of a White God](https://www.youtube.com/watch?v=2c5Xa5EOfuk) \- 2008 documentary on disastrous Christian missionary activity in the Akha populace.
+- [Prisoners of a White God](https://www.youtube.com/watch?v=2c5Xa5EOfuk) \- 2008 documentary on disastrous Christian missionary activity in the Akha populace.
 - Forced schooling and deracination of Native Americans, Eskimo-s, Australian aborignes by Christian missionaries.
 - As Vikram said: "In Eaton's book on the spread of Islam in East Bengal, one sees that soon after conversion and some direct contact with Arabia (pg 282-283) East Bengali Muslims started abandoning central tenets of their tribal identity and adopting a more Arabized culture. The same process can be seen continuing in Pakistan, Bangladesh and India even today.  
     

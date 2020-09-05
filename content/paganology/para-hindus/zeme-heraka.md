@@ -2,7 +2,7 @@
 title = "Zeme Heraka"
 +++
 
-A group of nAga-s inspired, by rAni Gaidinliu, has remained heathen, and has successfully resisted Christianization in Nagaland.
+A group of nAga-s inspired, by rAni Gaidinliu, has remained heathen, and has successfully resisted Christianization in Nagaland.
 
 ## Syncretism with Hinduism
 From Longkumer’s thesis ([pdf link](https://www.era.lib.ed.ac.uk/bitstream/handle/1842/2669/Longkumer%20A%20thesis%2008%20small.pdf?sequence=2)):
@@ -51,13 +51,13 @@ From Longkumer’s thesis ([pdf link](https://www.era.lib.ed.ac.uk/bitstream/han
 
 > The Heraka and Paupaise on the other hand see the use of zao as an important part of their tradition and the Heraka have gone to the extent of justifying its use by using the popular slogan ‘loss of culture is loss of identity’. Most Heraka will state that slogan in a drunken stupor. When I first went to the Heraka village, I was given a cup of zao at five in the morning at one of the homes I was visiting. This first drink was surrounded by apprehension; the first suspicion about any outsider is that they are missionaries. By accepting the cup of zao, I was no longer a Christian missionary or a Baptist in their minds. 1
 > 
-> … That is to say, becoming Christian immediately brings improvement ‘not just in self-esteem but in health, education, and the prospect of social and economic advancement’ (Brown 2002: 7) which the former (Heraka) did not. There is therefore intense competition between the Heraka and Christian to have control over these ‘resources’ (schools being the prime example), which is further intensified with evangelisation on the part of the Christian church to convert the Heraka; while the Heraka work hard to maintain the status quo.
+> … That is to say, becoming Christian immediately brings improvement ‘not just in self-esteem but in health, education, and the prospect of social and economic advancement’ (Brown 2002: 7) which the former (Heraka) did not. There is therefore intense competition between the Heraka and Christian to have control over these ‘resources’ (schools being the prime example), which is further intensified with evangelisation on the part of the Christian church to convert the Heraka; while the Heraka work hard to maintain the status quo.
 > 
-> … While these developmental trends continue with the aid of ‘Hindu’ organisations, there is clear opposition by the Christian majority who attempt to thwart their plans. In Hsongle, where the Christians form the majority in the village council, they have been able to influence the council vote against the running of a Heraka school because it is partnered with the VHP.
+> … While these developmental trends continue with the aid of ‘Hindu’ organisations, there is clear opposition by the Christian majority who attempt to thwart their plans. In Hsongle, where the Christians form the majority in the village council, they have been able to influence the council vote against the running of a Heraka school because it is partnered with the VHP.
 
  {{< figure src="../images/heraka/Sa6eJtM.png" title="" class="thumbnail">}}
 
-> … He told me that this ‘convert’ and his family had been disowned by his Heraka family and had been thrown out of his house and had nowhere to go. … I was witnessing a difficult displacement, not a massive mobilisation of population from one place to another, but of one family, clutching on to their possessions of cooking utensils, clothes, furniture and animals, and photos of Rani Gaidinliu in frames and tiny lockets around the neck of the mother and daughter. I could not help but wonder if they would dispense with those images?
+> … He told me that this ‘convert’ and his family had been disowned by his Heraka family and had been thrown out of his house and had nowhere to go. … I was witnessing a difficult displacement, not a massive mobilisation of population from one place to another, but of one family, clutching on to their possessions of cooking utensils, clothes, furniture and animals, and photos of Rani Gaidinliu in frames and tiny lockets around the neck of the mother and daughter. I could not help but wonder if they would dispense with those images?
 > 
 > …Moreover, he openly remarked that for him becoming Christian meant getting further education. He said he wanted to study theology. His intention, as many people told me (Heraka and Christian) was to develop his interest in politics and that, as he said, ‘becoming a Baptist would profit me, as Nagaland and most of the Nagas are Baptist and also the Baptists are the ones spear heading the movement for a Naga solution’. For Heseu, becoming Baptist speaks to his notion of a pan-Naga identity rooted in a particular understanding of Christianity.
 
@@ -112,7 +112,7 @@ From Longkumer’s thesis ([pdf link](https://www.era.lib.ed.ac.uk/bitstream/han
 > and instead rely on Government schools or schools started by the VHP like Saraswati  
 > Vidya Mandir, Vivekananda Vidyalaya and Kendriya Vidyalaya
 > 
-> … Although the Zeme Heraka have endorsed their support for a ‘Naga solution’, they are in a difficult position, especially with relation to the Indian state (with the support of the RSS and VHP) on  
+> … Although the Zeme Heraka have endorsed their support for a ‘Naga solution’, they are in a difficult position, especially with relation to the Indian state (with the support of the RSS and VHP) on  
 > the one hand, and the relation with the majority Christian Nagas on the other.
 > 
 > …The Heraka say that the Naga claim for independence should be based solely on the common ethnic links and not on religious affiliations.
@@ -123,4 +123,4 @@ From Longkumer’s thesis ([pdf link](https://www.era.lib.ed.ac.uk/bitstream/han
 > the Naga Christian vision of either/or as limiting and countered such accusations by  
 > stating her position that she was both Naga and Indian.
 > 
-> … In fact, the position of Rani Gaidinliu and the expression of her ‘Indianness’ as well as her ‘Naganess’ is something the Heraka does not want to draw attention to, due to the present political sensitivities. Naturally, the Heraka do not wish to commit to any single group or ideology in this system. Due to their ambiguous position, one gets the impression that the Heraka have to oscillate between these two powerful groups they have to confront and live with everyday.
+> … In fact, the position of Rani Gaidinliu and the expression of her ‘Indianness’ as well as her ‘Naganess’ is something the Heraka does not want to draw attention to, due to the present political sensitivities. Naturally, the Heraka do not wish to commit to any single group or ideology in this system. Due to their ambiguous position, one gets the impression that the Heraka have to oscillate between these two powerful groups they have to confront and live with everyday.

@@ -3,7 +3,7 @@ title: +shUdra
 ---
 
 ## shUdra challenges to hierarchy 
-Abhinavagupta on varNavyavasthA : "कृतयुगे सत्त्वोत्कर्षबलादेव सर्वः स्वधर्ममनुपालयति । अद्यत्वे तु राजसत्वाच्छूद्रप्रकाराः करणादिजातीयाः सर्वेऽखर्वगर्वाक्रान्ता वर्णत्रयानुवृत्तिं न विदधते । शास्त्रं भवद्भ्य एवमादिशतीति च ते वचनमात्रेण नाद्रियन्ते । " (Natyashastra, chapter. 1)
+Abhinavagupta on varNavyavasthA : "कृतयुगे सत्त्वोत्कर्षबलादेव सर्वः स्वधर्ममनुपालयति । अद्यत्वे तु राजसत्वाच्छूद्रप्रकाराः करणादिजातीयाः सर्वेऽखर्वगर्वाक्रान्ता वर्णत्रयानुवृत्तिं न विदधते । शास्त्रं भवद्भ्य एवमादिशतीति च ते वचनमात्रेण नाद्रियन्ते । " (Natyashastra, chapter. 1)
     - "In the kRtayuga, everyone was dominated by the attribute of sattva and therefore performed his/her respective duties. But in these times, sub-castes among shUdra-s such as the karaNa are dominated by rajas. Gripped by excessive pride, they do not obey the other 3 varNa-s "This is what the shastra-s enjoin for you" - this, they acknowledge not even at the level of words."
 
 ## Education and jAti

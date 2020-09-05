@@ -17,7 +17,7 @@ The varNa-s of varNamatI are four in number.
 ### Distinctive social functions
 - Offer spiritual and dhArmika guidance and services to the other varNa-s.
 - Update the dharmashAstra-s to suit newer circumstances, without abandoning:
-    -  the ancient spirit of bringing harmony out of social chaos,
+    -  the ancient spirit of bringing harmony out of social chaos,
     - the urge to protect the fitness of the society
     - the feeling of belonging in a universal web that extends far beyond just humanity.
 - Officers in the Administrative service.
@@ -47,7 +47,7 @@ The varNa-s of varNamatI are four in number.
 
 ### Eligibility
 - Military service (as an officer) in early youth. A few continue this duty for a lifetime.
-- Governance and administrative service after the prime of youth has passed. In particular this includes leadership in internal security services.
+- Governance and administrative service after the prime of youth has passed. In particular this includes leadership in internal security services.
 - Excellent knowledge of military tactics, history, foreign relations and statecraft.
     - Essential core: nItishAstra-s.
 - Intermediate knowledge of one current, major dharmashAstra; general knowledge of economics, science, society etc.. (as in the IAS exam).

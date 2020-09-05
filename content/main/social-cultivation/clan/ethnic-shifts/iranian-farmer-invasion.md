@@ -14,7 +14,7 @@ title: 01 Iranian farmer influx
 ## Rise of Harappa
 Indus Valley civilization (IVC) area were settled by a people heavy in Iranian Farmer input (over a prior IHG substrate). 
 
-- The shudra-s, early enemy of the Arya-s, may have been part of these people. \[[MT](https://twitter.com/blog_supplement/status/990301565436284935)\]
+- The shudra-s, early enemy of the Arya-s, may have been part of these people. \[[MT](https://twitter.com/blog_supplement/status/990301565436284935)\]
 - A prominent theory is that these people were referred to by neighboring civilizations as Meluḫḫa or Melukhkha (later giving rise to sanskrit mlecCha) \[[W](https://en.wikipedia.org/wiki/Meluhha)\].
 
 ## Rise of service jAti-s

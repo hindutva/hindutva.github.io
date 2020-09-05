@@ -17,7 +17,7 @@ unicode_script: devanagari
 ### Degenerate kShatriya concept
 - "Kṣatriyas physically survived in the Kali age, but by non-performance of their initiation for generations patitasāvitrika, they reached a śūdra like state."
 - kamalākara (citing his father Rāmakr̥ṣṇa) in **śūdrakamalākara**: "It cites the famous verse saying that there are only two Varnas in the Kali age. However, it cites other verses saying that there are Kṣatriyas and Vaisyas in the seed form even in the Kali age, and yet they have lost their dharma and have been reduced to the status of śūdras (cf. pracchannarūpāh svakarma-bhrastāḥ ksatriyā vaisyās ca santy eva kvacid ity asmatpitr̥caranāh, śūdrakamalākara, folios 93-94)."
--  **parAkhya-saMhitA** - amadyapaḥ kulīnaśca, nityaṃ dharma parāyaṇaḥ | śūdraḥ kṣatriyavat jñeyaś, śeṣā nindyās tato bhṛśam ||
+-  **parAkhya-saMhitA** - amadyapaḥ kulīnaśca, nityaṃ dharma parāyaṇaḥ | śūdraḥ kṣatriyavat jñeyaś, śeṣā nindyās tato bhṛśam ||
 
 ### Continuous saMskAra cases
 In some cases, one may argue that despite stories of their elimination, some kShatriya clans survived and maintained an unbroken tradition of basic saMskAra-s. 
@@ -28,7 +28,7 @@ In some cases, one may argue that despite stories of their elimination, some kSh
 - On these points, Nāgeśabhaṭṭa differed from Gāgābhaṭṭa, and Nāgeśabhaṭṭa's views continued to influence his successors like Nilakaṇṭha Shastri Thane.
 
 ## HiraNyagarbha rite
-- A kShatriya-wannabe could perform the hiraNyagarbha rite (atharva-veda-parishiShTa [13.2](http://gretil.sub.uni-goettingen.de/gretil/1_sanskr/1_veda/5_vedang/2_paris/avpari_u.htm) morphed with regional anukalpa-s and paddhati-s).
+- A kShatriya-wannabe could perform the hiraNyagarbha rite (atharva-veda-parishiShTa [13.2](http://gretil.sub.uni-goettingen.de/gretil/1_sanskr/1_veda/5_vedang/2_paris/avpari_u.htm) morphed with regional anukalpa-s and paddhati-s).
 - According to practice and paddhati-s, this involves offering up a golden calf (sometimes substituted by bronze as by vIrarAghava nAyaka).
-- The yajamAna is popularly considered to have taken a second birth (parishiShTa clues - rājā hiraṇyagarbhatvam abhīpsaty asmin bhavanto 'numanyantām iti.  ).
-- The phala is very general, according to the parishiShTa - whatever the brAhmaNa-s grant. 
+- The yajamAna is popularly considered to have taken a second birth (parishiShTa clues - rājā hiraṇyagarbhatvam abhīpsaty asmin bhavanto 'numanyantām iti.  ).
+- The phala is very general, according to the parishiShTa - whatever the brAhmaNa-s grant. 

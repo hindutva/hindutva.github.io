@@ -8,7 +8,7 @@ Was there a creation? Then, there is the question of the creator - was it intell
 Varied views:
 
 - kumArIla-bhaTTa the mImAMsaka rejects the notion of a creator or creation as implausible and hard to establish ([eng_gj](https://archive.org/stream/slokavartika015341mbp#page/n427/mode/2up), [sa_kb](https://archive.org/details/in.ernet.dli.2015.273885/page/n667)).
-- The Samkhyakarika accepts the notion of higher selves or perfected beings but rejects the notion of God. \[[sk](https://books.google.co.in/books?id=PoaMFmS1_lEC&pg=PA258#v=onepage&q&f=false)\]
+- The Samkhyakarika accepts the notion of higher selves or perfected beings but rejects the notion of God. \[[sk](https://books.google.co.in/books?id=PoaMFmS1_lEC&pg=PA258#v=onepage&q&f=false)\]
 - Various other darshana-s suppose that an intelligent Ishvara created the universe.
 
 ## Whence creation and suffering

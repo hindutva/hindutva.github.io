@@ -6,7 +6,7 @@ A personal note: I enjoy chanting (especially bits of the vEda-s I know), doing 
 
 ## The goal
 
-Hindu self-cultivation gives one joy, satisfaction, and strength to follow and achieve the various [goals of life](../../tattvam/puruShArtha/), including [dharma](../../social-cultivation/dharma/). This includes attainment of mystic "highs" as a matter of course. With spiritual practices and saMskAra-s, a hindu gets both intellectual and emotional appreciation for his place in the world-tree.
+Hindu self-cultivation gives one joy, satisfaction, and strength to follow and achieve the various [goals of life](../../tattvam/puruShArtha/), including [dharma](../../social-cultivation/dharma/). This includes attainment of mystic "highs" as a matter of course. With spiritual practices and saMskAra-s, a hindu gets both intellectual and emotional appreciation for his place in the world-tree.
 
 ## Genetics and circumstance
 One's circumstance determines to a great extant the level of practice and conservativism suitable for oneself. Genetics is a great determinant of conservativism vs liberalism, for example.

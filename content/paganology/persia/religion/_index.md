@@ -11,8 +11,8 @@ See separate pages
 
 
 ## Influence on Islam
-- Ossification, Schism of the liberals, consequences [WP1](https://agnimaan.wordpress.com/2015/08/31/a-hindu-perspective-on-zoroastrians-schism-of-the-liberals-and-its-dangers/).
-- “Borrow but curse” dynamic in schisms [WP2](https://agnimaan.wordpress.com/2015/08/31/borrow-but-curse-dynamic-in-schisms/).
+- Ossification, Schism of the liberals, consequences [WP1](https://agnimaan.wordpress.com/2015/08/31/a-hindu-perspective-on-zoroastrians-schism-of-the-liberals-and-its-dangers/).
+- “Borrow but curse” dynamic in schisms [WP2](https://agnimaan.wordpress.com/2015/08/31/borrow-but-curse-dynamic-in-schisms/).
 
 ## India refuge
 - the great dastur nairyOsangha (who was the first to “discover” the Indo-Iranian monophyly) was well versed in saMskRta.
@@ -20,5 +20,5 @@ See separate pages
 
 ## Present.
 ### Recent revival of interest
-- Iran : Muslim vs Iranian identity crisis [TO16](http://www.thetower.org/article/the-religion-that-the-iranian-mullahs-fear-most-zoroastrianism/?utm_content=buffer28b7a&utm_medium=social&utm_source=twitter.com&utm_campaign=buffer).
+- Iran : Muslim vs Iranian identity crisis [TO16](http://www.thetower.org/article/the-religion-that-the-iranian-mullahs-fear-most-zoroastrianism/?utm_content=buffer28b7a&utm_medium=social&utm_source=twitter.com&utm_campaign=buffer).
 - Kurdistan: [AC18](https://www.academia.edu/36188583/_Zoroaster_was_a_Kurd_Neo-Zoroastrianism_among_the_Iraqi_Kurds).

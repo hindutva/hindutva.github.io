@@ -29,13 +29,13 @@ title: +Problems
 
 #### Of the abrahamists
 
-- See [here](../../../rivals/abe-disease/islam/intro/).
+- See [here](../../../rivals/abe-disease/islam/intro/).
 
 #### Of the Indian left
 
 Yogindar Sikand's piece typifies the racinomisia-filled attitude of the "[Indian Left](http://www.countercurrents.org/sikand190412.htm)".
 
-The mechanism and effects of this influence has been explored in detail in ["Breaking India: Western Interventions in Dravidian and Dalit Faultlines"](http://www.breakingindia.com/) by Rajiv Malhotra and Aravindan Neelakandan.
+The mechanism and effects of this influence has been explored in detail in ["Breaking India: Western Interventions in Dravidian and Dalit Faultlines"](http://www.breakingindia.com/) by Rajiv Malhotra and Aravindan Neelakandan.
 
 ## External to hindu-s
 - Abrahamist subversion, tending towards eventual domination, in India

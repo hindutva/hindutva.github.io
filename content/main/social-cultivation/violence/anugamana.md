@@ -23,7 +23,7 @@ Ritual suicide of widows (including at the husband's funeral pyre).
 ## Practice
 - "Nevertheless, one shouldn’t foolishly imagine that this spread of sahagamana translated into a large number of satis. Overall, it was a very small number everywhere in bhArata. The real value of the so-called reformers’ contributions should thus be carefully re-evaluated. ... There is epigraphic data which reflects many widows being patrons of pious works/endowments, who commanded high respect. But more importantly, sahagamana was simply not a reality for the vast majority of cases (See Meenakshi Jain)."
 - "As per numerous testimonies, most self-immolating widows went into the pyre voluntarily, often overcoming pressure from their relatives or from the authorities not to do it."
-- "It was confined to the real or would-be warrior castes, though, in keeping with their ethos of pride and passion."
+- "It was confined to the real or would-be warrior castes, though, in keeping with their ethos of pride and passion."
 
 ### Bengal misuse
 
@@ -47,4 +47,4 @@ From [GA19](https://threadreaderapp.com/thread/1133361296047349760.html):
 
 
 ## Other references
-- Koenraad Elst for more details [here](http://www.hinduhumanrights.info/sati-and-hinduism/), sati-strategy [here](https://bharatabharati.wordpress.com/2016/03/24/the-sati-strategy-koenraad-elst/).
+- Koenraad Elst for more details [here](http://www.hinduhumanrights.info/sati-and-hinduism/), sati-strategy [here](https://bharatabharati.wordpress.com/2016/03/24/the-sati-strategy-koenraad-elst/).

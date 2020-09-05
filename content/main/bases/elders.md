@@ -13,9 +13,9 @@ title: शिष्टः Role-models
 
 - One's shiShTa may be another's non-shiShTa. Examples:
     - southern brAhmaNa-s violating sApiNDya prohibitions in marriage are rejected as a valid source of dharma by northerners.
-    - mAdhva account of madhva's sannyAsa casting the shAnkara tradition as Asurika is found in 7-9 sargas of nArAyaNa paNDitarAja's maNimanjari \[[pdf](https://archive.org/details/ManimanjariOfNarayanaPandita/page/n21)\]. 
+    - mAdhva account of madhva's sannyAsa casting the shAnkara tradition as Asurika is found in 7-9 sargas of nArAyaNa paNDitarAja's maNimanjari \[[pdf](https://archive.org/details/ManimanjariOfNarayanaPandita/page/n21)\]. 
     - The bauddha-taint
-        - pracChanna-bauddhatA charge by bhAskara and rAmAnuja [BVP17](https://groups.google.com/d/msg/bvparishat/kZikXaymSIw/Ej9695exBAAJ).
+        - pracChanna-bauddhatA charge by bhAskara and rAmAnuja [BVP17](https://groups.google.com/d/msg/bvparishat/kZikXaymSIw/Ej9695exBAAJ).
 
 - One can never really tell if some traditional practice or non-practice originated from some respectable lost authority (sage or text) or from weakness / laxity at some point in time.
 - It can be hard to tell exactly how role-models of the (distant) past behaved or thought.

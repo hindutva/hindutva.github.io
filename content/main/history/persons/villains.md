@@ -22,7 +22,7 @@ Where there are heroes, villains are no surprise. Many were self-professed ghAzi
 - [sikandar bhUt-shikAn](http://en.wikipedia.org/wiki/Sikandar_Butshikan), as his title suggests, the idol-breaker sultAn of kAshmIr, who fuelled with the mad zeal of the sUfi-s, also delighted in burning critical books, giving the usual convert-or-die choice to hindu-s, who banned music and festivity. A true exemplar of "kAshmIriyat".  
 
 - Ghiyasuddin Al Damaghani, sultan of madurai, whose depravity is described by Ibn Batuta \[[AS16](https://agentsaffron.wordpress.com/2016/05/14/the-saviors-of-dharma-in-south-india-part-1/)\].
-- mahmUd beragha, sultAn of gujarAt, a  monstrous person who ate 100 mutton samosa-s a day with a pot of ghee daily, destroyed temples, had an appetite for seizing Hindu women to add to his harem ([MT](https://manasataramgini.wordpress.com/2008/08/06/a-pashupata-temple-desecrated-by-mahmud-begarha/)).
+- mahmUd beragha, sultAn of gujarAt, a  monstrous person who ate 100 mutton samosa-s a day with a pot of ghee daily, destroyed temples, had an appetite for seizing Hindu women to add to his harem ([MT](https://manasataramgini.wordpress.com/2008/08/06/a-pashupata-temple-desecrated-by-mahmud-begarha/)).
 - kAlA-pahAD, formerly ferocious oriya general rAjIv lochan ray who converted to islam because of fury at orthodox blockage of desire to marry the paThan sultan's daughter, who raided jagannAtha-purI, supposedly murdered by gajapati remnants (such as princess sAmbhaleshvarI).  
 
 - [awrangzib](http://en.wikipedia.org/wiki/Aurangzeb), [impozer](http://www.aurangzeb.info/) of jizya, destroyer of temples (बिन्दु-माधव [ट्१](../../../images/snippets/awrangzeb-bindu-mAdhav-edict.jpg)).
@@ -43,7 +43,7 @@ Where there are heroes, villains are no surprise. Many were self-professed ghAzi
 ### Various traitor marATha-s:
 - Bhim Singh, who was conferred the title Raja Ghorpade Bahadur (Dakkani word for the Varanus lizard) by the Sultan at the behest of minister Gavan and his brother.
   - "The Turks advanced again, and Appaji decided to hold them up using the same tactic of defending from the well-fortified Vishalgad. However, Karan Singh and Bhim Singh were breeders of the Varanus lizard which they used in climbing forts. Accordingly Karan and Bhim decided to help the Moslems in taking the fort, in return for the province of Wai. Karan and Bhim sent out several lizards to scale the precipice on which the fort was located with ropes tied to them. With the aid of these ropes they climbed the fort and sent down rope ladders for more men to follow them. Then they cut their way to the main fort gate and opened it. In the process Karan Singh was killed by the Hindu defenders but the Moslems managed to get in and massacred Appaji and his men. With the fall of Vishalgad, Mahmud Gavan attacked the Chalukyan army by surprise at Samgameshvar." [MT](https://manasataramgini.wordpress.com/2004/04/06/war-in-the-konkan/)
-- [raghunAth rAv](http://en.wikipedia.org/wiki/Raghunathrao), the highly capable but power-hungry uncle of the good peshvA [mAdhav rAv](http://en.wikipedia.org/wiki/Raghunathrao), whose machinations and alliances with enemy powers only weakened the marATha confrederacy.
+- [raghunAth rAv](http://en.wikipedia.org/wiki/Raghunathrao), the highly capable but power-hungry uncle of the good peshvA [mAdhav rAv](http://en.wikipedia.org/wiki/Raghunathrao), whose machinations and alliances with enemy powers only weakened the marATha confrederacy.
 - AnandI-bAyi, power-hungry wife of raghunAth rAv, murdress.
 - murAri rao, servant of the Qutub Shahi, who stole the Ahobilam idol
 - paTTavardhana who stole the hiNDi of tirupati
@@ -53,4 +53,4 @@ Where there are heroes, villains are no surprise. Many were self-professed ghAzi
 
 These bring the sanAtana dharma to disrepute, even as they deceive feeble hindu-s.
 
--  Swami Nithyananda - the center of a sex scandal in 2010s. There was a [video](https://www.indiatvnews.com/news/india/new-video-nithyananda-celebrating-father-s-body-16939.html) where he gleefully dances over his father's corpse, then 'liberates' it by stomping on its forehead, gives it diksha post mortem, and declares it a sishya-turned-sanyasi.
+-  Swami Nithyananda - the center of a sex scandal in 2010s. There was a [video](https://www.indiatvnews.com/news/india/new-video-nithyananda-celebrating-father-s-body-16939.html) where he gleefully dances over his father's corpse, then 'liberates' it by stomping on its forehead, gives it diksha post mortem, and declares it a sishya-turned-sanyasi.

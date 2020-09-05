@@ -23,7 +23,7 @@ Why make a list? Maybe this interests others. Helps organize one's thoughts on t
 
 ## Other lists
 
-- Vishal Agarwal [here](https://archive.org/details/HinduHeroesComplete) (no implied endorsement of the tales or narrative presented there).
+- Vishal Agarwal [here](https://archive.org/details/HinduHeroesComplete) (no implied endorsement of the tales or narrative presented there).
 
 ### Flags
 

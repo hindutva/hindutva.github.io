@@ -2,7 +2,7 @@
 title: +Islam मरून्मादः
 ---
 
-TL;DR : Muslim society is undesirable, despite a supposedly tolerant yet silent majority.
+TL;DR : Muslim society is undesirable, despite a supposedly tolerant yet silent majority.
 
 ## Intro
 Islam is the third major strain of Abraham's disease, where a "bug" in the previous versions (that there can be multiple prophets) was fixed by making Muhammad the final prophet. 

@@ -4,15 +4,15 @@ title: Participation
 
 ## National Involvement
 
-- Mygov [forum](http://mygov.nic.in/group_info/bangalore-urban). (can't start new discussion topics.)
-- PMO [message](http://pmindia.gov.in/en/interact-with-honble-pm/).
+- Mygov [forum](http://mygov.nic.in/group_info/bangalore-urban). (can't start new discussion topics.)
+- PMO [message](http://pmindia.gov.in/en/interact-with-honble-pm/).
 
 ## Investigations
 
 On the anticipated fraction of Abrahamists in India.
 
 - How to file an RTI?
-    - [onlinerti.com](http://onlinerti.com/) ( Looks like only Indian credit cards work there though.)
+    - [onlinerti.com](http://onlinerti.com/) ( Looks like only Indian credit cards work there though.)
     - Prior RTI-s
         - Muzrai department and Waqf board - incomes vs expenditure. (??)
 

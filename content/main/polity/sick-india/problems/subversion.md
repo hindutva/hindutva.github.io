@@ -19,7 +19,7 @@ Some psy-ops operations have synergy with memetic diseases (feminazis, SJW-s, si
 ## Major subverters
 - Church-machinery subversion
 - US subversion
-    - Mostly follows the same pattern as described by Yuri Bezmenov below.
+    - Mostly follows the same pattern as described by Yuri Bezmenov below.
     - khalistani support.
 - pAkistAn subversion
     - kAshmIr terrorism

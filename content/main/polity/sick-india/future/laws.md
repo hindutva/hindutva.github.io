@@ -4,7 +4,7 @@ title: Law ideas
 
 ## Hindu ethos
 - Examples
-  - Israel example [here](http://www.haaretz.com/news/national/1.628365). 
+  - Israel example [here](http://www.haaretz.com/news/national/1.628365). 
   - Burma's "protection of race and religion" laws here.
 - Stop favoring non-hindu/ anti-hindu religions, and unnecessarily controlling hindu affairs.  
 - Temple control out of sickular government hands.
@@ -12,11 +12,11 @@ title: Law ideas
 - Various cases of double standards by Indian courts should be curbed.
     - jalli kaTTu, dahi haNDi limitations vs ashura ([TW16](https://twitter.com/SirZaidHamid/status/786456228989919233)).
 - This 2012 rioting bill with special treatment against the "majority" should be trashed.
-- The Indian government, at long last, was ordered to stop providing [haj subsidies](http://timesofindia.indiatimes.com/india/Muslim-leaders-welcome-Supreme-Courts-decision-to-abolish-Haj-subsidy/articleshow/13052845.cms/?utm_source=facebook&utm_medium=toionFB) to muslim pilgrims.
+- The Indian government, at long last, was ordered to stop providing [haj subsidies](http://timesofindia.indiatimes.com/india/Muslim-leaders-welcome-Supreme-Courts-decision-to-abolish-Haj-subsidy/articleshow/13052845.cms/?utm_source=facebook&utm_medium=toionFB) to muslim pilgrims.
 - Stop giving easy loans to people just because they are not Hindu-s.
 - Hindu soldiers must be allowed to wear religious symbols. \[[N](http://wwrn.org/articles/13806/?&place=india&section=church-state)\]      
 - Language
-    - Transition towards use of Prakrits (at state level) and Sanskrit at national level for adminitration and governance (Carl's [slides](http://www.slideshare.net/sankrant1/language-policy-for-a-new-india-v1)).  
+    - Transition towards use of Prakrits (at state level) and Sanskrit at national level for adminitration and governance (Carl's [slides](http://www.slideshare.net/sankrant1/language-policy-for-a-new-india-v1)).  
     - Imposition of local language on migrants and consequential regionalism are a huge drain on our human resources \[[MT16](https://twitter.com/blog_supplement/status/748000183108177921)\].
 
 ## Containing abe's diseases

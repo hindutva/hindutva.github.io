@@ -12,7 +12,7 @@ title: Non-evil
 ## asura-s, rAxasa-s
 - Texts mention asura-s (including daitya-s like hiraNyakashipu and bali, dAnava-s like maya) and rAxasa-s (like rAvaNa)
 - "asura is used as an apithet of varuNa, rudra and, wait, indra himself in the Rgveda"
--  one of the classic (but obscure to modern hindu) synonyms for asura-s is "पूर्वदेव" (= former deva-s, now fallen into a corrupt station)
+-  one of the classic (but obscure to modern hindu) synonyms for asura-s is "पूर्वदेव" (= former deva-s, now fallen into a corrupt station)
 - Stories of asura-deva-battles are not to be taken literally, according to the veda-s themselves (eg: [shatapatha-brAhmaNa asura-parAbhava part in 11.1.6](https://vvasuki.github.io/saMskAra/kalpaH/brAhmaNam/shatapatha-asura-parAbhavaH/)).
 
 ### Adoration
@@ -26,7 +26,7 @@ title: Non-evil
 
 ### Distinctions
 - In several works, the distinction between asura-s and rAxasa-s is clear.
-  - rAmAyaNa [IMG](https://imgur.com/BTgmS4S).
+  - rAmAyaNa [IMG](https://imgur.com/BTgmS4S).
   - amarakosha
       - असुरा दैत्यदैतेयदनुजेन्द्रारिदानवाः। शुक्रशिष्या दितिसुताः पूर्वदेवाः सुरद्विषः॥
       - राक्षसः कौणपः क्रव्यात्क्रव्यादोऽस्रप आशरः॥

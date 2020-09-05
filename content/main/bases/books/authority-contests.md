@@ -4,7 +4,7 @@ title: Pedigree and corruption
 
 ## Intro
 Scholars have been selective about deciding whether any book's statement can be taken as authoritative.
-- Patanjali (in पस्पशाह्निकम् , महाभाष्यम् ) cautions "क्व पुनरिदं  पठितम् ?  भ्राजा नाम श्लोकाः । किंच भोः श्लोका अपि प्रमाणम् ?  किंचातः ? यदि प्रमाणम् , अयमपि प्रमाणम् भवितुम् अर्हति ..... प्रमत्तगीत एष तत्रभवतः । यस्तु अप्रमत्तगीतः तत्प्रमाणम् ।"
+- Patanjali (in पस्पशाह्निकम् , महाभाष्यम् ) cautions "क्व पुनरिदं  पठितम् ?  भ्राजा नाम श्लोकाः । किंच भोः श्लोका अपि प्रमाणम् ?  किंचातः ? यदि प्रमाणम् , अयमपि प्रमाणम् भवितुम् अर्हति ..... प्रमत्तगीत एष तत्रभवतः । यस्तु अप्रमत्तगीतः तत्प्रमाणम् ।"
 
 
 ## Bases of authority
@@ -17,7 +17,7 @@ Scholars have been selective about deciding whether any book's statement can be 
 
 ## Challenges to authority claims
 ### Interpolation
-- A position adopted by the likes of madhvAcArya is that many works (especially itihAsa-s and purANa-s) contains interpolations, deletions and corruptions. \[[MTN](http://mahabharata-resources.org/mbtntrans/chapter_2_gururajahrao.pdf)  2.3\]
+- A position adopted by the likes of madhvAcArya is that many works (especially itihAsa-s and purANa-s) contains interpolations, deletions and corruptions. \[[MTN](http://mahabharata-resources.org/mbtntrans/chapter_2_gururajahrao.pdf)  2.3\]
 - advaitins consider the Padma Purana verse equating Mayavada and crypto-Buddhism as an interpolation.
 - vedAntadeshika pointed out that some use fabricated texts, ascribing them to vyAsa.
 - bhaviShyapurANa
@@ -39,5 +39,5 @@ Scholars have been selective about deciding whether any book's statement can be 
 - Consider the analogous role of myths showing conflicts among the deva-s.
 - Even the mutual bickering among brAhmaNa-s of veda shAkhA-s was harmonized in this way by the sUtra period.
 
-## Interesting notes: 
-- Incorporation of oShadhi-based-shAmanism - [MT](https://manasataramgini.wordpress.com/2007/04/18/keshi-visham/).
+## Interesting notes: 
+- Incorporation of oShadhi-based-shAmanism - [MT](https://manasataramgini.wordpress.com/2007/04/18/keshi-visham/).

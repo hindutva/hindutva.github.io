@@ -6,12 +6,12 @@ title: Linguistics
 
 These were all accompanied by fairly massive invasions and gene movement.
 
-- Take dominance of Turkish in Turkey, 
-- of Spanish in South and middle America, 
-- of English in North America, Australia and Africa, 
-- of Arabic in Egypt and North Africa, 
-- of Chinese in Tibet and the Uighur land, 
-- Japanese in Hokkaido, 
+- Take dominance of Turkish in Turkey, 
+- of Spanish in South and middle America, 
+- of English in North America, Australia and Africa, 
+- of Arabic in Egypt and North Africa, 
+- of Chinese in Tibet and the Uighur land, 
+- Japanese in Hokkaido, 
 - Russian in Eastern Siberia
 - Sinhalese in Lanka
 - Indic influence in South East Asia was accompanied by great population movement and domination (~5% of Cambodian ancestry seems to be Indian)
