@@ -8,4 +8,4 @@ title: ०२ Muted intolerance
 
 ## Failed proscription of Christianity
 - At one point in time, Christians were required to prove fealty to the Roman deities by sacrifice (disallowed in Christianity) certified in a scroll.
-- Christian exaggerations - [C Moss](https://www.amazon.com/Myth-Persecution-Christians-Invented-Martyrdom-ebook/dp/B0089LOOF4/ref=asap_bc?ie=UTF8)
+- Christian exaggerations - [C Moss](https://www.amazon.com/Myth-Persecution-Christians-Invented-Martyrdom-ebook/dp/B0089LOOF4/ref=asap_bc?ie=UTF8)

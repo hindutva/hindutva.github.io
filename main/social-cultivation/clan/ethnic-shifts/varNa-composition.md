@@ -16,5 +16,5 @@ from individuals with high HG ancestry into higher varNa-s. Their incorporation 
 ## shUdras
 - shUdras- these seem to represent a mixture of individuals, namely:
     - "those of Indo-Aryan ethnic and linguistic origins, but outside of the pale of the pa~nchajana-ikShvAku orthodoxy" \[[MT1](https://manasataramgini.wordpress.com/2004/09/01/inter-caste-strife/)\]
-    - "Non-Indo-Aryan peoples of various origins." \[[MT1](https://manasataramgini.wordpress.com/2004/09/01/inter-caste-strife/)\]
+    - "Non-Indo-Aryan peoples of various origins." \[[MT1](https://manasataramgini.wordpress.com/2004/09/01/inter-caste-strife/)\]
     - See notes on early conflict with Arya-s leading to restrictions above.

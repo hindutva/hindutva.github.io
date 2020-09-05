@@ -3,7 +3,7 @@ title: vIra sAvarkar
 ---
 
 ## Intro
-vIra [vinAyaka dAmodara sAvarkara](http://en.wikipedia.org/wiki/Savarkar); chitpAvana, hindu nationalist, the visionary who caused massive Hindu recruitment into the British Indian army - a factor which would prove critical during partition, social reformer.
+vIra [vinAyaka dAmodara sAvarkara](http://en.wikipedia.org/wiki/Savarkar); chitpAvana, hindu nationalist, the visionary who caused massive Hindu recruitment into the British Indian army - a factor which would prove critical during partition, social reformer.
 
 ## Pro independence contributions
 - The first political leader to daringly set Absolute Political Independence as India's goal (1900). Daringly performed a bonfire of foreign (English) clothes (1905). Organized revolutionary movement for Bharat's Independence on international level (1906).
@@ -37,7 +37,7 @@ This was all in 1908-1910. In the '20s, another great Indian patriot Bhagat Sing
 ## Imprisonment in Cellular jail
 - Sentenced to Transportation for Life twice, a sentence unparalleled in the history of the British Empire.
 - A fragile poet, deprived of pen and paper, composed his poems and then wrote them on the prison walls with thorns and nails, memorized ten thousand lines of his poetry for years and later transmitted them to India through his fellow-prisoners who also memorized these lines.
-- survivor of the cellular jail who made tactical peace with the British (in accordance with nIti-s of सन्धि, विग्रह, यान, आसन, द्वैधीभाव and समाश्रय )
+- survivor of the cellular jail who made tactical peace with the British (in accordance with nIti-s of सन्धि, विग्रह, यान, आसन, द्वैधीभाव and समाश्रय )
 
 ## Hindu consolidation
 - A Ganeshotsava open to all Hindus including ex-untouchables (1930). Interdining ceremonies of all Hindus including ex-untouchables (1931). "Patitpavan Mandir", open to all Hindus including ex-untouchables (22 February 1931).

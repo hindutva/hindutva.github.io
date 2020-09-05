@@ -1,11 +1,11 @@
 ---
 title: +Abrahamisms
 ---
- 
+ 
 
 ![](https://i.imgur.com/oqx33bV.jpg?1)
 
-"If Hinduism is a single religion, consistency requires Judaism, Xianity & Islam be categorised as sects of a single religion." \- Stietencron  
+"If Hinduism is a single religion, consistency requires Judaism, Xianity & Islam be categorised as sects of a single religion." \- Stietencron  
 
 ## Cure
 - "Even if one is truly cured of an abrahma-ruj one can have a lifelong chronic inflammatory condition — this is seen among some mleccha atheists and neo-heathens. That inflammatory condition can be seen in the form of destructive dur-vāsana-s persisting among them." See Neo-pagan part of [compatibility page](../../../polity/external-affairs/population-compatibility/).
@@ -22,7 +22,7 @@ title: +Abrahamisms
 
 ## Common politico military expressions
 
-- "The Habsburg monarch Karl (Charles) V saw himself as the lord of the Catholics leading them in the crusade against infidels. The tsar of Russia Ivan IV saw himself as the lord of the orthodox church leading them in their own religious war. In the Mohammedan world Suleyman was accompanied by Shah Ismail of Iran who saw himself as a jihadist for the Shia cause. Further east, Padishah Akbar saw himself as the true ghazi who was rooting out the kaffirs of Hind. The trajectory each of these took was to set the tune of history to this date. " \[[MT](https://manasataramgini.wordpress.com/2009/09/23/turushkanam-madhyahna/)\]
+- "The Habsburg monarch Karl (Charles) V saw himself as the lord of the Catholics leading them in the crusade against infidels. The tsar of Russia Ivan IV saw himself as the lord of the orthodox church leading them in their own religious war. In the Mohammedan world Suleyman was accompanied by Shah Ismail of Iran who saw himself as a jihadist for the Shia cause. Further east, Padishah Akbar saw himself as the true ghazi who was rooting out the kaffirs of Hind. The trajectory each of these took was to set the tune of history to this date. " \[[MT](https://manasataramgini.wordpress.com/2009/09/23/turushkanam-madhyahna/)\]
 
 ### Intra-monotheistic alliances
 

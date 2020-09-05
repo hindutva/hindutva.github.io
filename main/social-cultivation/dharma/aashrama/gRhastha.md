@@ -7,7 +7,7 @@ Family, rather than the individual, is the true unit of a great society.
 ## Main purpose
 - Production of offspring
 - Supporting other Ashrama-s (brahmachArin-s, sannyAsin-s)
-- Harmonious achievement of dharma, artha, kAma.
+- Harmonious achievement of dharma, artha, kAma.
 
 ## The bond
 - Co-sacrificer relationship: yajamAna-patnI
@@ -16,7 +16,7 @@ Family, rather than the individual, is the true unit of a great society.
 - guru-shishyA relationship: [IMG](https://imgur.com/SrLfzQd).
 
 ## Child marriage.
-- shatAvadhAnI gaNesh's view [here](https://www.youtube.com/watch?v=kXustFOkOr4&feature=em-uploademail).
+- shatAvadhAnI gaNesh's view [here](https://www.youtube.com/watch?v=kXustFOkOr4&feature=em-uploademail).
 - Child marriage is referred to in the distant past, but very rarely.
 - Consummation ritual ought to happen on the fourth day of marriage - this indicates that adult marriage was intended. But later practice changed this and introduced a delay. \[[TW17](https://twitter.com/agnimaan/status/849856736110362624)\]
 - Common ages of marriage, classically, were: 20 for men (having completed 12 years of education starting at 8) and about 16 for women.
@@ -24,7 +24,7 @@ Family, rather than the individual, is the true unit of a great society.
 
 ## Inbreeding
 - prohibited by manu
-- Prevelant (in the past and an few pockets now) in south india (eg among shrautins: [IMG](https://imgur.com/9mKPIOJ)).
+- Prevelant (in the past and an few pockets now) in south india (eg among shrautins: [IMG](https://imgur.com/9mKPIOJ)).
 
 
 ## Divorce
@@ -40,8 +40,8 @@ Family, rather than the individual, is the true unit of a great society.
 - "For a widow, on the other hand, Dharmashastras prescribe three different paths: Anugamana, Vidwavrata, and Punar-vivaaha[13]. While texts like Parashara Smriti (4.28-30) mention all the three paths, other texts mention only one or two options. ... Vidhwavrata, on the other hand, takes on elements from both Sannyasa and Apatnika paths of the widowers. ... Parashara Smriti (4.28) clearly allowing remarriage for women under five circumstances for Kaliyuga— if husband is missing, dead, has renounced the world, is impotent, or if he commits severe Adharmic actions— which pretty much covers all legitimate grounds; except for Ishwar Chandra Vidyasagar, no Dharmashastra writer or commentator has written much about widow remarriage. " - [Nithin](http://indiafacts.org/sati-dharmic-perspective/#_ednref14)
 
 ### Widow remarriage / status.
-- UN report about widows left in vArANAsi : [here](https://www.youtube.com/watch?v=_SxPv5aQP0c).
-- shatAvadhAnI gaNesh's view [here](https://www.youtube.com/watch?v=kXustFOkOr4&feature=em-uploademail) paints a sympathetic picture of such women before 1k years.
+- UN report about widows left in vArANAsi : [here](https://www.youtube.com/watch?v=_SxPv5aQP0c).
+- shatAvadhAnI gaNesh's view [here](https://www.youtube.com/watch?v=kXustFOkOr4&feature=em-uploademail) paints a sympathetic picture of such women before 1k years.
 
 ## Current subversion
 - Bride quality is a matter of serious concern. Hope parents of daughters do a good job.

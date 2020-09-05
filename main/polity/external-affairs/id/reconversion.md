@@ -3,7 +3,7 @@ title: Reconversion
 ---
 
 ## Hindu law:
-- Reconversion to the hindu ethos was codified in the devala-smRti \[[PVK_IMG1](https://imgur.com/8ZlWt2a), [TW17](https://twitter.com/vajrayudha11/status/865964633894649856)\] and Vignaneswara’s commentary to Yagyavalkya Smriti \[[S](http://swarajyamag.com/culture/caste-is-hardly-an-impediment-for-homecoming-hindus/)\].
+- Reconversion to the hindu ethos was codified in the devala-smRti \[[PVK_IMG1](https://imgur.com/8ZlWt2a), [TW17](https://twitter.com/vajrayudha11/status/865964633894649856)\] and Vignaneswara’s commentary to Yagyavalkya Smriti \[[S](http://swarajyamag.com/culture/caste-is-hardly-an-impediment-for-homecoming-hindus/)\].
 
 ## Risks from converts
 While Hindus get all excited (and rightly so) about foreigners taking to their religion; one must note that foreign converts to Hinduism bring with them significant risks - so, caution is appropriate:

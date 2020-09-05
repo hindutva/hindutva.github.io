@@ -3,7 +3,7 @@ title = "K to men"
 +++
 
 ## Intro
-- Title: Marriage advice for Hindu snAtaka-s
+- Title: Marriage advice for Hindu snAtaka-s
 - Date: Apr 2018
 - Background of author: practicing gRhya ritualist and gRhastha; engineer and scholar.
 
@@ -33,7 +33,7 @@ Mate selection is a tough problem. The best laid plans can still result in disas
     - Remember that your ancestors, marrying into the same gene-pool without regard to such metrics, were able to produce a great line of luminaries. Further, remember that high IQ can and does manifest non-academically – example in the pursuit of art-related shAstra-s, ability to memorize long stotra-s etc..
     - Women enmeshed in “careers”, despite having high IQ, may be idiots (like viShNusharman’s mUrkha-paNDita-s or NN Taleb’s “Intellectual Yet Idiot”s) and low quality mates (from a biological perspective). And this applies to IYI offspring as well. Hence, your fixation may result in quantitative (and if you are unsuccessful in your battles – qualitative) decline in your (and your clan’s) offspring.
 - **Don’t be afraid to call it off**. (You might learn about the shit you’re getting into after the initial agreement but before the actual marriage.)
-    - You may feel honor bound, family-pressured etc.. But damn it, it is the age of kali – when things turn sour, decadent women (and the associated manthara-s and kaikayi-s) will threaten divorce or suicide type shit which would have shocked your forefathers. How much worse is that? Remember – women can be quite fickle. (Recall also that Apastamba clearly even recommends a second wife if the first is incapable of playing her dhArmika role as a patnI. “धर्मप्रजासंपन्ने दारे नान्यां कुर्वीत १२ अन्यतराभावे कार्या प्राग् अग्न्याधेयात् १३ ” इत्यापस्तम्बधर्मसूत्रेषु। आधुनिके युगे भीमरावस्मृतिबलेन विच्छेदो ऽनिवार्यस् तस्मिन् सन्दर्भे। But then, you will have much more to loose, and your choices will be second rate.)
+    - You may feel honor bound, family-pressured etc.. But damn it, it is the age of kali – when things turn sour, decadent women (and the associated manthara-s and kaikayi-s) will threaten divorce or suicide type shit which would have shocked your forefathers. How much worse is that? Remember – women can be quite fickle. (Recall also that Apastamba clearly even recommends a second wife if the first is incapable of playing her dhArmika role as a patnI. “धर्मप्रजासंपन्ने दारे नान्यां कुर्वीत १२ अन्यतराभावे कार्या प्राग् अग्न्याधेयात् १३ ” इत्यापस्तम्बधर्मसूत्रेषु। आधुनिके युगे भीमरावस्मृतिबलेन विच्छेदो ऽनिवार्यस् तस्मिन् सन्दर्भे। But then, you will have much more to loose, and your choices will be second rate.)
 - Be **wary of inter-caste marriage**.
     - No – not my mistake. But I’ve seen it yield much pain elsewhere at close quarters.
     - Many “highly educated” shUdra-s (in marked contrast to their parents) are filled with bile and hatred for brAhmaNa-s, even if concealed well at the time of betrothal.

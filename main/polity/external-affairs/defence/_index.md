@@ -5,15 +5,15 @@ title: +स्वरक्षणम् (Defence)
 
 - Non-military resistance to Abrahamisms - [see here](../../../../rivals/abe-disease/abe-disease/).
 - brAhmaNa proclivity to promote resistance to alien invaders - see [Arya consolidation](../../../clan/ethnic-shifts/Arya-consolidation/) page.
-- vyUha-s, raNa-dIxA, martial arts etc.. see [here](https://sites.google.com/site/samskrtamsfo/kalah/yud-dham).
+- vyUha-s, raNa-dIxA, martial arts etc.. see [here](https://sites.google.com/site/samskrtamsfo/kalah/yud-dham).
 
 ## Division of power, scale-free feudalism.
 
-Consider the list of individual heroes involved in politics and war. Thence we learn the following. Where ever kShatriyas tasked with protecting their land (as if it were their wife) and subjects (as if they were their children) fell, others rose to take their place (eg: harihara and bukka, chandragupta maurya, shivAji, reDDi chieftains). They were guided and inspired by learned men and sages (eg: tukArAm, vidyAraNya, chANakya). Further, their efforts were financed often by taxation, but also sometimes by donations from merchants. This division of power (in the form of occupation specific jAti-s) lent to the civilization the character of a multi-headed snake - chop one head off, another takes its place.
+Consider the list of individual heroes involved in politics and war. Thence we learn the following. Where ever kShatriyas tasked with protecting their land (as if it were their wife) and subjects (as if they were their children) fell, others rose to take their place (eg: harihara and bukka, chandragupta maurya, shivAji, reDDi chieftains). They were guided and inspired by learned men and sages (eg: tukArAm, vidyAraNya, chANakya). Further, their efforts were financed often by taxation, but also sometimes by donations from merchants. This division of power (in the form of occupation specific jAti-s) lent to the civilization the character of a multi-headed snake - chop one head off, another takes its place.
 
-MT [says](https://manasataramgini.wordpress.com/2011/10/09/yuddha-vyuha-s-mlechcha-s-and-vanija-niti-in-the-last-hindu-empire/): "the sAmanta-maNDala system, far from being a form of feudalism that undid the Indians, provided them with an intrinsic robustness that allowed them to counter the Moslems once the top layers of the scale-free structure had been knocked out." panchAyata of a village → sAmanta in a nagara -\> mahAsAmanta → king.
+MT [says](https://manasataramgini.wordpress.com/2011/10/09/yuddha-vyuha-s-mlechcha-s-and-vanija-niti-in-the-last-hindu-empire/): "the sAmanta-maNDala system, far from being a form of feudalism that undid the Indians, provided them with an intrinsic robustness that allowed them to counter the Moslems once the top layers of the scale-free structure had been knocked out." panchAyata of a village → sAmanta in a nagara -\> mahAsAmanta → king.
 
-## Resistance to alien invasions and resurgence .
+## Resistance to alien invasions and resurgence .
 
 - Constant low level pesant revolt against muslim rulers was noted by Peter Mundy, Manucci, Abul Fazl, Bernier, Jahangir, Kopf. (sItA-rAm-goel's assessment [here](http://www.voiceofdharma.org/books/siii/ch9.htm).
 )
@@ -27,15 +27,15 @@ Very strong resistance to foreign invasion has been repeatedly observed. With re
 The above negates the common accusation of abject failure in the face of invaders.
 
   
-\[[R11](https://archive.org/details/early-Hindu-islamic-conflict-richards), [MT](http://manasataramgini.wordpress.com/2014/02/04/some-notes-on-the-extra-military-aspects-of-the-islamo-hindu-confrontation/)1, [MT-HI](https://manasataramgini.wordpress.com/2011/09/17/rehabilitating-king-vidyadhara-and-the-sense-hindu-identity/)\]  
+\[[R11](https://archive.org/details/early-Hindu-islamic-conflict-richards), [MT](http://manasataramgini.wordpress.com/2014/02/04/some-notes-on-the-extra-military-aspects-of-the-islamo-hindu-confrontation/)1, [MT-HI](https://manasataramgini.wordpress.com/2011/09/17/rehabilitating-king-vidyadhara-and-the-sense-hindu-identity/)\]  
 [![](https://docs.google.com/spreadsheet/oimg?key=0AmaG9ycvsc7tdGticEFmNml4Q2tMV0lIVF9pZ21lM3c&oid=2&zx=mnhvgkja8ynh)](https://docs.google.com/spreadsheet/oimg?key=0AmaG9ycvsc7tdGticEFmNml4Q2tMV0lIVF9pZ21lM3c&oid=2&zx=mnhvgkja8ynh)
 
 #### Lack of a united fronts against invaders
 
-Fragmentation of the land of the Arya-s (and more broadly pagans) into several competing polities resulted in these kingdoms short-sightedlyworking against their pagan neighbors by:
+Fragmentation of the land of the Arya-s (and more broadly pagans) into several competing polities resulted in these kingdoms short-sightedlyworking against their pagan neighbors by:
 
 - allying with barbarians (eg. Islamic and Christian invaders)
-    - " In this sterile statecraft, centred on the politics of the maNDalayoni, one�s neighbour was always an enemy, and the enemy of an enemy always a friend! Hindu princes, therefore, failed to hang together in the face of a common calamity. In the event, they were hanged separately." \[[SRG](http://www.voiceofdharma.org/books/siii/ch9.htm)\]
+    - " In this sterile statecraft, centred on the politics of the maNDalayoni, one�s neighbour was always an enemy, and the enemy of an enemy always a friend! Hindu princes, therefore, failed to hang together in the face of a common calamity. In the event, they were hanged separately." \[[SRG](http://www.voiceofdharma.org/books/siii/ch9.htm)\]
 - taking advantage of a kingdom's conflict with barbarians to attack it. Examples -
     - someshvara and co killing bhojarAja (who had undertook great expeditions against the muslim invasion) in battle.
     - the gajapati ruler relentlessly scheming against his own son-in-law kRShNadevarAya, even as the latter was quarrelling with bahmani sultanates.
@@ -77,7 +77,7 @@ Adaption of European advances in tactics and weaponry was only partial - [Gordon
 
 One drawback we hindus had was misplaced generosity - a paucity of ruthlessness. The source is nothing but moral weakness and fragility. These people want approval and admiration of others. This is the disease that motivated moronic actions right from dharmarAja to PrithvirAja Chauhan to Nehru and Gandhi.
 
-- Think what kind of disaster it would have been if kRShNa thought that way. That yudhiShThira gave duryodhana his choice of weapon and combatant when he emerged from the lake hiding spot, and kRShNa scolded him - "Again, even now you are gambling! A deceitful person should be destroyed with deceit without this kind of show." Alas! this consciousness found in bhIma and kRShNa turned out to be so rare!
+- Think what kind of disaster it would have been if kRShNa thought that way. That yudhiShThira gave duryodhana his choice of weapon and combatant when he emerged from the lake hiding spot, and kRShNa scolded him - "Again, even now you are gambling! A deceitful person should be destroyed with deceit without this kind of show." Alas! this consciousness found in bhIma and kRShNa turned out to be so rare!
 
   
 
@@ -98,6 +98,6 @@ Why did we loose to the British in the end, just as we were beating back Islam? 
 
 Not learning from history, misplaced mercy (The likes of Malik Kafur, Md Ghori being released after defeat). Insufficient ruthlessness in facing the Islamic threat (not taking adequate steps at suppressing Islamic ideology, once the enemy states were defeated).  
 
-- Bharatendu's [account](http://bharatendu.com/2009/10/13/mana-simha-the-rashtrakuta-ii/) of the differing conditions of the Hindu kings vs the East India Company. 
+- Bharatendu's [account](http://bharatendu.com/2009/10/13/mana-simha-the-rashtrakuta-ii/) of the differing conditions of the Hindu kings vs the East India Company. 
 
 Traitors aplenty.

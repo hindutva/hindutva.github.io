@@ -8,22 +8,22 @@ sidebar: hindutvam_sidebar
 
 ## Fitness qualification
 
-- In its hard classical form, it meets this important qualification: One should never have alleigence to an ideology that reduces one's (overall: individual/ group) fitness (in the biological sense).
+- In its hard classical form, it meets this important qualification: One should never have alleigence to an ideology that reduces one's (overall: individual/ group) fitness (in the biological sense).
 
 ## Vaccination against bad dogma
 
 - A person or society not vaccinated with Chicken Pox is susceptible to Small Pox.
 - At a personal level, many have not had the typically hindu/ pagan experience of dogma \*and transcending dogma\* \[[an essential feature](../../bases/books/index/) of the diverse Hindu tradition, unlike the book-centred Abrahamisms\].
-    - Deracinated atheist west-is-best rationalist pseudo-secular hindu-s do not realize the true value of being rooted in their own tradition. Not knowing the maxims "a known devil is better than an unknown angel", and "There is no such thing as a blank slate", they easily fall prey to comparatively worse alien dogmas. 
+    - Deracinated atheist west-is-best rationalist pseudo-secular hindu-s do not realize the true value of being rooted in their own tradition. Not knowing the maxims "a known devil is better than an unknown angel", and "There is no such thing as a blank slate", they easily fall prey to comparatively worse alien dogmas. 
 
 ### Examples
-- Siddharth Dhar who turned into Abu Rumaysah, \[[WP](http://www.washingtonpost.com/world/national-security/hoping-to-create-a-new-homeland-the-islamic-state-recruits-entire-families/2014/12/24/dbffceec-8917-11e4-8ff4-fb93129c9c8b_story.html)\]
+- Siddharth Dhar who turned into Abu Rumaysah, \[[WP](http://www.washingtonpost.com/world/national-security/hoping-to-create-a-new-homeland-the-islamic-state-recruits-entire-families/2014/12/24/dbffceec-8917-11e4-8ff4-fb93129c9c8b_story.html)\]
 - Neil Prakash, also known as Abu Khaled Al Cambodi. \[[DM](http://www.dailymail.co.uk/news/article-2969253/Australia-s-newest-ISIS-headhunter-targets-jihadis-social-media-Sydney-bouncer-Mohammad-Baryalei-s-death-Syria.html)\]
 - Others of intermediate intelligence, such as: [G1](https://www.youtube.com/watch?v=Mpkdi55uWEw).
 
 ## Emotionally satisfied and responsible life
 
-- Elegant, well considered concepts such as rta, purushArtha-s, dharma, the beautiful rituals, art and literature enable Hindu to live a happy life, which is also responsible. 
+- Elegant, well considered concepts such as rta, purushArtha-s, dharma, the beautiful rituals, art and literature enable Hindu to live a happy life, which is also responsible. 
 - The hindu way of cultivating oneself is a good (perhaps gentler, more imaginative, more emotional) way of approaching life. So it provides an attractive alternative to crass materialism and various abrahamisms. Of course, this does not necessarily mean believing in the supernatural (when dealing in the Adibhautika realm).
 - One part of the hindu ethos is the fact that one cannot separate the spiritual from the secular. Feeling good is important, as are aesthetics. These can be cultivated with personal and state rituals.
 - One's ancestral pagan tradition is the best structure for self cultivation and happiness.
@@ -51,7 +51,7 @@ Being able to tolerate repeated setbacks by rationalizing them as being acts of 
 ## Why fight?
 
 "Avidya: Hinduism will survive, no need to do anything." 
- Vidya: "Every great thing perishes if its heirs are petty. –Oswald Spengler" \[OGS16\]
+ Vidya: "Every great thing perishes if its heirs are petty. –Oswald Spengler" \[OGS16\]
 
 Also see general comments on the [problem with monotheism](../../rivals/abe-disease/problem/).
 

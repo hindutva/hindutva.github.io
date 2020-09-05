@@ -5,7 +5,7 @@ title: Subversion as a constituent
 
 ## Intro
 
-Muslim society has a pernicious effect on non-muslim (especially polytheistic) societies. This is the cost of the short-term fitness-gain of the muslim pyramid scheme, as described in the [fitness-effect page](../fitness-effect/).
+Muslim society has a pernicious effect on non-muslim (especially polytheistic) societies. This is the cost of the short-term fitness-gain of the muslim pyramid scheme, as described in the [fitness-effect page](../fitness-effect/).
 
 - Even when muslims are in the minority, the riot-manual injunctions of[sura At-Tawba](http://en.wikipedia.org/wiki/At-Tawba)have been realized repeatedly.
     - Claims such as "there were no hindu-muslim riots before the British era", or "our temples were destroyed by armies and tyrants alone, none by ordinary rioters" are false. (Eg.[K](http://manasataramgini.wordpress.com/2013/07/22/a-sayyid-kills-a-kashmirian-yogin/),)
@@ -34,13 +34,13 @@ A summary from @parikramah:
 - 5\. After British occupation, Indian Muslim Ashraf complained of the "mulazimana zehniyat" (slave mentality) of 9-5 work culture.
 - 6\. Loss of sinecures and privy purses, having to compete with kuffar as employees for a living - considered "slavish" by Ashraf.
 - 7\. That is "ghanaa" (plenitude) attitude. Next is "faqr" - demands made in "poverty". Both speak from moral high ground.
-- 8\. Thus, Sufi "faqeers" ("poor") appeal to  conscience, demanding sustenance - from moral high ground. Like Buddhist bhikshus.
+- 8\. Thus, Sufi "faqeers" ("poor") appeal to  conscience, demanding sustenance - from moral high ground. Like Buddhist bhikshus.
 - 9\. Whether in ghanaa or faqr mindset, goal is to live off the Other: "Allah ke naam pe loonga baba" "Allah ke naam pe de de baba"
 - 10\. The Other is non-Muslim, or impure Muslims. Many Sufi tariqats considered other Muslims worldly & kuffar. Yet lived off them.
 
 ## Criminal activity
 
-- "The findings: about 80% of the criminals at the petty-crime level were Muslims, that figure decreasing when it came to white-collar crime. Please note that under the Indian Penal Code, petty crime includes armed robbery, dacoity and attempted murder - all of which carry heinous penalties by Shariat, which was the point in discussion." \[[RED](http://www.rediff.com/news/sep/05varsha.htm) 2005 varShA\]
+- "The findings: about 80% of the criminals at the petty-crime level were Muslims, that figure decreasing when it came to white-collar crime. Please note that under the Indian Penal Code, petty crime includes armed robbery, dacoity and attempted murder - all of which carry heinous penalties by Shariat, which was the point in discussion." \[[RED](http://www.rediff.com/news/sep/05varsha.htm) 2005 varShA\]
 
 ## Military and national Betrayal
 
@@ -56,23 +56,23 @@ A summary from @parikramah:
     - Ferishta’s account does not mention them.
 - Secondary sources:
     - K A Nilakanta Shastri History of South India pg267
-    - Sitaram Goel [here](http://indiafacts.co.in/remembering-a-karmayogi/).
+    - Sitaram Goel [here](http://indiafacts.co.in/remembering-a-karmayogi/).
     - [Dancing girl](http://books.google.com/books?id=980SAvbmpUkC&pg=PT269&lpg=PT269&dq=vijayanagara+betrayal+ramaraya+talikota&source=bl&ots=vA6xZ0z_oy&sig=PYpk1L1L9Z2hFXzs1_A2R-5behA&hl=en&sa=X&ei=EGTSU_TLJuH8igL78IGQBw&ved=0CEYQ6AEwBQ#v=onepage&q=vijayanagara%20betrayal%20ramaraya%20talikota&f=false).
     - [Toshkana](http://toshkhana.wordpress.com/2011/10/28/last-of-the-rayas-an-eyewitness-account-of-the-defeat-and-death-of-rama-raya-of-vijaynagara-at-talikota/).
 
 ### Abdali invitation
 - The sufi Shah Waliullah Dehlawi, a venerated scholar, invited Ahmad Shah Abdali of Afghanistan to attack the Maratha in third battle of Panipat and advised his collaborator Najib al Dawla to launch jehad against Jats. Excerpts:
     - "It has become clear to my mind that the kingdom of heaven has predestined that kafirs should be reduced to a state of humiliation and treated with utter contempt. Should that repository of majesty and dauntless courage (Nizam al-Maluk) gird his loins and direct his attention to such a task he can conquer the world. ... Should he make no effort, they (the Marathas) would inevitably be weakened and annihilated through celestial calamities and in such an event he would gain no credit…As I have learnt this unequivocally (from the divine) I spontaneously write to draw your attention to the great opportunity laid before you. You should therefore not be negligent in fighting jihad."
-    - "We beseech you in the name of Prophet to fight a jihad against the infidels of this region… The invasion of Nadir shah, who destroyed the Muslims, left the Marathas and Jats secure and prosperous.  This resulted in the infidels regaining their strength and in the reduction of Muslim leaders of Delhi to mere puppets" ( Shah Wali Allah and his times by Saiyid Athar Abbas Rizvi, page page305).
-    - "…All control of power is with the Hindus because they are the only people who are industrious and adaptable.  Riches and prosperity are theirs, while Muslims have nothing but poverty and misery.  At this juncture you are the only person, who has the initiative, the foresight, the power and capability to defeat the enemy and free the Muslims from the clutches of the infidels.  God forbid if their domination continues, Muslims will even forget Islam and become undistinguishable from the non-Muslims" (Dr. Sayed Riaz Ahmad in his book 'Maulana Maududi and Islamic state' - Lahore People's Publishing House, page 15 - 1976). 
+    - "We beseech you in the name of Prophet to fight a jihad against the infidels of this region… The invasion of Nadir shah, who destroyed the Muslims, left the Marathas and Jats secure and prosperous.  This resulted in the infidels regaining their strength and in the reduction of Muslim leaders of Delhi to mere puppets" ( Shah Wali Allah and his times by Saiyid Athar Abbas Rizvi, page page305).
+    - "…All control of power is with the Hindus because they are the only people who are industrious and adaptable.  Riches and prosperity are theirs, while Muslims have nothing but poverty and misery.  At this juncture you are the only person, who has the initiative, the foresight, the power and capability to defeat the enemy and free the Muslims from the clutches of the infidels.  God forbid if their domination continues, Muslims will even forget Islam and become undistinguishable from the non-Muslims" (Dr. Sayed Riaz Ahmad in his book 'Maulana Maududi and Islamic state' - Lahore People's Publishing House, page 15 - 1976). 
 
 ### INA sabotage and desertion
-- Sabotage and desertion in the Indian National Army (INA) - [TW15](https://twitter.com/Rjrasva/status/589763559522963456?s=09).
-- Recruitment to safeguard muslim interests [TW](https://twitter.com/Rjrasva/status/589762467238129664). 
+- Sabotage and desertion in the Indian National Army (INA) - [TW15](https://twitter.com/Rjrasva/status/589763559522963456?s=09).
+- Recruitment to safeguard muslim interests [TW](https://twitter.com/Rjrasva/status/589762467238129664). 
 - Later ex-INA servicemen were used by pAkistAn in their kAshmIr plunder \[[ChFair](http://i.imgsafe.org/e9b1431594.jpg)\]. "In 1947, Bhimber Tehsil had 35% Hindus + Sikhs. Habibur Rehman, a former aide of Subhas Bose launched a Kabali Jihad on Bhimber."  
 
 ### Gilgit scouts
-- Sabotage, defection and revolt of Gilgit scouts, frontier Gilgit rAja-s and the Poonchi muslim troops of Narain singh - [TW16](https://twitter.com/maidros78/status/769913255766683649).
+- Sabotage, defection and revolt of Gilgit scouts, frontier Gilgit rAja-s and the Poonchi muslim troops of Narain singh - [TW16](https://twitter.com/maidros78/status/769913255766683649).
 - Officer Nidal Malik Hasan's shooting spree in a US army base \[[wiki](https://en.wikipedia.org/wiki/Nidal_Malik_Hasan)\].        
 
 
@@ -81,15 +81,15 @@ A summary from @parikramah:
   - In the 1946 provincial assembly elections, the Muslim League captured 4.5 million of about 6 million Muslim votes. So, 75% of Indian Muslims voted for the Muslim League and its demand for Pakistan. (One can probably even dig up district-wise statistics. I recall it was 90% of UP, Delhi.) But 75% of Indian muslims in various regions did not go to pAkistan despite voting for it. Though a small "elite" fraction of the adult population were eligible to vote - one can hardly say that this sample was not representative of the rest of the muslim population. 
   - > [![](../../../../../images/snippets/muslim-seats-1946.jpg)](../../../../../images/snippets/muslim-seats-1946.jpg)
   - [Indian annual register 1946 v1 p229](https://archive.org/details/in.ernet.dli.2015.45831/page/n243)
-- Sardar Patel (Calcutta maidan 03-Jan-1948) asked how the Muslims remaining in India after partition suddenly claim loyalty to India: [YT1](https://www.youtube.com/watch?v=x1URZmiFsUg)
+- Sardar Patel (Calcutta maidan 03-Jan-1948) asked how the Muslims remaining in India after partition suddenly claim loyalty to India: [YT1](https://www.youtube.com/watch?v=x1URZmiFsUg)
 
 ### Other history
 - Muslim response to Hindu patronage and protection \[[VoD](http://voiceofdharma.org/books/htemples2/ch3.htm)\].
-- Repeated moplah outrages in keraLa 1849-1923. [Tw](https://twitter.com/dasyavevrka/status/629284144023908352/photo/1), [TwImg](http://i.imgur.com/sSZ4d6k.png), [GB](https://books.google.com/books?id=75ZeAAAAcAAJ&pg=PA30&lpg=PA30&dq=%22levied+loans+from+rich+Hindoos%22&source=bl&ots=4TSs_tdQyK&sig=Mavcs1U8ZZPp-lbwEMdFEHrbDw4&hl=sa&sa=X&ved=0CBsQ6AEwAGoVChMItPbWnJCVxwIVWCqICh2SIQqL#v=snippet&q=destroyed&f=false).
+- Repeated moplah outrages in keraLa 1849-1923. [Tw](https://twitter.com/dasyavevrka/status/629284144023908352/photo/1), [TwImg](http://i.imgur.com/sSZ4d6k.png), [GB](https://books.google.com/books?id=75ZeAAAAcAAJ&pg=PA30&lpg=PA30&dq=%22levied+loans+from+rich+Hindoos%22&source=bl&ots=4TSs_tdQyK&sig=Mavcs1U8ZZPp-lbwEMdFEHrbDw4&hl=sa&sa=X&ved=0CBsQ6AEwAGoVChMItPbWnJCVxwIVWCqICh2SIQqL#v=snippet&q=destroyed&f=false).
 
 - As treacherous neighbors
     - During the 2014-15 attacks of the Islamic State in Iraq and Syria on Yazidis and Christians:
-        - "Worst killings came from our (Sunni) Muslim neighbors".. (Yazidi [report](http://news.yahoo.com/iraq-yazidis-neighbours-enabled-jihadist-attack-095139064.html), [Vid1](https://twitter.com/Thawra_city/status/871289293146267649), Christian confirmation: [memri1](http://www.memri.org/clip_transcript/en/4414.htm), [memri2](http://www.memri.org/clip/en/0/0/0/0/0/0/4414.htm), ([MEF2015](http://www.meforum.org/5371/why-muslims-bad-neighbors))).
+        - "Worst killings came from our (Sunni) Muslim neighbors".. (Yazidi [report](http://news.yahoo.com/iraq-yazidis-neighbours-enabled-jihadist-attack-095139064.html), [Vid1](https://twitter.com/Thawra_city/status/871289293146267649), Christian confirmation: [memri1](http://www.memri.org/clip_transcript/en/4414.htm), [memri2](http://www.memri.org/clip/en/0/0/0/0/0/0/4414.htm), ([MEF2015](http://www.meforum.org/5371/why-muslims-bad-neighbors))).
     - This was also observed during the partition of India (FB15).
 
 ### Contrast with others
@@ -99,7 +99,7 @@ A summary from @parikramah:
 
 ## Inhibiting religious practice.
 
-- chaitanya-mangala, vijaya gupta's poem on Husain Shah summarized [here](http://i.imgur.com/Nktg3CY.png) ([book](http://www.voiceofdharma.org/books/siii/ch10.htm) \- Caveat: Goel [misattributes vijaya-gupta-quote](https://www.google.com/search?tbm=bks&q=The+wicked+mlechhas+pollute+the+religion+of+the+Hindus+every+day&cad=h) to gangAdEvI).
+- chaitanya-mangala, vijaya gupta's poem on Husain Shah summarized [here](http://i.imgur.com/Nktg3CY.png) ([book](http://www.voiceofdharma.org/books/siii/ch10.htm) \- Caveat: Goel [misattributes vijaya-gupta-quote](https://www.google.com/search?tbm=bks&q=The+wicked+mlechhas+pollute+the+religion+of+the+Hindus+every+day&cad=h) to gangAdEvI).
 
 ## Consciousness of demographic projection differences
 
@@ -119,14 +119,14 @@ Sufi and shia dargah-s provide for some limited outlet for polytheistic and icon
 ### Destruction of centers of learning.
 
 #### Destruction
-- "The Moslem scientist Al-Biruni himself informs us that in the major cities of Khwarizm, Qutayba demolished huge libraries and burnt their numerous Indic and Iranic texts. Al-Biruni also mentions that he systematically killed all the Indic and Iranian scholars who manned those libraries." \[[M](http://www.indiafacts.co.in/isis-caliphate-lessons-earliest-mohammedan-invasions-central-asia/)\]
+- "The Moslem scientist Al-Biruni himself informs us that in the major cities of Khwarizm, Qutayba demolished huge libraries and burnt their numerous Indic and Iranic texts. Al-Biruni also mentions that he systematically killed all the Indic and Iranian scholars who manned those libraries." \[[M](http://www.indiafacts.co.in/isis-caliphate-lessons-earliest-mohammedan-invasions-central-asia/)\]
 - "Every historian and archaeologist of that period knows that the vast Buddhist and Jain establishments at Bukhara, Samarkand, Khotan, Balkh, Bamian, Begram, Jalalabad, Peshawar, Takshasila, Mirpur-Khas, Nagar-Parkar, Sringar, Sialkot, Agroha, Mathura, Hastinapur, Kanauj, Sravasti, Ayodhya, Sarnath, Nalanda, Vikramsila, Vaishali, Rajgir, Odantpuri, Bharhut, Paharpur, Jagaddala, Jajnagar, Nagarjunikonda, Amaravati, Kanchi, Dwarasamudra, Bharuch Valabhi, Palitana, Girnar, Patan, Jalor, Chandrawati, Bhinmal, Didwana, Nagaur, Osian, Bairat, Gwalior and Mandu were destroyed by the swordsmen of Islam." \[[SG](http://voiceofdharma.in/hindu-temples-what-happened-to-them-vol-1/some-historical-questions)\]
-- In India the great universities at Nalanda and Vikramashila were destroyed; schools in Kashi, Multan and Thatta were suppressed.
+- In India the great universities at Nalanda and Vikramashila were destroyed; schools in Kashi, Multan and Thatta were suppressed.
 
 #### Importance of universities
 - Claim: "Universities were nice things but not essential to Hindu survivial."
 - Hindu-s do and did have centers of learning, where students and teachers congregated. These were critical to the efflorecence of hindu thought.
-- “The padishaw, cherisher of Mohammedanism learned that in the provinces of Thatta, Multan and especially at Benaras, the brAhmaNa infidels used to teach their false books in their established schools, and their admirers and students, both Hindu and Muslim, used to come from great distances to these misguided men in order to acquire their vile learning. His Majesty, eager to establish Islam, issued orders to the governors of all the provinces to demolish the schools and temples of the infidels, and, with the utmost urgency, put down the teaching and the public practice of the religion of these unbelievers (imperial decree of 9th April 1669).” \[Secondary source: [M](http://manasataramgini.wordpress.com/2014/02/04/some-notes-on-the-extra-military-aspects-of-the-islamo-hindu-confrontation/)\]
+- “The padishaw, cherisher of Mohammedanism learned that in the provinces of Thatta, Multan and especially at Benaras, the brAhmaNa infidels used to teach their false books in their established schools, and their admirers and students, both Hindu and Muslim, used to come from great distances to these misguided men in order to acquire their vile learning. His Majesty, eager to establish Islam, issued orders to the governors of all the provinces to demolish the schools and temples of the infidels, and, with the utmost urgency, put down the teaching and the public practice of the religion of these unbelievers (imperial decree of 9th April 1669).” \[Secondary source: [M](http://manasataramgini.wordpress.com/2014/02/04/some-notes-on-the-extra-military-aspects-of-the-islamo-hindu-confrontation/)\]
 - Even during the British era, it was fairly common for scholars from southern India to soujourn to Kashi to gain advanced knowledge and prove their mettle. Even today in southern weddings, the groom ritually expresses his desire to go to Kashi (the motivation bein both religious and educational) before being ritually enticed into staying home.
 - Of course, much knowledge was diffuse and preserved in households. But, much "advanced learning" was lost. The example of several lost hindu traditions based in kAshmIra and in Sindh are prime examples of this.
 

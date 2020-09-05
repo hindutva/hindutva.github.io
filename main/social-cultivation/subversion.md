@@ -27,6 +27,6 @@ More under the Ananda-addiction heading [here](../../rivals/aananda-addiction/).
     - jallikaTTu campaign
     - dIpAvalI firecrackers
         - falsely blaming delhi's 2017 smog on them, rather than on agricultural fires.
-    - dahi-haNDa height limitation 2016 
+    - dahi-haNDa height limitation 2016 
     - durgA-pujA limitations
         - parts of bengal 2016

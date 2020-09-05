@@ -8,7 +8,7 @@ title: India ties
     - Bagha Jatin's grandson was named after Admiral Togo. \[[TW](https://twitter.com/Rjrasva/status/873117347237601280)\]    
     - Indian children honestly adored Admiral Togo and General Nogi.”, parents lined up to buy their pics in vain. \[[TW](https://twitter.com/Rjrasva/status/873117347237601280)\]
     - Locals donated to help Japanese soldiers. \[[TW](https://twitter.com/Rjrasva/status/519832220811661312)\]
-- Archive reference collection [here](https://archive.org/details/AntiForeignismAndWesternLearningInEarlyModernJapan).
+- Archive reference collection [here](https://archive.org/details/AntiForeignismAndWesternLearningInEarlyModernJapan).
 
 ## Japanese Indology
 - Japanese hindu deities

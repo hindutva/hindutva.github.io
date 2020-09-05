@@ -16,7 +16,7 @@ unicode_script: devanagari
     -   They could certainly do pūrta-dharma (building of wells, temple-building, distributing food etc..), if not the iṣṭi-s (vaidika sacrificies involving similar ritual donations).
     -   Chanting and singing non vaidika mantras, stotras and songs.
     - shUdra and mlecCha access to pAkayajJNa-s and pUrta-s
-        - mahAbhArata [IMG](https://imgur.com/AgKAf6J).
+        - mahAbhArata [IMG](https://imgur.com/AgKAf6J).
         - gautamadharmasūtra 10.65
 -   A greater period of ritual impurity after events such as death.
 

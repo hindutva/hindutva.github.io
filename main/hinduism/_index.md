@@ -7,27 +7,27 @@ sidebar: hindutvam_sidebar
 
 ## What is Hinduism?
 
-Hinduism is a cultural ethos (../[a religion for practical purposes](religion/)) that developed and established itself in the Indian subcontinent and vicinity before the arrival of intolerant foreign monotheism, nothing more and nothing less. Structurally and historically, it has a **Core Vaidika mesh**: The most foundational and impactful contributions to the Hindu ethos came from sages of the Indo-Aryan vedic tradition, whose very-universal ideas (together with the Indo Aryan conservative ritualist class) penetrated and bonded various similarly pagan populations. This ethos, ultimately, has the following important features:
+Hinduism is a cultural ethos (../[a religion for practical purposes](religion/)) that developed and established itself in the Indian subcontinent and vicinity before the arrival of intolerant foreign monotheism, nothing more and nothing less. Structurally and historically, it has a **Core Vaidika mesh**: The most foundational and impactful contributions to the Hindu ethos came from sages of the Indo-Aryan vedic tradition, whose very-universal ideas (together with the Indo Aryan conservative ritualist class) penetrated and bonded various similarly pagan populations. This ethos, ultimately, has the following important features:
 
 - Concepts particular to the **core vaidika** framework, such as:
     - solid, systematic pursuit of philosophy
     - brahman - Oneness of everything despite varying expressions, moreover the identity of each individual with it (in some sense).
         - satya, rta (cyclic interconnectedness, interdependency)
-    - puruShArtha, dharma, rNa (pitR deva rShi Atma manuShya), yajna
-    - varNa, including the ritualist conservative setup, Ashrama
+    - puruShArtha, dharma, rNa (pitR deva rShi Atma manuShya), yajna
+    - varNa, including the ritualist conservative setup, Ashrama
     - rasa, refined arts.
-    - saMskAra (solid, systematic pursuit of refinement), sAdhana, tapas, mantra
+    - saMskAra (solid, systematic pursuit of refinement), sAdhana, tapas, mantra
     - adhikAra-bheda (right to exclusiveness)
-- **Adaptability**: The Hindu ethos is extremely diverse, accommodating mutually opposite metaphysical/ ritual/ economic etc.. viewpoints peacefully ([JM15](http://swarajyamag.com/culture/jeyamohan-on-the-question-of-being-a-cultural-hindu/)). Hinduism has an "open architecture" - almost any philosophy can join in, unless it the kind that attacks the "open architecture" itself.
+- **Adaptability**: The Hindu ethos is extremely diverse, accommodating mutually opposite metaphysical/ ritual/ economic etc.. viewpoints peacefully ([JM15](http://swarajyamag.com/culture/jeyamohan-on-the-question-of-being-a-cultural-hindu/)). Hinduism has an "open architecture" - almost any philosophy can join in, unless it the kind that attacks the "open architecture" itself.
     - **Belief: secondary and varied**: Hindu ethos encompasses a huge variety of belief systems - ranging from vaidika orthodoxy to epistemological atheism with non-epistemological "faith", which have for the most part respected each others' right to exist. Indeed, various subversive ostensibly anti-vedic movements such as buddhism and jainism show a great deal of hindu influence in their epistemology, goals and practice. Practice is far more important than belief \[[details](../../tattvam/science-magic/)\].
-    - The polytheism \[and therefore **polycentrism** ([details](../tattvam/deva/index/))\] inherent in the core vaidika system is an important contributor to this universality.
+    - The polytheism \[and therefore **polycentrism** ([details](../tattvam/deva/index/))\] inherent in the core vaidika system is an important contributor to this universality.
     - Contrast with Abrahamistic monotheisms.
     - Related articles:
         - Sanjeev Sanyal has argued ([here](http://swarajyamag.com/culture/the-logic-of-hinduism/)) that Hinduism is a complex adaptive sytem.
 
 So,**from the core to the periphery**:
 
-- shrauta / smArta beliefs and practices (especially those similar to the ones mentioned above)  are at the core of hinduism
+- shrauta / smArta beliefs and practices (especially those similar to the ones mentioned above)  are at the core of hinduism
 - while nAstika (veda-nindaka) systems loosely lie at the peripheri
 - Sectarian Astika beliefs and practices (eg. mokSha-drive, pAncharAtra, shaiva, kaumAra) lie somewhere in-between.
 
@@ -51,7 +51,7 @@ At a high level, for the purpose of this site, a Hindu is a person who is intima
 ## Other good introductions
 
 - shatAvadhAnI gaNesh
-    - [lectures](https://www.youtube.com/playlist?list=PL2ounFpr5CwJt1MHN2xB8aHe6ip06Olgm) on "Foundations of Indian Culture"
+    - [lectures](https://www.youtube.com/playlist?list=PL2ounFpr5CwJt1MHN2xB8aHe6ip06Olgm) on "Foundations of Indian Culture"
     - [IF articles](http://indiafacts.co.in/author/shatavadhani-ganesh/).
 
 ## Background
@@ -68,5 +68,5 @@ Problematic stereotyping and omissions:
 
 ## About this site
 
-Popular pages: [Heroes](../../history/persons/) .
+Popular pages: [Heroes](../../history/persons/) .
 

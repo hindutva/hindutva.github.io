@@ -20,7 +20,7 @@ From MT - In general these are texts I'd recommend educated religiously inclined
 Some ancient cultures have survived the ravages of various strains of Abe's disease. Their preservation of pagan ethos is heroic. Much more so than (modern) pagan revivalists - whose efforts deserve much appreciation nevertheless. In this part of the site, we study them.
 
 - Europe, Americas, Africa, China and Japan considered separately.
--   Revivalist pagans: [Dodecans](http://www.vice.com/en_se/greekology/oh-my-gods-greece).
+-   Revivalist pagans: [Dodecans](http://www.vice.com/en_se/greekology/oh-my-gods-greece).
 
 ### Apostates of Islam
 - bahAi

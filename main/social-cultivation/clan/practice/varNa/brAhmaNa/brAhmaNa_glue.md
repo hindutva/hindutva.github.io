@@ -38,7 +38,7 @@ The **vaidika ideals** (../deva-s, xAtra, dharma, brahman, yajna ... mentioned i
 ## National integration
 - Besides patronage, brAhmaNa-s kept freely migrating and visiting various parts of hindu-dom in quest of mantra, shAstra and tIrtha.
 - They carried with them news, lore and skills from one region to another.
-- This facilitated a certain unity in spirit (../described in  [the intro](../../hinduism/introduction/)) throughout hindu abodes.
+- This facilitated a certain unity in spirit (../described in  [the intro](../../hinduism/introduction/)) throughout hindu abodes.
     - Example from Trinidad \[[IMG](http://i.imgur.com/Lsadw9y.jpg)\].
 - Thus, it is no joke when one declares that without the brAhmaNa-s, there would be no India. Rather, we would have an unconsolidated set of tribes (as in most of America and Africa), ready to far more easily fall to the sword of the intolerant monotheistic blight.  
 - "In terms of “soft power” the Indo-Aryan and Iranian religions were far more capable of imposing themselves on various east Asian peoples including the Mongols and Turks than vice-versa. Indeed, the religion of the Hindu even impressed itself on the Islamized Turko-Mongol tyrant Akbar in his later days. "

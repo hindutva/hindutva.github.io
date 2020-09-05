@@ -7,7 +7,7 @@ title: Secularism
 - Secularism, being in some sense "softer" in appearance to harder anti-theism and Abrahamisms, is insidious and dangerous from the heathen perspective. Hence it merits a separate page.
 - Alternative phrases that helps us understand secularism better
     - sickularism
-    - (via [Ambreesh](https://www.facebook.com/ambreesh.mishra)) \- post-christian christianism.
+    - (via [Ambreesh](https://www.facebook.com/ambreesh.mishra)) \- post-christian christianism.
     - Dechristianized christianity (bAlagangAdhara) \[[hipkapi](http://www.hipkapi.com/2011/03/03/the-religion-of-secular-state-dechristianized-christianity-s-n-balagangadhara/)\]
     - Secularism is the new state/ political religion. - Sandeep B.
     - Poison to heathens and rejection of their "superstitions".
@@ -40,16 +40,16 @@ Anti-nationalism is often found in Abrahamists since pagan states oppose their i
 - License to proselytize and subvert puts the abrahamisms at an even greater advantage.
 - "From a human perspective an invading pathogen is abnormal; from the pathogen's perspective it's perfectly normal." –Zinsser
 - It is taken to be a license to proselytize and subvert the weakest and stupidest sections of pagan society.
-- This puts heathen traditions like hinduism and shinto at a disadvantage. To counter them, they are forced to pervert themselves and develop proselytizing arms.
+- This puts heathen traditions like hinduism and shinto at a disadvantage. To counter them, they are forced to pervert themselves and develop proselytizing arms.
 - See the [stubborn minority principle here](../../../../polity/external-affairs/tolerance/).
-- This is especially true today: " there are inevitably nay-sayers, non-theists, secular-pagans and the like who pounce in proudly with “but there were non-polytheists in the ancient world too.” They will bring up pantheism, monism, atheism and the like as though this somehow strengthens their attempts to dismantle our traditions. ... I think the time has come to address some of this ideological undercutting because while what they say is technically accurate, it is presented without context and that context is important. We live in a very different world from our polytheistic ancestors. We are an occupied people. Our world is doggedly, demonstrably, and sometimes violently monotheistic. ..." \[[krasskova16](https://krasskova.wordpress.com/2016/03/13/the-battle-for-polytheisms-soul/)\]
+- This is especially true today: " there are inevitably nay-sayers, non-theists, secular-pagans and the like who pounce in proudly with “but there were non-polytheists in the ancient world too.” They will bring up pantheism, monism, atheism and the like as though this somehow strengthens their attempts to dismantle our traditions. ... I think the time has come to address some of this ideological undercutting because while what they say is technically accurate, it is presented without context and that context is important. We live in a very different world from our polytheistic ancestors. We are an occupied people. Our world is doggedly, demonstrably, and sometimes violently monotheistic. ..." \[[krasskova16](https://krasskova.wordpress.com/2016/03/13/the-battle-for-polytheisms-soul/)\]
 
 ### De-sacralization
 - Destruction of the national (and cultural) spirit by de-(spi)ritualization of government is a consequence of secularism. State and group rituals, however, are an essential part of pagan expression. Secularism forces this pagan cultural expression out of the public space.
     - Examples: saxony \[[T1](https://twitter.com/Rjrasva/status/582162695127994370)\], shinTo, hindus (rAjasUya etc..).
 - Separation of the spiritual from the secular perverts heathen culture.
     - This separation is absent in heathen cultures. By forcing this upon them, the abrahAmists weaken and pervert heathen expression.
-    - Separating artistic feeling from science - "This dichotomy between religiosity and secular pursuits is a feature of the dominant mode of thought in the Leukosphere arising partly out of their religion (Christendom and orthodox-jewry stand mostly at cross purposes with Science)."  \[[MT](https://www.facebook.com/l.php?u=https%3A%2F%2Fmanasataramgini.wordpress.com%2F2013%2F02%2F10%2Fthe-end-of-the-heathens%2F&h=iAQF6fwII&s=1)\] Part of "Secularism" then has come to mean that religiosity should be kept out of acceptable scientific discourse in general. This has been internalized by Macaulay's children.
+    - Separating artistic feeling from science - "This dichotomy between religiosity and secular pursuits is a feature of the dominant mode of thought in the Leukosphere arising partly out of their religion (Christendom and orthodox-jewry stand mostly at cross purposes with Science)."  \[[MT](https://www.facebook.com/l.php?u=https%3A%2F%2Fmanasataramgini.wordpress.com%2F2013%2F02%2F10%2Fthe-end-of-the-heathens%2F&h=iAQF6fwII&s=1)\] Part of "Secularism" then has come to mean that religiosity should be kept out of acceptable scientific discourse in general. This has been internalized by Macaulay's children.
 
 ### Institutionalized scorn for heathenry.
 - Secularism continues Abrahamistic thought patterns that are inimical and scornful to heathens and their "superstitions".

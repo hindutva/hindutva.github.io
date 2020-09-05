@@ -2,11 +2,11 @@
 title = "Limitations on this critique"
 +++
 
-- This is not to deny the positive contribution and truly objective scholarship of some western academics towards the understanding of Hindu past and Hindu nationalism. Yet, we Hindus have shown ourselves to be internally capable of doing all this, and the subversive actions do stand out as a liability.
+- This is not to deny the positive contribution and truly objective scholarship of some western academics towards the understanding of Hindu past and Hindu nationalism. Yet, we Hindus have shown ourselves to be internally capable of doing all this, and the subversive actions do stand out as a liability.
 - Western academic setup also includes Indians trained in and beholden to that system.
 - This list does not excuse shoddy research, bad presentation and bad behavior by some Hindu-s.
-    - Eg. Koenraad Elst on NS Rajaram in 2014 [here](http://koenraadelst.blogspot.com/2014/02/what-have-i-done-2.html), Rajaram reviewing unread books [KE14](http://koenraadelst.blogspot.com/2014/04/rajaram-witzel-and-racism.html).
-    - These Hindu noise makers have contributed to our defeat in the past (eg. 2005 California Textbook [KE10](http://koenraadelst.blogspot.com/2013/10/hindu-noise-makers.html).)
+    - Eg. Koenraad Elst on NS Rajaram in 2014 [here](http://koenraadelst.blogspot.com/2014/02/what-have-i-done-2.html), Rajaram reviewing unread books [KE14](http://koenraadelst.blogspot.com/2014/04/rajaram-witzel-and-racism.html).
+    - These Hindu noise makers have contributed to our defeat in the past (eg. 2005 California Textbook [KE10](http://koenraadelst.blogspot.com/2013/10/hindu-noise-makers.html).)
 (Not-so) Unique features of western Indologist approach (Summaries: [Rohana19](https://www.colombotelegraph.com/index.php/speaking-in-gods-tongue-the-grammar-of-sanskrit-scholarship-today/)):
 
 ## Data gathering despite terrible narratives

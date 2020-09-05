@@ -3,7 +3,7 @@ title: Ministership
 ---
 
 ## General eligibility
-- "mahAbhArata's prescription (an ostensibly "brahmanical" source) placed in the mouth of the dying grandfather bhISma, as part of his lectures on statecraft, that a king should have 4 brAhmaNa & 4 shUdra ministers, 8 kSatriya ministers and 21 vaishya ministers. This may be due to the complexity of regulating various trades and crafts in an ncreasingly sophisticated society."
+- "mahAbhArata's prescription (an ostensibly "brahmanical" source) placed in the mouth of the dying grandfather bhISma, as part of his lectures on statecraft, that a king should have 4 brAhmaNa & 4 shUdra ministers, 8 kSatriya ministers and 21 vaishya ministers. This may be due to the complexity of regulating various trades and crafts in an ncreasingly sophisticated society."
 
 ## brAhmaNas serving shUdra kings
 ### Support

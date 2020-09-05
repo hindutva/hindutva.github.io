@@ -15,15 +15,15 @@ To quote [@nntaleb](https://twitter.com/nntaleb/status/1103000712970158086):
 ### Fake news
 - Opindia publishes periodic fake news reports covering prominent rags from Indian and abroad. See the [examples page](../opindia_fake_news_examples_16_18/).
 - Some prominent examples: 
-    -  Fake dalit rape petition - Amnesty international - [AmnRap15](http://www.spiked-online.com/newsite/article/amnesty-fuelling-the-indian-rape-myth/17406#.VfMlFrMM_Bc.twitter). (Compare with associated nonsense in famous rags - [img](http://i.imgur.com/eMTDF5E.png) )
-    - Dalit killed and set ablaze - false \[ [IMG](http://i.imgur.com/0Vz6rKX.jpg)15\]
+    -  Fake dalit rape petition - Amnesty international - [AmnRap15](http://www.spiked-online.com/newsite/article/amnesty-fuelling-the-indian-rape-myth/17406#.VfMlFrMM_Bc.twitter). (Compare with associated nonsense in famous rags - [img](http://i.imgur.com/eMTDF5E.png) )
+    - Dalit killed and set ablaze - false \[ [IMG](http://i.imgur.com/0Vz6rKX.jpg)15\]
 
 ### Bias in fact selection
 - Sensationalism whenever a relatively pro-hindu (BJP) government is in power is observed.
 
 Examples:
 - Singling out hindus for curtailment of freedom of speech
-  - [2015NYT](http://www.nytimes.com/2015/10/04/opinion/sunday/sonia-faleiro-india-free-speech-kalburgi-pansare-dabholkar.html?action=click&pgtype=Homepage&module=opinion-c-col-top-region&region=opinion-c-col-top-region&WT.nav=opinion-c-col-top-region). (It is not just hindu-s who attack it (unlike what these mlecCha rags would have you and others believe) - but also christians (take contemporaneous [IE nun threat](http://indianexpress.com/article/india/india-others/twist-in-nun-play-row-director-says-he-fears-for-his-life/) ) and muslims.
+  - [2015NYT](http://www.nytimes.com/2015/10/04/opinion/sunday/sonia-faleiro-india-free-speech-kalburgi-pansare-dabholkar.html?action=click&pgtype=Homepage&module=opinion-c-col-top-region&region=opinion-c-col-top-region&WT.nav=opinion-c-col-top-region). (It is not just hindu-s who attack it (unlike what these mlecCha rags would have you and others believe) - but also christians (take contemporaneous [IE nun threat](http://indianexpress.com/article/india/india-others/twist-in-nun-play-row-director-says-he-fears-for-his-life/) ) and muslims.
 
 ### Blowing problems out of proportion
 - There is "oppression olympics" with the more allegedly oppressed group getting more press.
@@ -35,7 +35,7 @@ Examples:
 
 ## Problem distribution
 - Opindia publishes periodic fake news reports covering prominent rags from Indian and abroad. See the [examples page](../opindia_fake_news_examples_16_18/).
-- MT's observations: [MT-2014](https://manasataramgini.wordpress.com/2014/10/25/a-geopolitical-segment-the-news-traders/).
+- MT's observations: [MT-2014](https://manasataramgini.wordpress.com/2014/10/25/a-geopolitical-segment-the-news-traders/).
   - ![](/../anti-India-news-negative-percentage-2014.jpg)
   - ![](/../anti-India-news-origin-2014.jpg)
   
@@ -57,7 +57,7 @@ It is natural for NYT, Newyorker, BBC etc.. to write from the perspective of USA
 ## Causes
 - Ideological anti-hindu bias - socialist, leftist, islamic, leukospheric etc..
   - Audience expectations.
-- Some of it is due to the mlecCha-s' lack of context combined with undue vehemence - also discussed [here](../academia/charges/).
+- Some of it is due to the mlecCha-s' lack of context combined with undue vehemence - also discussed [here](../academia/charges/).
 - Money - sensationalism sells.
 
 
@@ -69,9 +69,9 @@ It is natural for NYT, Newyorker, BBC etc.. to write from the perspective of USA
 
 ## Alternatives
 
-- Particularly, [https://swarajyamag.com/](https://swarajyamag.com/) merits our support and subscription.
-- [https://www.opindia.com/](https://www.opindia.com/) , a fact-checking site edited by [@UnSubtleDesi](https://twitter.com/UnSubtleDesi) as of 2020.
-- [https://www.pgurus.com/](https://www.pgurus.com/) for occasional exposes and opinions.
+- Particularly, [https://swarajyamag.com/](https://swarajyamag.com/) merits our support and subscription.
+- [https://www.opindia.com/](https://www.opindia.com/) , a fact-checking site edited by [@UnSubtleDesi](https://twitter.com/UnSubtleDesi) as of 2020.
+- [https://www.pgurus.com/](https://www.pgurus.com/) for occasional exposes and opinions.
 - [https://tfipost.com/](https://tfipost.com/).
 - [Organizer - the RSS mag](https://www.organiser.org/index.html)
 - [http://indiafacts.org/](http://indiafacts.org/) for opinion pieces and annual Hindu human rights reports. 

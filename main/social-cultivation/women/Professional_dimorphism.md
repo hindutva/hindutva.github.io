@@ -12,7 +12,7 @@ title = "Professional dimorphism"
 
 ## Domains of female dominance
 
-- deva-dAsI-s. Temple dancers with sexual freedom, who produced proud cultural luminaries like singer MS [Subbulakshmi](https://en.wikipedia.org/wiki/Subbulakshmi) and [dancer bAlasarasvatI](https://en.wikipedia.org/wiki/Balasaraswati).
+- deva-dAsI-s. Temple dancers with sexual freedom, who produced proud cultural luminaries like singer MS [Subbulakshmi](https://en.wikipedia.org/wiki/Subbulakshmi) and [dancer bAlasarasvatI](https://en.wikipedia.org/wiki/Balasaraswati).
     
     - The old status of deva-dAsI-s is generally not comparable to the modern yellamma cult.
     

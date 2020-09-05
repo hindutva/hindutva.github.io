@@ -10,7 +10,7 @@ title: Science and magic
 
 ### Physical effect (in which life?)
 - There is no systematic credible evidence to support many of these claims (controlling for psychological effects) - as far as this life is concerned.
-- However, a natural resolution is that the goals are achieved in the next life (../References in [karma](Rta/) section).
+- However, a natural resolution is that the goals are achieved in the next life (../References in [karma](Rta/) section).
 
 ### Psychological effects
 - Nevertheless, the rituals are themselves certainly useful in developing appropriate sentiments for the task. This applies to tasks and rituals involving multiple people (../eg: a war party, or a family or even enemies observing the ritual) as well. Other benefits of rituals are discussed [here](../self-cultivation/rituals/).

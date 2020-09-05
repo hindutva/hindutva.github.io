@@ -12,10 +12,10 @@ sidebar: hindutvam_sidebar
     - darshana-s may have certain dogma-s (although it may be more profitable to think of them as therapy). So, they share some commonality with religions.
 
 ### Similar questions elsewhere
-- Is [Confucianism](http://en.wikipedia.org/wiki/Confucianism) a religion? Is [Taoism](http://en.wikipedia.org/wiki/Taoism) a religion?
+- Is [Confucianism](http://en.wikipedia.org/wiki/Confucianism) a religion? Is [Taoism](http://en.wikipedia.org/wiki/Taoism) a religion?
 - Japan:
-    - Compare with Japan ("the most religious atheist nation" - [gaijinpot](http://blog.gaijinpot.com/japan-religious-atheist-country/)), where a family of overlapping ritual performances that share ideas about reciprocity, self-sacrifice, and dependency pervade every level of society.
-    - "Shinto is more than just a religion - it's no more or less than the Japanese way of looking at the world. Because ritual rather than belief is at the heart of Shinto, Japanese people don't usually think of Shinto specifically as a religion - it's simply an aspect of Japanese life. ... " "Today many Japanese mix Buddhism and Shinto in their lives; something that can't be done with more exclusive religions like Christianity or Islam." - BBC on shintoism ([here](http://www.bbc.co.uk/religion/religions/shinto/beliefs/religion.shtml))
+    - Compare with Japan ("the most religious atheist nation" - [gaijinpot](http://blog.gaijinpot.com/japan-religious-atheist-country/)), where a family of overlapping ritual performances that share ideas about reciprocity, self-sacrifice, and dependency pervade every level of society.
+    - "Shinto is more than just a religion - it's no more or less than the Japanese way of looking at the world. Because ritual rather than belief is at the heart of Shinto, Japanese people don't usually think of Shinto specifically as a religion - it's simply an aspect of Japanese life. ... " "Today many Japanese mix Buddhism and Shinto in their lives; something that can't be done with more exclusive religions like Christianity or Islam." - BBC on shintoism ([here](http://www.bbc.co.uk/religion/religions/shinto/beliefs/religion.shtml))
 
 
 ## Is the hindu ethos a religion?
@@ -32,8 +32,8 @@ sidebar: hindutvam_sidebar
 
 ## Dangers of saying "hinduism is a religion"
 - A flawed understanding results in flawed solutions.
-    - The problem of rioting muslims and hindu retaliation, if considered a conflict between religions, will lead to flawed solutions like "more secularism", "let's weaken hinduism in government and public culture" etc.. Abrahamistic rioting should be considered as a battle between a religion and a religious ecosystem. More [here](../../rivals/0-theism/secularism/).
-    - [Balagangadhara](http://en.wikipedia.org/wiki/S._N._Balagangadhara) has made a similar case.
+    - The problem of rioting muslims and hindu retaliation, if considered a conflict between religions, will lead to flawed solutions like "more secularism", "let's weaken hinduism in government and public culture" etc.. Abrahamistic rioting should be considered as a battle between a religion and a religious ecosystem. More [here](../../rivals/0-theism/secularism/).
+    - [Balagangadhara](http://en.wikipedia.org/wiki/S._N._Balagangadhara) has made a similar case.
 - A false sense of ownership across traditions comes to being.
     - For example, just because someone who calls himself a hindu likes providing equal access to women, he should not be able to force some other tradition (say based on its own Agama-s) to provide such access in opposition to its own ritual lore.
 - Various protective and aesthetic benefits of the hindu label will not apply to those who exit whatever strict dogma defines the hindu religion in their minds (carrying over mores from atheists leaving Abrahamistic religions).

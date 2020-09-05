@@ -9,7 +9,7 @@ title: Criticism and counters
 
   
 
-- "Caste system" was not a fair system (in many meanings of the word "fair"). For example, my ancestors were just ineligible to rule a country, or focus on making money. But so is \*your\* current system, and the systems of \*your\* ancestors - they are and were unfair. In the current system, people want to sweep inequalities and hierarchies under the rug - sort of like saying: "there's no prostitution in our country". "My" system, acknowledged what exists naturally, and attempted to regulate and harmonize it.
+- "Caste system" was not a fair system (in many meanings of the word "fair"). For example, my ancestors were just ineligible to rule a country, or focus on making money. But so is \*your\* current system, and the systems of \*your\* ancestors - they are and were unfair. In the current system, people want to sweep inequalities and hierarchies under the rug - sort of like saying: "there's no prostitution in our country". "My" system, acknowledged what exists naturally, and attempted to regulate and harmonize it.
 - Your forefathers' pagan pietas did not survive the onslaught of Abrahamisms (just like the buddhists of Afghanistan and central asia). Mine did very well in comparison. They preserved wonderful practices that everyone enjoys today such as Yoga, meditation, tantra, chanting, dances etc.; while Apollo and Jupiter lie in Roman and Greek ruins.
 - Newly encountered tribes were harmoniously brought into the system, while preserving their internal practices and autonomy (not made victims of a vicious genocide).
 - There is more than enough points there to argue that, in terms of gross happiness, overall accomplishment and sheer survival, our "caste system" was in no way inferior or wholly immoral.
@@ -22,4 +22,4 @@ Also see the parable of varNavatI [here](../theory/varnavatii/).
 
 ### Other counters
 
-- pankaj jain's defense here: [HF](http://www.huffingtonpost.com/pankaj-jain-phd/varna-and-caste-system-of_b_877981.html).
+- pankaj jain's defense here: [HF](http://www.huffingtonpost.com/pankaj-jain-phd/varna-and-caste-system-of_b_877981.html).

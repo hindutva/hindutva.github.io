@@ -3,8 +3,8 @@ title: +varNa practice
 ---
 
 ## Correspondence of theory with practice
-- Frameworks always exist and make sense once defined - irrespective of how closely they were practiced. Whether or not one writes in the hindu decimal system, it exists.
-- What matters to us (and the creators and interpreters of the many many dharmashAstra works) is - how useful is the framework in **organizing** or systematizing the society to make it function smoothly.
+- Frameworks always exist and make sense once defined - irrespective of how closely they were practiced. Whether or not one writes in the hindu decimal system, it exists.
+- What matters to us (and the creators and interpreters of the many many dharmashAstra works) is - how useful is the framework in **organizing** or systematizing the society to make it function smoothly.
 
 ## Overlay of varNa-s on jAti-s
 - varNa-s were overlaid on/ mapped to many many pre-existing jAti-s (which could vary). These jAti-s and sub-jAti-s had their own hierarchies and restrictions on marriage and inter-dining beyond what the varNa-system required.
@@ -15,7 +15,7 @@ title: +varNa practice
 ## Sentimental life, rituals and Ananda pursuit
 - This closely followed the theory described [here](../varna-theory/) (search term: Ananda).
 - In some cases, brAhmaNa-s accepted non-brAhmaNa saints as honored gurus.
-    - There are cases like a shrIvaiShNava brAhmaNa carrying a dalit on his shoulders so that he could visit the deva without violating temple rules, falling at their feet, insisting on eating food leftover after serving them ( [rAmAnuja](http://www.iskcontimes.com/archive/ramanuja-chides-his-wife) ).
+    - There are cases like a shrIvaiShNava brAhmaNa carrying a dalit on his shoulders so that he could visit the deva without violating temple rules, falling at their feet, insisting on eating food leftover after serving them ( [rAmAnuja](http://www.iskcontimes.com/archive/ramanuja-chides-his-wife) ).
     - madhusUdana-sarasvatI initiated many sannyAsins from other dvija-varNa-s with the intention of protecting brAhmaNa sannyAsins as suggested by bIrbal \[[IMG](http://i.imgur.com/WLSY6VL.jpg)\].
     - matsyendranAtha's 1k year old tradition initiates non-brAhmaNa sannyAsins as well.  
 
