@@ -26,7 +26,8 @@ RoP is a memetic (ie mental) disease of epidemic proportions. It CANNOT coexist 
 - Related streams: [#u3down](https://twitter.com/search?q=%23u3down&f=live)
 
 
-## Support apostasy among muslims.
+## Limited support to apostasy among muslims.
+- Beware - ex-muslims oft carry over much of their anti-hindu / "anti-superstition" inflammation.
 - [Ex muslims of North America](http://www.exmna.org/). UK.
 - The emotional and physical challenges to being an Ex-Muslim, especially woman - [YT15](https://www.youtube.com/watch?v=aW7wRfuSw0A).
 - China here [NYB_2019](https://www.nybooks.com/articles/2019/02/07/reeducating-xinjiangs-muslims/).
