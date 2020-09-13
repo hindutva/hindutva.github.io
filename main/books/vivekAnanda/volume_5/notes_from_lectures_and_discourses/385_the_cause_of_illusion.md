@@ -1,11 +1,7 @@
 ---
-title: THE CAUSE OF ILLUSION
+title: 385 THE CAUSE OF ILLUSION
 
 ---
-
-
-
-
   
 
 ## THE CAUSE OF ILLUSION
@@ -43,5 +39,3 @@ was one of the arguments used by our philosophers to prove immortality.
 If I try to think I am lying dead, what have I to imagine? That I am
 standing and looking down at myself, at some dead body. So that I cannot
 objectify myself.
-
-

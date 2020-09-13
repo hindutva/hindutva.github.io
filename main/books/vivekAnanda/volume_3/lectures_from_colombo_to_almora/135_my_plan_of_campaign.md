@@ -1,11 +1,7 @@
 ---
-title: MY PLAN OF CAMPAIGN
+title: 135 MY PLAN OF CAMPAIGN
 
 ---
-
-
-
-
   
 
 ## MY PLAN OF CAMPAIGN
@@ -631,5 +627,3 @@ with you. But if you will not listen to them, and even kick me out of
 India, I will come back and tell you that we are all sinking! I am come
 now to sit in your midst, and if we are to sink, let us all sink
 together, but never let curses rise to our lips.
-
-

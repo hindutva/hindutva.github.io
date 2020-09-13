@@ -1,11 +1,7 @@
 ---
-title: THE SPIRIT AND INFLUENCE OF VEDANTA
+title: 037 THE SPIRIT AND INFLUENCE OF VEDANTA
 
 ---
-
-
-
-
   
 
 ## THE SPIRIT AND INFLUENCE OF VEDANTA
@@ -167,5 +163,3 @@ real man behind every human being — then alone he has reached the
 universal brotherhood, and that man alone is a Vedantist.
 
 Such are some of the practical historical results of the Vedanta.
-
-

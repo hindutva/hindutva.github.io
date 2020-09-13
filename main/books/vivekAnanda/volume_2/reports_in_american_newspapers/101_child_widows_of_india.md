@@ -1,11 +1,7 @@
 ---
-title: CHILD WIDOWS OF INDIA
+title: 101 CHILD WIDOWS OF INDIA
 
 ---
-
-
-
-
   
 
 ## CHILD WIDOWS OF INDIA
@@ -39,5 +35,3 @@ at the death of their husbands. The Hindus did not believe in this, but
 did not prevent it, and it was not until the British obtained control of
 India that it was finally prohibited. These women were considered saints
 and in many instances monuments were erected to their memory."
-
-

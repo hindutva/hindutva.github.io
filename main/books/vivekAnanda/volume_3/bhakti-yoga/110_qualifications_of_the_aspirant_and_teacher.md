@@ -1,11 +1,7 @@
 ---
-title: QUALIFICATIONS OF THE ASPIRANT AND THE TEACHER
+title: 110 QUALIFICATIONS OF THE ASPIRANT AND THE TEACHER
 
 ---
-
-
-
-
   
 
 CHAPTER V
@@ -176,5 +172,3 @@ childlike confidence and simplicity, freely open your heart to his
 influence, and see in him God manifested. Those who come to seek truth
 with such a spirit of love and veneration, to them the Lord of Truth
 reveals the most wonderful things regarding truth, goodness, and beauty.
-
-

@@ -1,11 +1,7 @@
 ---
-title: XCVI
+title: 952 XCVI
 
 ---
-
-
-
-
   
 
   
@@ -53,5 +49,3 @@ all the rest of our friends there.
 With all love, yours ever in the Truth,
 
 VIVEKANANDA.
-
-

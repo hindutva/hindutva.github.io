@@ -1,11 +1,7 @@
 ---
-title: LXXXVIII
+title: 323 LXXXVIII
 
 ---
-
-
-
-
   
 
   
@@ -33,5 +29,3 @@ Yours in the Lord,
 VIVEKANANDA.
 
 [→](089_mother.htm)  
-
-

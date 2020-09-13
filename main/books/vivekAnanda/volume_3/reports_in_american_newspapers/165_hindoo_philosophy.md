@@ -1,11 +1,7 @@
 ---
-title: HINDOO PHILOSOPHY
+title: 165 HINDOO PHILOSOPHY
 
 ---
-
-
-
-
   
 
 ## HINDOO PHILOSOPHY
@@ -100,5 +96,3 @@ have converted millions without the shedding of a single drop of blood.
 Hindus, with all their faults and superstitions, never persecute. The
 speaker wanted to know how it was the Christians allowed such iniquities
 as are everywhere present in Christian countries.
-
-

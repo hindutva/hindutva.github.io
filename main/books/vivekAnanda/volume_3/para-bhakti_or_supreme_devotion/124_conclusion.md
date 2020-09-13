@@ -1,11 +1,7 @@
 ---
-title: CONCLUSION
+title: 124 CONCLUSION
 
 ---
-
-
-
-
   
 
 CHAPTER X
@@ -54,5 +50,3 @@ comes the full blaze of light, in which this little self is seen to have
 become one with the Infinite. Man himself is transfigured in the
 presence of this Light of Love, and he realises at last the beautiful
 and inspiring truth that Love, the Lover, and the Beloved are One.
-
-

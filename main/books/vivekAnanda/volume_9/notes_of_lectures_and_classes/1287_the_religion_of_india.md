@@ -1,9 +1,7 @@
 ---
-title: THE RELIGION OF INDIA
+title: 1287 THE RELIGION OF INDIA
 
 ---
-
-
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Notes of Lectures and
 Classes](notes_of_lectures_and_classes_contents.htm) /
@@ -171,5 +169,3 @@ I meditate on the Glory of the producer of this Universe
 may He enlighten our minds.  
 
 [→](christs_message_to_the_world.htm)
-
-

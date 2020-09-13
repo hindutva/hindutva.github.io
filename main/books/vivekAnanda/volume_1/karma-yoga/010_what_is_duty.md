@@ -1,11 +1,7 @@
 ---
-title: WHAT IS DUTY?
+title: 010 WHAT IS DUTY?
 
 ---
-
-
-
-
   
 
 CHAPTER IV
@@ -262,5 +258,3 @@ satisfy him, and his whole life is doomed to prove a failure. Let us
 work on, doing as we go whatever happens to be our duty, and being ever
 ready to put our shoulders to the wheel. Then surely shall we see the
 Light!
-
-

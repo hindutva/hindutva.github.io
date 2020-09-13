@@ -1,11 +1,7 @@
 ---
-title: CL
+title: 1006 CL
 
 ---
-
-
-
-
   
 
   
@@ -48,5 +44,3 @@ VIVEKANANDA.
 PS. Mrs. Bull sends her love.
 
 V.
-
-

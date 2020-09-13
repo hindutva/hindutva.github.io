@@ -1,11 +1,7 @@
 ---
-title: ON SHRI RAMAKRISHNA AND HIS VIEWS
+title: 733 ON SHRI RAMAKRISHNA AND HIS VIEWS
 
 ---
-
-
-
-
   
 
 ## ON SHRI RAMAKRISHNA AND HIS VIEWS
@@ -53,5 +49,3 @@ were incapable of any higher training.
 
 He used generally to teach dualism. As a rule, he never taught
 Advaitism. But he taught it to me. I had been a dualist before.
-
-

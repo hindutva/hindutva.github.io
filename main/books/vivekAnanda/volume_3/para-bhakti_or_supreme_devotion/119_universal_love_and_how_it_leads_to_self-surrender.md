@@ -1,11 +1,7 @@
 ---
-title: UNIVERSAL LOVE AND HOW IT LEADS TO SELF-SURRENDER
+title: 119 UNIVERSAL LOVE AND HOW IT LEADS TO SELF-SURRENDER
 
 ---
-
-
-
-
   
 
 CHAPTER V
@@ -130,5 +126,3 @@ everything in the shape of attachment goes away completely, except that
 one all-absorbing love to Him in whom all things live and move and have
 their being. This attachment of love to God is indeed one that does not
 bind the soul but effectively breaks all its bondages.
-
-

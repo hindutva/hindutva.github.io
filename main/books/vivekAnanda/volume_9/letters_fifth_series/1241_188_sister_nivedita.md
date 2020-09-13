@@ -1,9 +1,7 @@
 ---
-title: CLXXXVIII
+title: 1241 CLXXXVIII
 
 ---
-
-
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
@@ -33,5 +31,3 @@ V.
 [→](189_sister_christine.htm)  
 [Addressee→](../../volume_6/epistles_second_series/166_nivedita.htm)  
 [Chronology→](189_sister_christine.htm)
-
-

@@ -1,13 +1,9 @@
 ---
-title: 'RECORDED BY MISS S. E. WALDO
+title: '678 RECORDED BY MISS S. E. WALDO
 
   (A DISCIPLE)'
 
 ---
-
-
-
-
   
 
 ## RECORDED BY MISS S. E. WALDO (A DISCIPLE)
@@ -94,5 +90,3 @@ until at last the lower bird came to the place of the upper bird and
 lost himself. He found all at once that there had never been two birds,
 but that he was all the time that upper bird, serene, majestic, and
 immersed in his own glory.
-
-

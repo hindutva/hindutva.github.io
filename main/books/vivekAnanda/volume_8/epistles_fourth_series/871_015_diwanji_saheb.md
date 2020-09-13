@@ -1,11 +1,7 @@
 ---
-title: XV
+title: 871 XV
 
 ---
-
-
-
-
   
 
   
@@ -117,5 +113,3 @@ this sea of universal stagnation. Lord bless you for ever and ever!
 
 Yours ever faithfully,  
 VIVEKANANDA.
-
-

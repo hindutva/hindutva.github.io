@@ -1,11 +1,7 @@
 ---
-title: XXXVI
+title: 777 XXXVI
 
 ---
-
-
-
-
   
 
   
@@ -50,5 +46,3 @@ May all blessings attend you for ever!
 Yours affectionately,
 
 VIVEKANANDA.
-
-

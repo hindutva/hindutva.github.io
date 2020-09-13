@@ -1,11 +1,7 @@
 ---
-title: CONVERSATIONS AND DIALOGUES
+title: 690 CONVERSATIONS AND DIALOGUES
 
 ---
-
-
-
-
   
 
 ## CONVERSATIONS AND DIALOGUES
@@ -215,5 +211,3 @@ Atman you will find that science, philosophy, and everything will be
 easily mastered. Proclaim the glory of the Atman with the roar of a
 lion, and impart fearlessness unto all beings by saying, "Arise, awake,
 and stop not till the goal is reached."
-
-

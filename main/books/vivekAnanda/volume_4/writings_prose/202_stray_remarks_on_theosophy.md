@@ -1,11 +1,7 @@
 ---
-title: 'STRAY REMARKS ON THEOSOPHY '
+title: '202 STRAY REMARKS ON THEOSOPHY '
 
 ---
-
-
-
-
   
 
 ## STRAY REMARKS ON THEOSOPHY
@@ -89,5 +85,3 @@ so far as we can see, is to separate, like Prof. Koch's injections into
 the lungs of consumptives, the healthy, spiritual, active, and patriotic
 from the charlatans, the morbids, and the degenerates posing as
 spiritual beings.
-
-

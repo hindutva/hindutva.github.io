@@ -1,11 +1,7 @@
 ---
-title: FIRST PUBLIC LECTURE IN THE EAST
+title: 125 FIRST PUBLIC LECTURE IN THE EAST
 
 ---
-
-
-
-
   
 
 ## FIRST PUBLIC LECTURE IN THE EAST
@@ -410,5 +406,3 @@ but they are only for the learned. The lessons of mildness, gentleness,
 forbearance, toleration, sympathy, and brotherhood, everyone may learn,
 whether man, woman, or child, learned or unlearned, without respect of
 race, caste, or creed. "They call Thee by various names; Thou art One."
-
-

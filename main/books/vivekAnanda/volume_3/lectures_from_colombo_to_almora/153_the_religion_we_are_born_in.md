@@ -1,11 +1,7 @@
 ---
-title: THE RELIGION WE ARE BORN IN
+title: 153 THE RELIGION WE ARE BORN IN
 
 ---
-
-
-
-
   
 
 ## THE RELIGION WE ARE BORN IN
@@ -253,5 +249,3 @@ bold enough to do that, then admit your weakness and stretch forth a
 helping hand, and open the gates of knowledge to one and all, and give
 the downtrodden masses once more their just and legitimate rights and
 privileges."
-
-

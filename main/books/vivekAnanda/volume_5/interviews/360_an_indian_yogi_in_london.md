@@ -1,11 +1,7 @@
 ---
-title: AN INDIAN YOGI IN LONDON
+title: 360 AN INDIAN YOGI IN LONDON
 
 ---
-
-
-
-
   
 
 ## AN INDIAN YOGI IN LONDON
@@ -124,5 +120,3 @@ pecuniary reward."
 
 I then took my leave from one of the most original of men that I have
 had the honour of meeting.
-
-

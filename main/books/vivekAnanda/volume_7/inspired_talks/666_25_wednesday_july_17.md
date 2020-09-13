@@ -1,13 +1,9 @@
 ---
-title: 'RECORDED BY MISS S. E. WALDO
+title: '666 RECORDED BY MISS S. E. WALDO
 
   (A DISCIPLE)'
 
 ---
-
-
-
-
   
 
 ## RECORDED BY MISS S. E. WALDO (A DISCIPLE)
@@ -70,5 +66,3 @@ upon it. Changeful thoughts expressed in changeful words can never prove
 the Absolute. You reach only something that is minus certain qualities,
 not Brahman Itself; only a verbal unification, the highest abstraction,
 but not the nonexistence of the relative.
-
-

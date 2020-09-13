@@ -1,11 +1,7 @@
 ---
-title: CXXVI
+title: 587 CXXVI
 
 ---
-
-
-
-
   
 
   
@@ -47,5 +43,3 @@ books. But the Mother dispenses otherwise — yet the tendency is there.
 
 Yours etc.,  
 VIVEKANANDA.
-
-

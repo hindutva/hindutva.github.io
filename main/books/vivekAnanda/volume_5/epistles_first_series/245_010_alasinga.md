@@ -1,11 +1,7 @@
 ---
-title: X
+title: 245 X
 
 ---
-
-
-
-
   
 
   
@@ -95,5 +91,3 @@ Glory unto the Lord! . . .
 
 Yours affectionately,  
 VIVEKANANDA.
-
-

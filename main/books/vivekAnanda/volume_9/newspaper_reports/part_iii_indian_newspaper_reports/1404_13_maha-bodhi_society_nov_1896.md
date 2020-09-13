@@ -1,9 +1,7 @@
 ---
-title: '"THE IDEAL OF UNIVERSAL RELIGION"'
+title: 1404 "THE IDEAL OF UNIVERSAL RELIGION"
 
 ---
-
-
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
 9](../../volume_9_contents.htm) / [Newspaper
@@ -78,5 +76,3 @@ book is As. 3, and may be had at the Brahmavadin Office, Triplicane,
 Madras.
 
 [→](14_the_indian_mirror_dec_16_1896.htm)
-
-

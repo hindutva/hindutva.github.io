@@ -1,9 +1,7 @@
 ---
-title: CII
+title: 1155 CII
 
 ---
-
-
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
@@ -30,5 +28,3 @@ VIVEKANANDA.
 [→](103_madras_committee.htm)  
 [Addressee→](105_christina.htm)  
 [Chronology→](103_madras_committee.htm)
-
-

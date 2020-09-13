@@ -1,11 +1,7 @@
 ---
-title: LXXXI
+title: 937 LXXXI
 
 ---
-
-
-
-
   
 
 
@@ -118,5 +114,3 @@ same or more share in my love and help, now that he is in misery.
 Yours with blessings,
 
 VIVEKANANDA.
-
-

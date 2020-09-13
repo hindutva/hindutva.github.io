@@ -1,11 +1,7 @@
 ---
-title: CXXXIV
+title: 990 CXXXIV
 
 ---
-
-
-
-
   
 
   
@@ -30,5 +26,3 @@ to all.
 
 Yours affectionately,  
 VIVEKANANDA.
-
-

@@ -1,11 +1,7 @@
 ---
-title: 'CONVERSATIONS AND DIALOGUES '
+title: '712 CONVERSATIONS AND DIALOGUES '
 
 ---
-
-
-
-
   
 
 ## CONVERSATIONS AND DIALOGUES
@@ -113,5 +109,3 @@ case.
 
 Saying this, Swamiji, feeling sleepy, lay on his side. At this the
 disciple came down to take his supper.
-
-

@@ -1,9 +1,7 @@
 ---
-title: CLI
+title: 1204 CLI
 
 ---
-
-
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
@@ -52,5 +50,3 @@ VIVEKANANDA.
 [→](152_christina.htm)  
 [Addressee→](152_christina.htm)  
 [Chronology→](152_christina.htm)
-
-

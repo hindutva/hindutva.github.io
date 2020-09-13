@@ -1,11 +1,7 @@
 ---
-title: A STUDY OF THE SANKHYA PHILOSOPHY
+title: 082 A STUDY OF THE SANKHYA PHILOSOPHY
 
 ---
-
-
-
-
   
 
 ## A STUDY OF THE SANKHYA PHILOSOPHY
@@ -336,5 +332,3 @@ then we shall see how the Vedantists grope out of all these difficulties
 and reach a perfect solution, and yet all the glory really belongs to
 the Sankhya. It is very easy to give a finishing touch to a building
 when it is constructed.
-
-

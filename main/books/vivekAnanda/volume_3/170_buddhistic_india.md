@@ -1,11 +1,7 @@
 ---
-title: BUDDHISTIC INDIA
+title: 170 BUDDHISTIC INDIA
 
 ---
-
-
-
-
   
 
 ## BUDDHISTIC INDIA
@@ -847,5 +843,3 @@ moment. This is the old doctrine of the Vedas, you see. This was
 revived. Buddhism died out of India. It left its mark on their charity,
 its animals, etc. in India; and Vedantism is reconquering India from one
 end to the other.
-
-

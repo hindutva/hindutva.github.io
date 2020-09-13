@@ -1,11 +1,7 @@
 ---
-title: LVII
+title: 518 LVII
 
 ---
-
-
-
-
   
 
   
@@ -37,5 +33,3 @@ With my love to Miss Farmer and all the holy family,
 I remain yours obediently,
 
 VIVEKANANDA.
-
-

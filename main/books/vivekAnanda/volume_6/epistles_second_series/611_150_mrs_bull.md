@@ -1,11 +1,7 @@
 ---
-title: CL
+title: 611 CL
 
 ---
-
-
-
-
   
 
   
@@ -83,5 +79,3 @@ than I deserved ever.
 Love to Christine and Turiyananda. 
 
 VIVEKANANDA.
-
-

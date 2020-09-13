@@ -1,11 +1,7 @@
 ---
-title: LIV
+title: 289 LIV
 
 ---
-
-
-
-
   
 
   
@@ -49,5 +45,3 @@ for a long rest. . . .
 Ever yours with love and blessings,
 
 VIVEKANANDA.
-
-

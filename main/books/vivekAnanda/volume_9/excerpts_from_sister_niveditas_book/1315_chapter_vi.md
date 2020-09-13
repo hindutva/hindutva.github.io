@@ -1,9 +1,7 @@
 ---
-title: CHAPTER VI
+title: 1315 CHAPTER VI
 
 ---
-
-
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Excerpts from Sister
 Nivedita's Book](excerpts_from_sister_niveditas_book_contents.htm) /
@@ -98,5 +96,3 @@ state of things, that each should be born in the other's country to
 spread the given ideal as far as it could be carried?
 
 [→](chapter_vii.htm)
-
-

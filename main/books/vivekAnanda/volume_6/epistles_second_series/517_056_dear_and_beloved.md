@@ -1,13 +1,9 @@
 ---
-title: 'LVI
+title: '517 LVI
 
   1'
 
 ---
-
-
-
-
   
 
   
@@ -245,5 +241,3 @@ own part, and all the parts taken together express an ideal of harmony.
     August, 1963  
     Editor  
     Volume 6 Page 200
-
-

@@ -1,11 +1,7 @@
 ---
-title: THE MESSAGE OF DIVINE WISDOM
+title: 407 THE MESSAGE OF DIVINE WISDOM
 
 ---
-
-
-
-
   
 
 ## THE MESSAGE OF DIVINE WISDOM
@@ -261,5 +257,3 @@ knowledge.
 \(b\) Worship — consists in prayer, praise, and meditation.
 
 \(c\) Knowledge — that follows meditation.
-
-

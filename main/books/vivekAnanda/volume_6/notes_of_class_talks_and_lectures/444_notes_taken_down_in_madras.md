@@ -1,11 +1,7 @@
 ---
-title: NOTES TAKEN DOWN IN MADRAS, 1892-93
+title: 444 NOTES TAKEN DOWN IN MADRAS, 1892-93
 
 ---
-
-
-
-
   
 
 ## NOTES TAKEN DOWN IN MADRAS, 1892-93
@@ -757,5 +753,3 @@ grow in its own way.
 To be shocked by a new custom is the father of all Superstition, the
 first road to hell. It leads to bigotry and fanaticism. Truth is heaven.
 Bigotry is hell.
-
-

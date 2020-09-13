@@ -1,11 +1,7 @@
 ---
-title: XLVII
+title: 282 XLVII
 
 ---
-
-
-
-
   
 
   
@@ -34,5 +30,3 @@ be steady and pure and must have immense faith in God, and all these
 will vanish. . . .
 
 VIVEKANANDA.
-
-

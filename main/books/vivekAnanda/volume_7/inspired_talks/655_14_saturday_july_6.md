@@ -1,13 +1,9 @@
 ---
-title: 'RECORDED BY MISS S. E. WALDO
+title: '655 RECORDED BY MISS S. E. WALDO
 
   (A DISCIPLE)'
 
 ---
-
-
-
-
   
 
 ## RECORDED BY MISS S. E. WALDO (A DISCIPLE)
@@ -101,5 +97,3 @@ releases us, we cannot get free.
 
 The universe is ours to enjoy. But want nothing. To want is weakness.
 Want makes us beggars, and we are sons of the king, not beggars.
-
-

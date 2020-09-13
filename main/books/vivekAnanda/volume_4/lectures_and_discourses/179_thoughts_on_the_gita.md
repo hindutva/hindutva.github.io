@@ -1,11 +1,7 @@
 ---
-title: THOUGHTS ON THE GITA
+title: 179 THOUGHTS ON THE GITA
 
 ---
-
-
-
-
   
 
 ## THOUGHTS ON THE GITA
@@ -281,5 +277,3 @@ If one reads this one Shloka — क्लैब्यं मा स्म ग�
 नैतत्त्वय्युपपद्यते । क्षुद्रं हृदयदौर्बल्यं त्यक्त्वोत्तिष्ठ परंतप॥ —
 one gets all the merits of reading the entire Gita; for in this one
 Shloka lies imbedded the whole Message of the Gita.
-
-

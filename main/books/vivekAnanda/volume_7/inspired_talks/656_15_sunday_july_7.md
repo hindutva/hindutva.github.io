@@ -1,13 +1,9 @@
 ---
-title: 'RECORDED BY MISS S. E. WALDO
+title: '656 RECORDED BY MISS S. E. WALDO
 
   (A DISCIPLE)'
 
 ---
-
-
-
-
   
 
 ## RECORDED BY MISS S. E. WALDO (A DISCIPLE)
@@ -84,5 +80,3 @@ at all, because there is no salvation except through Vishnu.
     countless forms which are limited by their very nature, still as a
     whole it is always infinite, nay, even a portion of it is infinite,
     as each such portion is inseparably united with it.
-
-

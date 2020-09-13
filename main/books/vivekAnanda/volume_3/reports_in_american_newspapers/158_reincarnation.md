@@ -1,11 +1,7 @@
 ---
-title: REINCARNATION
+title: 158 REINCARNATION
 
 ---
-
-
-
-
   
 
 ## REINCARNATION
@@ -57,5 +53,3 @@ where he will be a loftier being, possessing, instead of five senses,
 eight, and continuing in this way he will at length approach the acme of
 perfection, divinity, and will be allowed to drink deep of oblivion in
 the "Islands of the Blest".
-
-

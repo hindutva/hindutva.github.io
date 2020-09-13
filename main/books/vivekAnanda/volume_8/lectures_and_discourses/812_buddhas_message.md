@@ -1,11 +1,7 @@
 ---
-title: BUDDHA'S MESSAGE TO THE WORLD
+title: 812 BUDDHA'S MESSAGE TO THE WORLD
 
 ---
-
-
-
-
   
 
 ## BUDDHA'S MESSAGE TO THE WORLD
@@ -429,5 +425,3 @@ the invisible being or beings called God or gods. He invited every one
 to enter into that state of freedom which he called Nirvana. All must
 attain to it one day; and that attainment is the complete fulfilment of
 man.
-
-

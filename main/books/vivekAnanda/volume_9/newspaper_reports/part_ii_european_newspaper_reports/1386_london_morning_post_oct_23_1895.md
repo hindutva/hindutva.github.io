@@ -1,9 +1,7 @@
 ---
-title: NATIVE INDIAN LECTURER AT PRINCES' HALL
+title: 1386 NATIVE INDIAN LECTURER AT PRINCES' HALL
 
 ---
-
-
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
 9](../../volume_9_contents.htm) / [Newspaper
@@ -41,5 +39,3 @@ has grown out of it. He spoke with a good deal of fluency, and his
 remarks were listened to with attention by the somewhat small audience.
 
 [→](christian_commonwealth_nov_14_1895.htm)
-
-

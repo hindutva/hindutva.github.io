@@ -1,11 +1,7 @@
 ---
-title: THE NEED OF GURU
+title: 109 THE NEED OF GURU
 
 ---
-
-
-
-
   
 
 CHAPTER IV
@@ -97,5 +93,3 @@ blind men led by the blind." — (Katha Up., I. ii. 5). The world is full
 of these. Every one wants to be a teacher, every beggar wants to make a
 gift of a million dollars! Just as these beggars are ridiculous, so are
 these teachers.
-
-

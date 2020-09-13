@@ -1,11 +1,7 @@
 ---
-title: THE ADVAITA ASHRAMA, HIMALAYAS
+title: 409 THE ADVAITA ASHRAMA, HIMALAYAS
 
 ---
-
-
-
-
   
 
 ## THE ADVAITA ASHRAMA, HIMALAYAS
@@ -42,5 +38,3 @@ weakening contaminations. Here will be taught and practiced nothing but
 the Doctrine of Unity, pure and simple; and though in entire sympathy
 with all other systems, this Ashrama is dedicated to Advaita and Advaita
 alone.
-
-

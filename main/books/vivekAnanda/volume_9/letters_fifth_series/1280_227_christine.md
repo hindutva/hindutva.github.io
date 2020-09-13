@@ -1,9 +1,7 @@
 ---
-title: CCXXVII
+title: 1280 CCXXVII
 
 ---
-
-
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /

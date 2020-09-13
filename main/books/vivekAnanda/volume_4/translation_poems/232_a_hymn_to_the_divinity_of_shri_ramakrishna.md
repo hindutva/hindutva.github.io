@@ -1,11 +1,7 @@
 ---
-title: A HYMN TO THE DIVINITY OF SHRI RAMAKRISHNA
+title: 232 A HYMN TO THE DIVINITY OF SHRI RAMAKRISHNA
 
 ---
-
-
-
-
   
 
 ## A HYMN TO THE DIVINITY OF SHRI RAMAKRISHNA
@@ -79,5 +75,3 @@ To Love! O Seer of equality
 In all! O verily, in Thee the pain  
 And evil of this mortal world escapes,  
 And vanishes, O cherished One.
-
-

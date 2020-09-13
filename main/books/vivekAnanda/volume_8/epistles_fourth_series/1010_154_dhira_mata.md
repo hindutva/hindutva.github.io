@@ -1,11 +1,7 @@
 ---
-title: CLIV
+title: 1010 CLIV
 
 ---
-
-
-
-
   
 
   
@@ -84,5 +80,3 @@ to India, won't you? Mother will make you do it. I am sure.
 
 Ever your son,  
 VIVEKANANDA.
-
-

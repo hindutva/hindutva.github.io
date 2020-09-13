@@ -1,13 +1,9 @@
 ---
-title: 'RECORDED BY MISS S. E. WALDO
+title: '661 RECORDED BY MISS S. E. WALDO
 
   (A DISCIPLE)'
 
 ---
-
-
-
-
   
 
 ## RECORDED BY MISS S. E. WALDO (A DISCIPLE)
@@ -84,5 +80,3 @@ of us is a creator. Pronounce the words, the thought which corresponds
 will arise, and the result will become visible. "Thought is the power of
 the word, the word is the expression of the thought," say Mimāmsakas, a
 Hindu philosophical sect.
-
-

@@ -1,11 +1,7 @@
 ---
-title: CXXXVI
+title: 597 CXXXVI
 
 ---
-
-
-
-
   
 
   
@@ -69,5 +65,3 @@ unceasingly, as you go the round of your daily duties.
 
 Yours,  
 V.
-
-

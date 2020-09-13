@@ -1,11 +1,7 @@
 ---
-title: THE LAWS OF LIFE AND DEATH
+title: 847 THE LAWS OF LIFE AND DEATH
 
 ---
-
-
-
-
   
 
 ## THE LAWS OF LIFE AND DEATH
@@ -60,5 +56,3 @@ of reincarnation. We are the slaves of law, the slaves of conduct, the
 slaves of thirst, the slaves of desire, the slaves of a thousand things.
 Only by escaping from life can we escape from slavery to freedom. God is
 the only one who is free. God and freedom are one and the same.
-
-

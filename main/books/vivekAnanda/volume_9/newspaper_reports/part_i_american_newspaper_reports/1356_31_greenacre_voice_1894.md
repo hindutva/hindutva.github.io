@@ -1,9 +1,7 @@
 ---
-title: NIRVANASHATKAM
+title: 1356 NIRVANASHATKAM
 
 ---
-
-
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
 9](../../volume_9_contents.htm) / [Newspaper
@@ -43,5 +41,3 @@ Existence Absolute. Bliss Absolute. Knowledge Absolute. I am It. I am
 It."
 
 [→](32_boston_evening_transcript_aug_15_1894.htm)
-
-

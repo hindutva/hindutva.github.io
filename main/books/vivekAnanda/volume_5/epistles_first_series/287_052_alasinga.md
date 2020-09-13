@@ -1,11 +1,7 @@
 ---
-title: LII
+title: 287 LII
 
 ---
-
-
-
-
   
 
   
@@ -60,5 +56,3 @@ I am going to London tomorrow. . . .
 Yours with blessings
 
 VIVEKANANDA.
-
-

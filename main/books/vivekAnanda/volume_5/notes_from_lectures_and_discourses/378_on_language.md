@@ -1,11 +1,7 @@
 ---
-title: ON LANGUAGE
+title: 378 ON LANGUAGE
 
 ---
-
-
-
-
   
 
 ## ON LANGUAGE
@@ -29,5 +25,3 @@ Sanskrit words for them, and an attempt should be made to coin new
 words. For this purpose, if a collection is made from a Sanskrit
 dictionary of all those technical terms, then it ill help greatly the
 constitution of the Bengali language.
-
-

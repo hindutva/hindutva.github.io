@@ -1,9 +1,7 @@
 ---
-title: LXXXII
+title: 1135 LXXXII
 
 ---
-
-
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
@@ -33,5 +31,3 @@ VIVEKANANDA
 [→](083_mrs_bull.htm)  
 [Addressee→  
 ](089_mrs_funkey.htm)[Chronology→](083_mrs_bull.htm)
-
-

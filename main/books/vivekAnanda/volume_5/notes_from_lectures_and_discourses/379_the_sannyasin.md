@@ -1,11 +1,7 @@
 ---
-title: THE SANNYASIN
+title: 379 THE SANNYASIN
 
 ---
-
-
-
-
   
 
 ## THE SANNYASIN
@@ -31,5 +27,3 @@ seek them from him, all that he can of wisdom and beneficence.
 A Sannyasin cannot belong to any religion, for his is a life of
 independent thought, which draws from all religions; his is a life of
 realisation, not merely of theory or belief, much less of dogma.
-
-

@@ -1,13 +1,9 @@
 ---
-title: 'RECORDED BY MISS S. E. WALDO
+title: '677 RECORDED BY MISS S. E. WALDO
 
   (A DISCIPLE)'
 
 ---
-
-
-
-
   
 
 ## RECORDED BY MISS S. E. WALDO (A DISCIPLE)
@@ -142,5 +138,3 @@ should never be counted in estimating his character.
 *Vira*, the Sanskrit word for "heroic", is the origin of our word
 "virtue", because in ancient times the best fighter was regarded as the
 most virtuous man.
-
-

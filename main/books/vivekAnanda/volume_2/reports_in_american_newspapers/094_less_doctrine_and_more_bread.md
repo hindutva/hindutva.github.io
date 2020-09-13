@@ -1,11 +1,7 @@
 ---
-title: LESS DOCTRINE AND MORE BREAD
+title: 094 LESS DOCTRINE AND MORE BREAD
 
 ---
-
-
-
-
   
 
 ## LESS DOCTRINE AND MORE BREAD
@@ -64,5 +60,3 @@ nothing extraordinary — it is the only way to live. Everything in nature
 tends to expansion for life and contraction for death. It is the same in
 religion. Do good by helping others without ulterior motives. The moment
 this ceases contraction and death follow."
-
-

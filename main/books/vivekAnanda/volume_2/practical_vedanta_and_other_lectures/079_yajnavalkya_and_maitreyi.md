@@ -1,11 +1,7 @@
 ---
-title: YAJNAVALKYA AND MAITREYI
+title: 079 YAJNAVALKYA AND MAITREYI
 
 ---
-
-
-
-
   
 
 ## YAJNAVALKYA AND MAITREYI
@@ -208,5 +204,3 @@ air with the soul that is in the air and that is in me. They are all
 one, manifested in different forms. To realise this unity is the end and
 aim of all meditation, and this is what Yajnavalkya was trying to
 explain to Maitreyi.
-
-

@@ -1,9 +1,7 @@
 ---
-title: HINDU PHILOSOPHY
+title: 1339 HINDU PHILOSOPHY
 
 ---
-
-
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
 9](../../volume_9_contents.htm) / [Newspaper

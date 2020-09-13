@@ -1,11 +1,7 @@
 ---
-title: THE BENGALI LANGUAGE
+title: 459 THE BENGALI LANGUAGE
 
 ---
-
-
-
-
   
 
 ## THE BENGALI LANGUAGE
@@ -100,5 +96,3 @@ convey, you may search in vain in two thousand set epithets. Then every
 image of the Deity will inspire devotion, every girl decked in ornaments
 will appear to be a goddess, and every house and room and furniture will
 be animated with the vibration of life.
-
-

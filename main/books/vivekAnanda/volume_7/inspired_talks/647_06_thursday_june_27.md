@@ -1,13 +1,9 @@
 ---
-title: 'RECORDED BY MISS S. E. WALDO
+title: '647 RECORDED BY MISS S. E. WALDO
 
   (A DISCIPLE)'
 
 ---
-
-
-
-
   
 
 ## RECORDED BY MISS S. E. WALDO (A DISCIPLE)
@@ -87,5 +83,3 @@ motive except God. Dare to come to Truth even through hell.
     knower goes by the name of Spirit that which is distinct and
     separate from it should go by the name of Matter. Hence the Swami
     says, "Matter is only externalised thought."
-
-

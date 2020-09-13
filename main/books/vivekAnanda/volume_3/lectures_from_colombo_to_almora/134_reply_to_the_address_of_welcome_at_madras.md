@@ -1,11 +1,7 @@
 ---
-title: REPLY TO THE ADDRESS OF WELCOME AT MADRAS
+title: 134 REPLY TO THE ADDRESS OF WELCOME AT MADRAS
 
 ---
-
-
-
-
   
 
 ## REPLY TO THE ADDRESS OF WELCOME AT MADRAS
@@ -200,5 +196,3 @@ It is impossible to address you on all sides, therefore you must content
 yourselves this evening with merely seeing me. I will reserve my speech
 for some other occasion. I thank you very much for your enthusiastic
 welcome.
-
-

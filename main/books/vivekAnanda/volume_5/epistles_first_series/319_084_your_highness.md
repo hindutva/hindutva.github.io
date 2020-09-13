@@ -1,11 +1,7 @@
 ---
-title: LXXXIV
+title: 319 LXXXIV
 
 ---
-
-
-
-
   
 
   
@@ -35,5 +31,3 @@ with you.
 Ever yours in the Lord,
 
 VIVEKANANDA.
-
-

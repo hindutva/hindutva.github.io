@@ -1,11 +1,7 @@
 ---
-title: THE STORY OF THE BOY GOPALA
+title: 452 THE STORY OF THE BOY GOPALA
 
 ---
-
-
-
-
   
 
 ## THE STORY OF THE BOY GOPALA
@@ -230,5 +226,3 @@ distance:
 
 "Gopala, thy mother's and thy love and faith brought Me to thee; but
 tell thy teacher, he will have to wait a long while yet."
-
-

@@ -1,11 +1,7 @@
 ---
-title: CLXX
+title: 1026 CLXX
 
 ---
-
-
-
-
   
 
   
@@ -91,5 +87,3 @@ constant work I will make enough to pay my way and have a few hundred in
 the pocket anyhow. So you needn't be the least anxious about me.
 
 V.
-
-

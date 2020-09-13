@@ -1,11 +1,7 @@
 ---
-title: FOUR PATHS OF YOGA
+title: 817 FOUR PATHS OF YOGA
 
 ---
-
-
-
-
   
 
 ## FOUR PATHS OF YOGA
@@ -104,5 +100,3 @@ to be free. Meditating on this reality always and reminding the soul of
 its real nature are the only ways in this Yoga. It is the highest, but
 most difficult. Many persons get an intellectual grasp of it, but very
 few attain realisation.
-
-

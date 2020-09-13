@@ -1,11 +1,7 @@
 ---
-title: 'INDIA: HER RELIGION AND CUSTOMS'
+title: '154 INDIA: HER RELIGION AND CUSTOMS'
 
 ---
-
-
-
-
   
 
 ## INDIA: HER RELIGION AND CUSTOMS
@@ -195,5 +191,3 @@ Kananda will again speak, this time on the Use of Silver in India.
 2.  [^](#txt2)American reporters added all sorts of epithets like
     "Rajah", "Brahmin", "priest", etc., for which they alone were
     responsible.
-
-

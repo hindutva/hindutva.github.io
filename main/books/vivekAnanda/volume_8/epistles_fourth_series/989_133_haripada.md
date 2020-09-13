@@ -1,11 +1,7 @@
 ---
-title: CXXXIII
+title: 989 CXXXIII
 
 ---
-
-
-
-
   
 
   
@@ -45,5 +41,3 @@ foreign devotees. With best wishes,
 
 Yours affectionately,  
 VIVEKANANDA.
-
-

@@ -1,11 +1,7 @@
 ---
-title: CXLVII
+title: 608 CXLVII
 
 ---
-
-
-
-
   
 
   
@@ -23,5 +19,3 @@ DEAR MRS. BULL,
 Yours etc.,
 
 VIVEKANANDA.
-
-

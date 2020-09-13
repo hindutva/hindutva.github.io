@@ -1,11 +1,7 @@
 ---
-title: CLXXIII
+title: 1029 CLXXIII
 
 ---
-
-
-
-
   
 
   
@@ -80,5 +76,3 @@ the entire work? Well, you know best how to do things; but he seems to
 be hurt at that.
 
 V.
-
-

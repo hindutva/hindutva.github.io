@@ -1,11 +1,7 @@
 ---
-title: SANKHYA AND VEDANTA
+title: 083 SANKHYA AND VEDANTA
 
 ---
-
-
-
-
   
 
 ## SANKHYA AND VEDANTA
@@ -271,5 +267,3 @@ seeks freedom? Nobody. If you think that you are bound, you remain
 bound; you make your own bondage. If you know that you are free, you are
 free this moment. This is knowledge, knowledge of freedom. Freedom is
 the goal of all nature.
-
-

@@ -1,11 +1,7 @@
 ---
-title: THE RELIGION OF BUDDHA
+title: 095 THE RELIGION OF BUDDHA
 
 ---
-
-
-
-
   
 
 ## THE RELIGION OF BUDDHA
@@ -100,5 +96,3 @@ to teach people to obey the laws rather than to make more laws. Buddhism
 was the first missionary religion of the world but it was one of the
 teachings of Buddhism not to antagonize any other religion. Sects weaken
 their power for good by making war on each other."
-
-

@@ -1,13 +1,9 @@
 ---
-title: 'RAJA YOGA
+title: '806 RAJA YOGA
 
   THIRD LESSON'
 
 ---
-
-
-
-
   
 
 ## RAJA YOGA THIRD LESSON
@@ -96,5 +92,3 @@ the imagination, the more quickly will the real result be attained and
 the Kundalini be awakened. Until it does, imagine it does: try to feel
 the currents and try to force them through the Sushumna. This hastens
 their action.
-
-

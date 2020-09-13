@@ -1,11 +1,7 @@
 ---
-title: THE FREE SOUL
+title: 104 THE FREE SOUL
 
 ---
-
-
-
-
   
 
 ## THE FREE SOUL
@@ -392,5 +388,3 @@ minute. Who cares? Why care for the joys and vicissitudes of this little
 world? Go beyond that if you dare; go beyond law, let the whole universe
 vanish, and stand alone. "I am Existence-Absolute, Knowledge-Absolute,
 Bliss-Absolute; I am He, I am He."
-
-

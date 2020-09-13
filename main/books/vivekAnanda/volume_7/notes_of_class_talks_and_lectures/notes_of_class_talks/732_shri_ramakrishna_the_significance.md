@@ -1,5 +1,5 @@
 ---
-title: 'SHRI RAMAKRISHNA
+title: '732 SHRI RAMAKRISHNA
 
   THE SIGNIFICANCE OF HIS
 
@@ -8,10 +8,6 @@ title: 'SHRI RAMAKRISHNA
   TEACHINGS'
 
 ---
-
-
-
-
   
 
 ## SHRI RAMAKRISHNA THE SIGNIFICANCE OF HIS LIFE AND TEACHINGS
@@ -65,5 +61,3 @@ He is the true disciple and follower of Sri Ramakrishna, whose character
 is perfect and all-sided like this. The formation of such a perfect
 character is the ideal of this age, and everyone should strive for that
 alone.
-
-

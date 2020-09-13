@@ -1,13 +1,9 @@
 ---
-title: 'THE WAY TO THE REALISATION OF
+title: '075 THE WAY TO THE REALISATION OF
 
   A UNIVERSAL RELIGION'
 
 ---
-
-
-
-
   
 
 ## THE WAY TO THE REALISATION OF A UNIVERSAL RELIGION
@@ -484,5 +480,3 @@ take in all that has been in the past, enjoy the light of the present,
 and open every window of the heart for all that will come in the future.
 Salutation to all the prophets of the past, to all the great ones of the
 present, and to all that are to come in the future!
-
-

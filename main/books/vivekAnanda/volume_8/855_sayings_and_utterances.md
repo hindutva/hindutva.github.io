@@ -1,11 +1,7 @@
 ---
-title: SAYINGS AND UTTERANCES
+title: 855 SAYINGS AND UTTERANCES
 
 ---
-
-
-
-
   
 
 ## SAYINGS AND UTTERANCES
@@ -661,5 +657,3 @@ will."
 
 58\. "If a bad time comes, what of that? The pendulum must swing back to
 the other side. But that is no better. The thing to do is to stop it."
-
-

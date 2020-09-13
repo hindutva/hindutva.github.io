@@ -1,11 +1,7 @@
 ---
-title: LIII
+title: 794 LIII
 
 ---
-
-
-
-
   
 
   
@@ -46,5 +42,3 @@ Besnard, Clairoix, Bres Compiegne, Oise, and oblige?
 
 Your well-wisher,  
 VIVEKANANDA.
-
-

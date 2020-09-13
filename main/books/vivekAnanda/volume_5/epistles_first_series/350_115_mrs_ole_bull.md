@@ -1,11 +1,7 @@
 ---
-title: CXV
+title: 350 CXV
 
 ---
-
-
-
-
   
 
   
@@ -83,5 +79,3 @@ Shivananda and the boys send you all their welcome, regards, and love.
 I am, as ever, your most affectionate son.
 
 VIVEKANANDA.
-
-

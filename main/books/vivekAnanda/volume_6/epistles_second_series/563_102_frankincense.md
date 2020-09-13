@@ -1,11 +1,7 @@
 ---
-title: CII
+title: 563 CII
 
 ---
-
-
-
-
   
 
   
@@ -85,5 +81,3 @@ the cup and we will be mad.
 
 Yours ever in madness,  
 VIVEKANANDA.
-
-

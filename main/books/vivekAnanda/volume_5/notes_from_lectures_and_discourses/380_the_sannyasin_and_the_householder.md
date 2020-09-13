@@ -1,11 +1,7 @@
 ---
-title: THE SANNYASIN AND THE HOUSEHOLDER
+title: 380 THE SANNYASIN AND THE HOUSEHOLDER
 
 ---
-
-
-
-
   
 
 ## THE SANNYASIN AND THE HOUSEHOLDER
@@ -64,5 +60,3 @@ brings confusion. The end should never be lost sight of.
 1.  [^](#txt1)Literally, 'bee-like'. The system of begging one's food
     piecemeal from several houses, so as not to tax the householder, as
     a bee gathers honey from different flowers.
-
-

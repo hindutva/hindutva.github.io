@@ -1,11 +1,7 @@
 ---
-title: CXIII
+title: 969 CXIII
 
 ---
-
-
-
-
   
 
   
@@ -36,5 +32,3 @@ With everlasting love,
 
 Yours,  
 VIVEKANANDA.
-
-

@@ -1,11 +1,7 @@
 ---
-title: CHRISTIANITY IN INDIA
+title: 843 CHRISTIANITY IN INDIA
 
 ---
-
-
-
-
   
 
 ## CHRISTIANITY IN INDIA
@@ -184,5 +180,3 @@ lotus! The whole world is full of God and not of sin. Let us help each
 other. Let us love each other. A beautiful prayer of the Buddhist is: I
 bow down to all the saints; I bow down to all the prophets; I bow down
 to all the holy men and women all over the world!
-
-

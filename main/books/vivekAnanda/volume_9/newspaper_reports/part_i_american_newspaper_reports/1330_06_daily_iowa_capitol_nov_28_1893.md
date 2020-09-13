@@ -1,9 +1,7 @@
 ---
-title: "ALL RELIGIONS ARE TRUE\n SUCH IS THE MESSAGE BROUGHT FROM INDIA"
+title: "1330 ALL RELIGIONS ARE TRUE\n SUCH IS THE MESSAGE BROUGHT FROM INDIA"
 
 ---
-
-
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
 9](../../volume_9_contents.htm) / [Newspaper
@@ -83,5 +81,3 @@ the sacred cow. He said further that the Hindus had nothing answering to
 our church organizations. He was his own priest, bishop and pope. . . .
 
 [→](07_iowa_state_register_nov_28_1893.htm)
-
-

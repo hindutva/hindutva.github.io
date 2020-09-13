@@ -1,9 +1,7 @@
 ---
-title: "A SUMMARY OF \"BUDDHISM, THE FULFILMENT OF\n HINDUISM\""
+title: "1398 A SUMMARY OF \"BUDDHISM, THE FULFILMENT OF\n HINDUISM\""
 
 ---
-
-
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
 9](../../volume_9_contents.htm) / [Newspaper
@@ -32,5 +30,3 @@ Works](../../../volume_1/addresses_at_the_parliament/v1_c1_buddhism.htm)*
 , I: 21-23, for a somewhat different summary paragraph.)
 
 [→](08_the_indian_mirror_dec_1_1895.htm)
-
-

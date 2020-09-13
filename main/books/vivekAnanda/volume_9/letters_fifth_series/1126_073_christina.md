@@ -1,9 +1,7 @@
 ---
-title: LXXIII
+title: 1126 LXXIII
 
 ---
-
-
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
@@ -42,5 +40,3 @@ and sends his loving regards for you.
 [→](074_christina.htm)  
 [Addressee→](074_christina.htm)  
 [Chronology→](../../volume_8/epistles_fourth_series/063_sturdy.htm)
-
-

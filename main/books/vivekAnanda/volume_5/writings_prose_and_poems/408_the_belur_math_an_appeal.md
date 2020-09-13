@@ -1,11 +1,7 @@
 ---
-title: 'THE BELUR MATH: AN APPEAL'
+title: '408 THE BELUR MATH: AN APPEAL'
 
 ---
-
-
-
-
   
 
 ## THE BELUR MATH: AN APPEAL
@@ -42,5 +38,3 @@ really love their religion and their country and have the means to show
 their sympathy practically by helping the cause.
 
 VIVEKANANDA.
-
-

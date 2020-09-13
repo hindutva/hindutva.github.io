@@ -1,11 +1,7 @@
 ---
-title: THE EAST AND THE WEST
+title: 413 THE EAST AND THE WEST
 
 ---
-
-
-
-
   
 
 ## THE EAST AND THE WEST
@@ -2952,5 +2948,3 @@ every social rule is for the protection of the weak.
     worship thee with a thousand jars of arrack (spirituous liquor) and
     rice well-dressed with flesh-meat."  (Ramayana - Ayodhyakanda
     55.19-20)
-
-

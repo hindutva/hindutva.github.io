@@ -1,11 +1,7 @@
 ---
-title: UNSELFISH WORK IS TRUE RENUNCIATION
+title: 427 UNSELFISH WORK IS TRUE RENUNCIATION
 
 ---
-
-
-
-
   
 
 ## UNSELFISH WORK IS TRUE RENUNCIATION
@@ -27,5 +23,3 @@ are not true renouncers. Live in the midst of the battle of life. Anyone
 can keep calm in a cave or when asleep. Stand in the whirl and madness
 of action and reach the Centre. If you have found the Centre, you cannot
 be moved.
-
-

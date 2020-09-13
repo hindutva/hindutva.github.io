@@ -1,11 +1,7 @@
 ---
-title: SPIRIT AND NATURE
+title: 441 SPIRIT AND NATURE
 
 ---
-
-
-
-
   
 
 ## SPIRIT AND NATURE
@@ -81,5 +77,3 @@ Mind is action of its own nature. Mind-activity means creation. The
 thought is followed by the word, and the word by the form. All of this
 creating will have to stop, both mental and physical, before the mind
 can reflect the soul.
-
-

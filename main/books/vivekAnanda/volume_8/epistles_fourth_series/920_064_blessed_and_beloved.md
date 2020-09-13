@@ -1,11 +1,7 @@
 ---
-title: LXIV
+title: 920 LXIV
 
 ---
-
-
-
-
   
 
   
@@ -62,5 +58,3 @@ things go on without me and with Krishnananda.
 Ever yours with love and blessings,
 
 VIVEKANANDA.
-
-

@@ -1,13 +1,9 @@
 ---
-title: 'RECORDED BY MISS S. E. WALDO
+title: '685 RECORDED BY MISS S. E. WALDO
 
   (A DISCIPLE)'
 
 ---
-
-
-
-
   
 
 ## RECORDED BY MISS S. E. WALDO (A DISCIPLE)
@@ -121,5 +117,3 @@ time, and that will purify you. . . .
 
 (*Thus ended the beautiful lessons of our beloved Guru. The following
 Monday he left Thousand Island Park and returned to New York.*)
-
-

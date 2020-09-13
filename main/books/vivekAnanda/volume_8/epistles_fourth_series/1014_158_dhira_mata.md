@@ -1,11 +1,7 @@
 ---
-title: CLVIII
+title: 1014 CLVIII
 
 ---
-
-
-
-
   
 
   
@@ -54,5 +50,3 @@ With everlasting love and gratitude.
 
 Your son,  
 VIVEKANANDA.
-
-

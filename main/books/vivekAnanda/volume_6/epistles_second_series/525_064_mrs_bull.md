@@ -1,11 +1,7 @@
 ---
-title: LXIV
+title: 525 LXIV
 
 ---
-
-
-
-
   
 
   
@@ -74,5 +70,3 @@ on the margin to explain Hindustani words.
 
 Your obedient son,  
 VIVEKANANDA.
-
-

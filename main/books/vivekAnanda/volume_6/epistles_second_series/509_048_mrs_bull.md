@@ -1,11 +1,7 @@
 ---
-title: XLVIII
+title: 509 XLVIII
 
 ---
-
-
-
-
   
 
   
@@ -29,5 +25,3 @@ comfortable.
 
 Yours very sincerely,  
 VIVEKANANDA.
-
-

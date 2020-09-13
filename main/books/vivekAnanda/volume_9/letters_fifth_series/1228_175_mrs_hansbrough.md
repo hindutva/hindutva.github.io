@@ -1,9 +1,7 @@
 ---
-title: CLXXV
+title: 1228 CLXXV
 
 ---
-
-
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
@@ -49,5 +47,3 @@ V.
 [→](176_sister_christine.htm)  
 [Addressee→](177_mrs_hansbrough.htm)  
 [Chronology→](../../volume_6/epistles_second_series/160_nivedita.htm)
-
-

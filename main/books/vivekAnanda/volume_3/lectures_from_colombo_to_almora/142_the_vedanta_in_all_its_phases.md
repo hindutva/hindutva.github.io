@@ -1,11 +1,7 @@
 ---
-title: THE VEDANTA IN ALL ITS PHASES
+title: 142 THE VEDANTA IN ALL ITS PHASES
 
 ---
-
-
-
-
   
 
 ## THE VEDANTA IN ALL ITS PHASES
@@ -851,5 +847,3 @@ God."
 
 "Thus seeing the Lord the same everywhere, he, the sage, does not hurt
 the Self by the self, and so goes to the highest goal."
-
-

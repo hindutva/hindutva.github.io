@@ -1,11 +1,7 @@
 ---
-title: CIX
+title: 344 CIX
 
 ---
-
-
-
-
   
 
   
@@ -31,5 +27,3 @@ reach you — nothing hold you down a minute. I know it.
 Ever yours in the Lord,
 
 VIVEKANANDA.
-
-

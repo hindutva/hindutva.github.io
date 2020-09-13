@@ -1,11 +1,7 @@
 ---
-title: SOME CUSTOMS OF THE HINDUS
+title: 102 SOME CUSTOMS OF THE HINDUS
 
 ---
-
-
-
-
   
 
 ## SOME CUSTOMS OF THE HINDUS
@@ -105,5 +101,3 @@ she sends hypocrisy and atheism into her midst. Instead of sending
 bushels of abuses, carloads of vituperation and shiploads of
 condemnations, let an endless stream of love go forth. Let us all be
 men"
-
-

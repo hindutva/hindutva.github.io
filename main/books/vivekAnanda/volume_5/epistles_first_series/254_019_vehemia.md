@@ -1,11 +1,7 @@
 ---
-title: XIX
+title: 254 XIX
 
 ---
-
-
-
-
   
 
 
@@ -29,5 +25,3 @@ With my love to you and all my friends there (Limbdi, Rajputana).
 Yours,
 
 VIVEKANANDA.
-
-

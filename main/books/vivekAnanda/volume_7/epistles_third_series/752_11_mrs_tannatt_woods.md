@@ -1,11 +1,7 @@
 ---
-title: XI
+title: 752 XI
 
 ---
-
-
-
-
   
 
   
@@ -31,5 +27,3 @@ Woods and compliments to all our friends.
 Yours truly,
 
 VIVEKANANDA.
-
-

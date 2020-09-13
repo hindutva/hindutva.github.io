@@ -1,11 +1,7 @@
 ---
-title: REPLY TO THE CALCUTTA ADDRESS
+title: 208 REPLY TO THE CALCUTTA ADDRESS
 
 ---
-
-
-
-
   
 
 
@@ -66,5 +62,3 @@ he really deserves. The past was great no doubt, but I sincerely believe
 that the future will be more glorious still.
 
 May Shankara keep us steady in purity, patience, and perseverance!
-
-

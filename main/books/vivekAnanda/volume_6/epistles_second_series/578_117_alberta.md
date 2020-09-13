@@ -1,11 +1,7 @@
 ---
-title: CXVII
+title: 578 CXVII
 
 ---
-
-
-
-
   
 
   
@@ -35,5 +31,3 @@ I intend to return to the U.S. and to Europe thence in about a year.
 With all love and blessings,
 
 VIVEKANANDA.
-
-

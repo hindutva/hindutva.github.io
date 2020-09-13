@@ -1,11 +1,7 @@
 ---
-title: INDIA'S GIFT TO THE WORLD
+title: 100 INDIA'S GIFT TO THE WORLD
 
 ---
-
-
-
-
   
 
 ## INDIA'S GIFT TO THE WORLD
@@ -116,5 +112,3 @@ stated that the self-sacrifices of wives at the death of their husbands
 as well as the fanatical self-destruction under the wheels of the
 Juggernaut, have wholly stopped, and referred his hearers for proof to
 Sir William Hunter's "History of the Indian Empire".
-
-

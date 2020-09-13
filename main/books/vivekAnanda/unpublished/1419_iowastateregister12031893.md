@@ -1,11 +1,7 @@
 ---
-title: unpublishediowastateregister12031893
+title: 1419 unpublishediowastateregister12031893
 
 ---
-
-
-
-
   
 
 ### (*Iowa State Register* December 3, 1893)
@@ -26,5 +22,3 @@ best found him the most gentle and loveable of men, so honest, frank,
 and unpretending, always grateful for the many kindnesses that were
 shown him. Vivekananda and his cause found a place in the hearts of all
 true Christians.
-
-

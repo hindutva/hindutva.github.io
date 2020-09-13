@@ -1,11 +1,7 @@
 ---
-title: L
+title: 511 L
 
 ---
-
-
-
-
   
 
   
@@ -37,5 +33,3 @@ With my eternal love and gratitude for you,
 
 I remain, Yours etc.,  
 VIVEKANANDA.
-
-

@@ -1,11 +1,7 @@
 ---
-title: LXXV
+title: 310 LXXV
 
 ---
-
-
-
-
   
 
 
@@ -65,5 +61,3 @@ With all love,
 Yours in the Lord,
 
 VIVEKANANDA.
-
-

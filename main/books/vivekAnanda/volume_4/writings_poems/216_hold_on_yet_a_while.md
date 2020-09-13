@@ -1,11 +1,7 @@
 ---
-title: HOLD ON YET A WHILE, BRAVE HEART
+title: 216 HOLD ON YET A WHILE, BRAVE HEART
 
 ---
-
-
-
-
   
 
 ## HOLD ON YET A WHILE, BRAVE HEART
@@ -43,5 +39,3 @@ With thee are those who see afar,
 With thee is the Lord of might,  
 All blessings pour on thee, great soul,  
      To thee may all come right!
-
-

@@ -1,11 +1,7 @@
 ---
-title: THE ESSENCE OF RELIGION
+title: 854 THE ESSENCE OF RELIGION
 
 ---
-
-
-
-
   
 
 ## THE ESSENCE OF RELIGION
@@ -156,5 +152,3 @@ that all things abide in Him, our heart will become a perennial fountain
 of love. Man is transformed in the presence of this Light of Love and
 realises at last the beautiful and inspiring truth that Love, Lover, and
 the Beloved are really one.
-
-

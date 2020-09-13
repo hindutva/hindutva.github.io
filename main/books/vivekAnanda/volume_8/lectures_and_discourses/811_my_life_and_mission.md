@@ -1,11 +1,7 @@
 ---
-title: MY LIFE AND MISSION
+title: 811 MY LIFE AND MISSION
 
 ---
-
-
-
-
   
 
 ## MY LIFE AND MISSION
@@ -593,5 +589,3 @@ of the lady who was my Master's wife. We have all great respect for her.
 She never dictates to us. So it is quite safe.
 
 That part has to be accomplished.
-
-

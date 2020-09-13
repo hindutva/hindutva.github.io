@@ -1,11 +1,7 @@
 ---
-title: LXV
+title: 300 LXV
 
 ---
-
-
-
-
   
 
   
@@ -48,5 +44,3 @@ With love to all our friends,
 
 Yours ever,  
 VIVEKANANDA.
-
-

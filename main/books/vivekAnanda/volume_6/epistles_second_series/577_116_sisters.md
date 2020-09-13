@@ -1,11 +1,7 @@
 ---
-title: CXVI
+title: 577 CXVI
 
 ---
-
-
-
-
   
 
   
@@ -54,5 +50,3 @@ VIVEKANANDA,
   
 PS. What about Dharmapala? What is he doing? Give him my love if you
 meet him.
-
-

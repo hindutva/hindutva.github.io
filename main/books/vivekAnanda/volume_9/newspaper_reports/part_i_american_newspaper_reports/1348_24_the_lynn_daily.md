@@ -1,9 +1,7 @@
 ---
-title: THE MANNERS AND CUSTOMS OF INDIA
+title: 1348 THE MANNERS AND CUSTOMS OF INDIA
 
 ---
-
-
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
 9](../../volume_9_contents.htm) / [Newspaper
@@ -74,5 +72,3 @@ fast to a religion that stands securely on a high spirituality and not
 on the shifting sand of present enjoyment.
 
 [→](25_ny_daily_tribune_apr_25_1894.htm)
-
-

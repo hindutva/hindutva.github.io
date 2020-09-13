@@ -1,11 +1,7 @@
 ---
-title: THE TRIANGLE OF LOVE
+title: 121 THE TRIANGLE OF LOVE
 
 ---
-
-
-
-
   
 
 CHAPTER VII
@@ -132,5 +128,3 @@ and blood-thirsty conceive of a bloodthirsty God, because they can only
 love their own highest ideal. That is why good men have a very high
 ideal of God, and their ideal is indeed so very different from that of
 others.
-
-

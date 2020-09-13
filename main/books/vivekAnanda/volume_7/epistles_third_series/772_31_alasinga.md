@@ -1,11 +1,7 @@
 ---
-title: XXXI
+title: 772 XXXI
 
 ---
-
-
-
-
   
 
   
@@ -49,5 +45,3 @@ Sturdy, Esq., High View, Caversham, Eng.
 Yours etc.,
 
 VIVEKANANDA.
-
-

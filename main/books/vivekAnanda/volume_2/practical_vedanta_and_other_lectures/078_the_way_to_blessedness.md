@@ -1,11 +1,7 @@
 ---
-title: THE WAY TO BLESSEDNESS
+title: 078 THE WAY TO BLESSEDNESS
 
 ---
-
-
-
-
   
 
 ## THE WAY TO BLESSEDNESS
@@ -283,5 +279,3 @@ separate from the universe, separate from God. But as soon as we have
 realised that "I am He, I am the Self of the universe, I am eternally
 blessed, eternally free" — then will come real love, fear will vanish,
 and all misery cease.
-
-

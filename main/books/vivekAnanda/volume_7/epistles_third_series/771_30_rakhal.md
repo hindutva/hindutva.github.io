@@ -1,11 +1,7 @@
 ---
-title: XXX
+title: 771 XXX
 
 ---
-
-
-
-
   
 
   
@@ -29,5 +25,3 @@ will have reached you.
 Yours affectionately,
 
 VIVEKANANDA.
-
-

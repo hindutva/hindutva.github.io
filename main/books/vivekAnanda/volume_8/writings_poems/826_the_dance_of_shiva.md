@@ -1,11 +1,7 @@
 ---
-title: THE DANCE OF SHIVA
+title: 826 THE DANCE OF SHIVA
 
 ---
-
-
-
-
   
 
 ## THE DANCE OF SHIVA
@@ -19,5 +15,3 @@ His flaming locks have filled the sky,
 Seven worlds play the rhythm  
 As the trembling earth sways almost to dissolution,  
 Lo, the Great God Shiva is dancing.
-
-

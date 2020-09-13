@@ -1,9 +1,7 @@
 ---
-title: THE MANNERS AND CUSTOMS OF INDIA
+title: 1338 THE MANNERS AND CUSTOMS OF INDIA
 
 ---
-
-
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
 9](../../volume_9_contents.htm) / [Newspaper
@@ -61,5 +59,3 @@ questions and answers among the audience, from whom he invited
 interrogation.
 
 [→](15_detroit_tribune_feb_18_1894.htm)
-
-

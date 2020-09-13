@@ -1,11 +1,7 @@
 ---
-title: ALL RELIGIONS ARE GOOD
+title: 096 ALL RELIGIONS ARE GOOD
 
 ---
-
-
-
-
   
 
 ## ALL RELIGIONS ARE GOOD
@@ -80,5 +76,3 @@ fakir on a small scale. He held the same view about the alleged
 attainments of the lamas. "There is a great lack of trained, scientific,
 and unprejudiced observers in all accounts of these phenomena," said he,
 "so that it is hard to select the false from the true."
-
-

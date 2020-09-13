@@ -1,11 +1,7 @@
 ---
-title: XXV
+title: 881 XXV
 
 ---
-
-
-
-
   
 
   
@@ -58,5 +54,3 @@ must go to hear him. He and I agree so much. May you be always happy!
 Ever your well-wishing brother,
 
 VIVEKANANDA.
-
-

@@ -1,11 +1,7 @@
 ---
-title: THE DIVINE INCARNATION OR AVATARA
+title: 835 THE DIVINE INCARNATION OR AVATARA
 
 ---
-
-
-
-
   
 
 ## THE DIVINE INCARNATION OR AVATARA
@@ -57,5 +53,3 @@ in Christ we became conscious of Him. This is God. The third is bliss,
 the Holy Spirit. As soon as you get this knowledge, you get bliss. As
 soon as you begin to have Christ within you, you have bliss; and that
 unifies the three.
-
-

@@ -1,9 +1,7 @@
 ---
-title: RELIGIONS OF INDIA
+title: 1329 RELIGIONS OF INDIA
 
 ---
-
-
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
 9](../../volume_9_contents.htm) / [Newspaper
@@ -46,5 +44,3 @@ bearing. His voice is low and pleasant, with a secret something which
 rivets your attention at the start.
 
 [→](06_daily_iowa_capitol_nov_28_1893.htm)
-
-

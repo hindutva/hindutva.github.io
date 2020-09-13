@@ -1,9 +1,7 @@
 ---
-title: HEARD SWAMI TALK
+title: 1369 HEARD SWAMI TALK
 
 ---
-
-
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
 9](../../volume_9_contents.htm) / [Newspaper
@@ -37,5 +35,3 @@ address last night he thanked the people of Detroit for the kind
 reception tendered him and his philosophy.
 
 [→](45_boston_evening_transcript_mar_21_1896.htm)
-
-

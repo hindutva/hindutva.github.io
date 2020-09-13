@@ -1,11 +1,7 @@
 ---
-title: ON CONCEPTIONS OF GODHEAD
+title: 728 ON CONCEPTIONS OF GODHEAD
 
 ---
-
-
-
-
   
 
 ## ON CONCEPTIONS OF GODHEAD
@@ -23,5 +19,3 @@ based on false grounds. For you cannot dictate anything to a liberated
 soul. He is free, that is, he may do whatever he likes. According to the
 Vedanta, the Janyeshvaras cannot create, preserve, or destroy the
 universe.
-
-

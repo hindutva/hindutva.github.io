@@ -1,11 +1,7 @@
 ---
-title: THE LIVING GOD
+title: 823 THE LIVING GOD
 
 ---
-
-
-
-
   
 
 ## THE LIVING GOD
@@ -37,5 +33,3 @@ While ye run after imaginary shadows,
 That lead alone to fights and quarrels,  
 Him worship, the only visible!  
 Break all other idols!
-
-

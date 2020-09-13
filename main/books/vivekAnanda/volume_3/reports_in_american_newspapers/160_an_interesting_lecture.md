@@ -1,11 +1,7 @@
 ---
-title: AN INTERESTING LECTURE
+title: 160 AN INTERESTING LECTURE
 
 ---
-
-
-
-
   
 
 ## AN INTERESTING LECTURE
@@ -19,5 +15,3 @@ he be, Christianity may well follow many of his teachings. His creed is
 as wide as the universe, taking in all religions, and accepting truth
 wherever it may be found. Bigotry and superstition and idle ceremony, he
 declared, have no place in "the religions of India".
-
-

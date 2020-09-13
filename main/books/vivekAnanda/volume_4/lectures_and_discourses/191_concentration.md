@@ -1,11 +1,7 @@
 ---
-title: CONCENTRATION
+title: 191 CONCENTRATION
 
 ---
-
-
-
-
   
 
 ## CONCENTRATION
@@ -297,5 +293,3 @@ free soul wants to exercise any power, it will have it. If it does not,
 it does not come. He who has known God has become God. There is nothing
 impossible to such a free soul. No more birth and death for him. He is
 free for ever.
-
-

@@ -1,11 +1,7 @@
 ---
-title: XI
+title: 640 XI
 
 ---
-
-
-
-
   
 
 ## XI
@@ -73,5 +69,3 @@ divine Incarnations."
 
 All prostrated before Shri Ramakrishna with this Mantra. In the evening
 Swamiji returned to Baghbazar.
-
-

@@ -1,11 +1,7 @@
 ---
-title: XXI
+title: 762 XXI
 
 ---
-
-
-
-
   
 
   
@@ -85,5 +81,3 @@ expression.
 Yours ever affectionately, 
 
 VIVEKANANDA.
-
-

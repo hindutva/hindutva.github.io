@@ -1,11 +1,7 @@
 ---
-title: LXXII
+title: 533 LXXII
 
 ---
-
-
-
-
   
 
   
@@ -63,5 +59,3 @@ hint.
 Yours affectionately,
 
 VIVEKANANDA.
-
-

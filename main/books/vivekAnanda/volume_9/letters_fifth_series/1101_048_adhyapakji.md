@@ -1,9 +1,7 @@
 ---
-title: XLVIII
+title: 1101 XLVIII
 
 ---
-
-
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
@@ -40,5 +38,3 @@ VIVEKANANDA
 [→](049_mother.htm)  
 [Addressee→](../../volume_7/epistles_third_series/35_adhyapakji.htm)  
 [Chronology→](../../volume_5/epistles_first_series/033_alasinga.htm)
-
-

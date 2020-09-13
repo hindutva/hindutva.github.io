@@ -1,11 +1,7 @@
 ---
-title: ON LORD BUDDHA
+title: 183 ON LORD BUDDHA
 
 ---
-
-
-
-
   
 
 ## ON LORD BUDDHA
@@ -69,5 +65,3 @@ others come by Bhakti — love of God — Yoga, or Jnāna. Perfection does
 not come from belief or faith. Talk does not count for anything. Parrots
 can do that. Perfection comes through the disinterested performance of
 action.
-
-

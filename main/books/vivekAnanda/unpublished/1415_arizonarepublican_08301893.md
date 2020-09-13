@@ -1,11 +1,7 @@
 ---
-title: Brahmin Monk in Framingham
+title: 1415 Brahmin Monk in Framingham
 
 ---
-
-
-
-
   
 
 ## Brahmin Monk in Framingham
@@ -23,5 +19,3 @@ much interested in the workings of the reformatory, and expressed
 himself as highly pleased with what he saw. He returned this evening to
 Metcalf, where he is the guest of Miss Kate Sanborn at her abandoned
 farm.
-
-

@@ -1,11 +1,7 @@
 ---
-title: PRAYER
+title: 106 PRAYER
 
 ---
-
-
-
-
   
 
 CHAPTER I
@@ -196,5 +192,3 @@ one, e.g. to wife or children, would be Bhakti. We plainly see,
 therefore, that Bhakti is a series or succession of mental efforts at
 religious realisation beginning with ordinary worship and ending in a
 supreme intensity of love for Ishvara.
-
-

@@ -1,11 +1,7 @@
 ---
-title: WHO IS A REAL GURU?
+title: 376 WHO IS A REAL GURU?
 
 ---
-
-
-
-
   
 
 ## WHO IS A REAL GURU?
@@ -33,5 +29,3 @@ spiritual truths. Truth will never come into our minds so long as there
 will remain the faintest shadow of Ahamkāra (egotism). All of you should
 try to root out this devil from your heart. Complete self-surrender is
 the only way to spiritual illumination.
-
-

@@ -1,11 +1,7 @@
 ---
-title: XXI
+title: 256 XXI
 
 ---
-
-
-
-
   
 
   
@@ -91,5 +87,3 @@ VIVEKANANDA.
   
 PS. Take care of these two things — love of power and jealousy.
 Cultivate always "faith in yourself".
-
-

@@ -1,11 +1,7 @@
 ---
-title: XL
+title: 501 XL
 
 ---
-
-
-
-
   
 
   
@@ -95,5 +91,3 @@ bright eyes. ...
 Yours etc.,
 
 VIVEKANANDA.
-
-

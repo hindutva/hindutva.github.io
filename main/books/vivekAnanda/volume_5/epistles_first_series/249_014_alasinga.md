@@ -1,11 +1,7 @@
 ---
-title: XIV
+title: 249 XIV
 
 ---
-
-
-
-
   
 
   
@@ -59,5 +55,3 @@ Give to Balaji, G. G., and all of our friends my best love.
 Yours with everlasting love,
 
 VIVEKANANDA.
-
-

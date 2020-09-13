@@ -1,11 +1,7 @@
 ---
-title: IV
+title: 396 IV
 
 ---
-
-
-
-
   
 
 ## IV
@@ -211,5 +207,3 @@ the right except the Siddha Purusha, i.e. one who has realised the
 Truth. But to service every one has the right, and not only so, but
 every one is under obligation to serve others, so long as he is
 accepting service from others.
-
-

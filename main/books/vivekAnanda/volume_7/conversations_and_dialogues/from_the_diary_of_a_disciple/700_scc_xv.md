@@ -1,11 +1,7 @@
 ---
-title: CONVERSATIONS AND DIALOGUES
+title: 700 CONVERSATIONS AND DIALOGUES
 
 ---
-
-
-
-
   
 
 ## CONVERSATIONS AND DIALOGUES
@@ -343,5 +339,3 @@ Ramakrishna; he was, as it were, "देहस्थोऽपि न देह�
 but not of it!" About the motive of the actions of such personages only
 this can be said: "लोकवत्तु लीलाकैवल्यम् — Everything they do like men,
 simply by way of sport" (*Brahma-Sutras*, II. i. 33).
-
-

@@ -1,11 +1,7 @@
 ---
-title: II
+title: 631 II
 
 ---
-
-
-
-
   
 
 ## II
@@ -291,5 +287,3 @@ the next day to see Swamiji.
     description of the enjoyments of Alakāpuri. So the reference here is
     not only to the first verse quoted but also to the whole description
     which follows.
-
-

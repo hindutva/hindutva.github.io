@@ -1,11 +1,7 @@
 ---
-title: XCIX
+title: 560 XCIX
 
 ---
-
-
-
-
   
 
   
@@ -43,5 +39,3 @@ America. I think something of the sort is necessary to keep the work
 together, and shall of course do all that I can to help it on in the
 line he suggests.  . . . I think it very probable that he will come over
 with Saradananda.
-
-

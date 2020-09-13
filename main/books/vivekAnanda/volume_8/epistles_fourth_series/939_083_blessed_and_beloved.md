@@ -1,11 +1,7 @@
 ---
-title: LXXXIII
+title: 939 LXXXIII
 
 ---
-
-
-
-
   
 
   
@@ -46,5 +42,3 @@ S. sends his love to you and Mrs. Sturdy and the baby.
 With everlasting love and blessings,
 
 VIVEKANANDA.
-
-

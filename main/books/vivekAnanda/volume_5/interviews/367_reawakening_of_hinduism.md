@@ -1,11 +1,7 @@
 ---
-title: REAWAKENING OF HINDUISM ON A NATIONAL BASIS
+title: 367 REAWAKENING OF HINDUISM ON A NATIONAL BASIS
 
 ---
-
-
-
-
   
 
 ## REAWAKENING OF HINDUISM ON A NATIONAL BASIS
@@ -102,5 +98,3 @@ greatest height. The secret lies there. The national ideals of India are
 RENUNCIATION and SERVICE. Intensify her in those channels, and the rest
 will take carte of itself. The banner of the spiritual cannot be raised
 too high in this country. In it alone is salvation.
-
-

@@ -1,11 +1,7 @@
 ---
-title: THE VEDANTA
+title: 148 THE VEDANTA
 
 ---
-
-
-
-
   
 
 ## THE VEDANTA
@@ -1243,5 +1239,3 @@ words of the Lord Krishna:
 "Even in this life they have conquered relative existence whose minds
 are firm-fixed on the sameness of everything, for God is pure and the
 same to all; therefore, such are said to be living in God."
-
-

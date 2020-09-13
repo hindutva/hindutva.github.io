@@ -1,11 +1,7 @@
 ---
-title: SOUL, NATURE, AND GOD
+title: 080 SOUL, NATURE, AND GOD
 
 ---
-
-
-
-
   
 
 ## SOUL, NATURE, AND GOD
@@ -255,5 +251,3 @@ thousands and thousands of mirrors, appearing as so many different
 souls. It is the same Infinite Soul, which is the background of the
 universe, that we call God. The same Infinite Soul also is the
 background of the human mind which we call the human soul.
-
-

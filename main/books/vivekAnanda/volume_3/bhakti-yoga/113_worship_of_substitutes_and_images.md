@@ -1,11 +1,7 @@
 ---
-title: WORSHIP OF SUBSTITUTES AND IMAGES
+title: 113 WORSHIP OF SUBSTITUTES AND IMAGES
 
 ---
-
-
-
-
   
 
 CHAPTER VIII
@@ -91,5 +87,3 @@ the allegiance of the soul is given to other things than Ishvara, and,
 therefore, such use of images, or graves, or temples, or tombs, is real
 idolatry; it is in itself neither sinful nor wicked — it is a rite — a
 Karma, and worshippers must and will get the fruit thereof.
-
-

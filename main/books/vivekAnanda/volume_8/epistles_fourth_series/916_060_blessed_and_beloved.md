@@ -1,11 +1,7 @@
 ---
-title: LX
+title: 916 LX
 
 ---
-
-
-
-
   
 
   
@@ -37,5 +33,3 @@ VIVEKANANDA.
 PS. Kindly convey my love to Miss Müller. I left the night shirt at
 Avenue Road. So I shall have to do without any until the trunk is
 brought out of the hold.
-
-

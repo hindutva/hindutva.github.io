@@ -1,9 +1,7 @@
 ---
-title: CXXVII
+title: 1180 CXXVII
 
 ---
-
-
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
@@ -54,5 +52,3 @@ VIVEKANANDA
 [→](128_your_highness.htm)  
 [Addressee→](132_christina.htm)  
 [Chronology→](../../volume_5/epistles_first_series/086_your_highness.htm)
-
-

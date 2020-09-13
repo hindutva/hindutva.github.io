@@ -1,11 +1,7 @@
 ---
-title: JNANA YOGA - IV
+title: 798 JNANA YOGA - IV
 
 ---
-
-
-
-
   
 
 ## JNANA YOGA - IV
@@ -105,5 +101,3 @@ advance on "Unitarianism" (which is dualism, God and man for ever
 separate). The first step upwards is when we recognise ourselves as the
 children of God; the last step is when we realise ourselves as the One,
 the Atman.
-
-

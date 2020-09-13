@@ -1,11 +1,7 @@
 ---
-title: IS THE SOUL IMMORTAL?
+title: 194 IS THE SOUL IMMORTAL?
 
 ---
-
-
-
-
   
 
 ## IS THE SOUL IMMORTAL?
@@ -128,5 +124,3 @@ unchangeable is beyond all conditions, and as such, it has neither birth
 nor death.
 
 "Without birth or death, eternal, ever-existing is this soul of man."
-
-

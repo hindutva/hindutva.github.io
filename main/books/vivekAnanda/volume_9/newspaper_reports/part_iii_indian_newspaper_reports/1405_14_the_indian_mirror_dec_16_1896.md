@@ -1,9 +1,7 @@
 ---
-title: THE BANQUET FOR RANJIT SINJHI
+title: 1405 THE BANQUET FOR RANJIT SINJHI
 
 ---
-
-
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
 9](../../volume_9_contents.htm) / [Newspaper
@@ -43,5 +41,3 @@ Cambridge"](15_the_amrita_bazar_patrika_jan_8_1897.htm) for the
 remaining text of this report.\]
 
 [→](15_the_amrita_bazar_patrika_jan_8_1897.htm)
-
-

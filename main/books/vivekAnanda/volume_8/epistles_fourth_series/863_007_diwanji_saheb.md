@@ -1,11 +1,7 @@
 ---
-title: VII
+title: 863 VII
 
 ---
-
-
-
-
   
 
   
@@ -42,5 +38,3 @@ I remain,
 
 Yours faithfully,  
 VIVEKANANDA.
-
-

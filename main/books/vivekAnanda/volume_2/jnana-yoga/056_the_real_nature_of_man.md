@@ -1,11 +1,7 @@
 ---
-title: THE REAL NATURE OF MAN
+title: 056 THE REAL NATURE OF MAN
 
 ---
-
-
-
-
   
 
 CHAPTER II
@@ -538,5 +534,3 @@ declare "I am He." That is the Truth; the infinite strength of the world
 is yours. Drive out the superstition that has covered your minds. Let us
 be brave. Know the Truth and practice the Truth. The goal may be
 distant, but awake, arise, and stop not till the goal is reached.
-
-

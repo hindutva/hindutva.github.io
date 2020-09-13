@@ -1,11 +1,7 @@
 ---
-title: REINCARNATION
+title: 195 REINCARNATION
 
 ---
-
-
-
-
   
 
 ## REINCARNATION
@@ -490,5 +486,3 @@ or materialism. Which shall we accept?
 1.  [^](#txt1)This text has been translated into German by Brugsch, Die
     Egyptische Gräberwelt, pp. 39, 40, and into French by Maspero,
     Etudes Egyptiennes, vol. I., pp. 181-90.
-
-

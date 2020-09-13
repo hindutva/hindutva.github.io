@@ -1,11 +1,7 @@
 ---
-title: UNITY
+title: 852 UNITY
 
 ---
-
-
-
-
   
 
 ## UNITY
@@ -68,5 +64,3 @@ colours, remain a moment, and vanish. I am the same eternal blue. I am
 the witness, the same eternal witness of all. I see, therefore nature
 exists. I do not see, therefore she does not. Not one of us could see or
 speak if this infinite unity were broken for a moment.
-
-

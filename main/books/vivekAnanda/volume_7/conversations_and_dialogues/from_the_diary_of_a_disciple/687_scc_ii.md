@@ -1,11 +1,7 @@
 ---
-title: CONVERSATIONS AND DIALOGUES
+title: 687 CONVERSATIONS AND DIALOGUES
 
 ---
-
-
-
-
   
 
 ## CONVERSATIONS AND DIALOGUES
@@ -281,5 +277,3 @@ the disciple.
 
 1.  [^](#txt1)Uncle of the Pāndava brothers, and a most saintly
     character, considered to be an incarnation of Dharma.
-
-

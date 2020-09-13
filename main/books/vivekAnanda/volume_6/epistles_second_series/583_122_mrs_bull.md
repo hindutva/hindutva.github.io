@@ -1,11 +1,7 @@
 ---
-title: CXXII
+title: 583 CXXII
 
 ---
-
-
-
-
   
 
   
@@ -62,5 +58,3 @@ With love to Saradananda and eternal love and gratitude to yourself,
 Yours etc.,
 
 VIVEKANANDA.
-
-

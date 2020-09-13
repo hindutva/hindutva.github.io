@@ -1,9 +1,7 @@
 ---
-title: TRUE RELIGION
+title: 1383 TRUE RELIGION
 
 ---
-
-
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
 9](../../volume_9_contents.htm) / [Newspaper
@@ -40,5 +38,3 @@ personification of the active natural forces in the phenomena with which
 we are surrounded. . . .
 
 [→](../part_ii_european_newspaper_reports/european_newspaper_contents.htm)
-
-

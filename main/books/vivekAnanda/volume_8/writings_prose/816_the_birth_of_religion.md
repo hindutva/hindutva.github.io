@@ -1,11 +1,7 @@
 ---
-title: THE BIRTH OF RELIGION
+title: 816 THE BIRTH OF RELIGION
 
 ---
-
-
-
-
   
 
 ## THE BIRTH OF RELIGION
@@ -121,5 +117,3 @@ heaven to go to God. In short, this is the main difference. The aim and
 end of the Aryan life is to see God, to see the face of the Beloved,
 because without Him he cannot live. "Without Thy presence, the sun, the
 moon, and the stars lose their light."
-
-

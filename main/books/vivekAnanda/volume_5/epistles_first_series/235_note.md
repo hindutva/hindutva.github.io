@@ -1,11 +1,7 @@
 ---
-title: NOTE
+title: 235 NOTE
 
 ---
-
-
-
-
   
 
 ## NOTE
@@ -16,5 +12,3 @@ time as Vividishananda or Sachchidananda. But for the convenience of the
 readers, these volumes use the more familiar name of Vivekananda.
 
 PUBLISHER
-
-

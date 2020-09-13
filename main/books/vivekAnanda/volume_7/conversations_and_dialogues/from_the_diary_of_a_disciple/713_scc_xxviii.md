@@ -1,11 +1,7 @@
 ---
-title: 'CONVERSATIONS AND DIALOGUES '
+title: '713 CONVERSATIONS AND DIALOGUES '
 
 ---
-
-
-
-
   
 
 ## CONVERSATIONS AND DIALOGUES
@@ -199,5 +195,3 @@ water of mother Ganga, a sweet, musical voice is not acquired."
 After paying the hire, Swamiji descended from the boat and taking off
 his coat sat in the western verandah of the Math. His fair complexion
 and ochre robe presented a beautiful sight.
-
-

@@ -1,11 +1,7 @@
 ---
-title: THE WORK BEFORE US
+title: 138 THE WORK BEFORE US
 
 ---
-
-
-
-
   
 
 ## THE WORK BEFORE US
@@ -487,5 +483,3 @@ not believe that you are weak; do not believe that you are half-crazy
 lunatics, as most of us do nowadays. You can do anything and everything
 without even the guidance of any one. All power is there. Stand up and
 express the divinity within you.
-
-

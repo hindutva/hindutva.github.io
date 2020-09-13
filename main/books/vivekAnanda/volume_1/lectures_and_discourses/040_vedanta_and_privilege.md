@@ -1,11 +1,7 @@
 ---
-title: VEDANTA AND PRIVILEGE
+title: 040 VEDANTA AND PRIVILEGE
 
 ---
-
-
-
-
   
 
 ## VEDANTA AND PRIVILEGE
@@ -392,5 +388,3 @@ heart. In what sense are you pure? The God in you is the God in all. If
 you have not known this, you have known nothing. How can there be
 difference? It is all one. Every being is the temple of the Most High;
 if you can see that, good, if not, spirituality has yet to come to you.
-
-

@@ -1,9 +1,7 @@
 ---
-title: CL
+title: 1203 CL
 
 ---
-
-
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
@@ -41,5 +39,3 @@ My eternal love and blessings to Mrs. Funkey \[Funke\].
 [→](151_christina.htm)  
 [Addressee→](151_christina.htm)  
 [Chronology→](151_christina.htm)
-
-

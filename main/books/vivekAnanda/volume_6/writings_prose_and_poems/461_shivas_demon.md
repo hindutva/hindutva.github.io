@@ -1,11 +1,7 @@
 ---
-title: SHIVA'S DEMON
+title: 461 SHIVA'S DEMON
 
 ---
-
-
-
-
   
 
 ## SHIVA'S DEMON
@@ -53,5 +49,3 @@ Paris where his despondent heart would regain its normal health and
 buoyancy, once it was in contact with that active, invigorating current
 of joy. The Baron bowed down to their wishes and started for Paris with
 his friends.
-
-

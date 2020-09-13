@@ -1,11 +1,7 @@
 ---
-title: INTRODUCTORY
+title: 016 INTRODUCTORY
 
 ---
-
-
-
-
   
 
 CHAPTER I
@@ -376,5 +372,3 @@ fast, nor torture his flesh. He who does so, says the Gita, cannot be a
 Yogi: He who fasts, he who keeps awake, he who sleeps much, he who works
 too much, he who does no work, none of these can be a Yogi (Gita, VI,
 16).
-
-

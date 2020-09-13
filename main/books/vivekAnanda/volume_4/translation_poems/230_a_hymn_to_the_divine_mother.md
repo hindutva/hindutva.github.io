@@ -1,11 +1,7 @@
 ---
-title: A HYMN TO THE DIVINE MOTHER
+title: 230 A HYMN TO THE DIVINE MOTHER
 
 ---
-
-
-
-
   
 
 ## A HYMN TO THE DIVINE MOTHER
@@ -101,5 +97,3 @@ She, who has always through my life inspired
 My understanding, She, my Mother, She,  
 The All, is my resort, whether my work  
 O'erdow with full fruition or with none.
-
-

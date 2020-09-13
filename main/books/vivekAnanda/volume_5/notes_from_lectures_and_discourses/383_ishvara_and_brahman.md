@@ -1,11 +1,7 @@
 ---
-title: ISHVARA AND BRAHMAN
+title: 383 ISHVARA AND BRAHMAN
 
 ---
-
-
-
-
   
 
 ## ISHVARA AND BRAHMAN
@@ -29,5 +25,3 @@ units, the principle which runs through all from a cell to God, without
 which nothing can exist; and whatever is real is that principle, or
 Brahman. When I think I am Brahman, I alone exist; so with others.
 Therefore, each one is the whole of that principle."
-
-

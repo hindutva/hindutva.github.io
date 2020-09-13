@@ -1,11 +1,7 @@
 ---
-title: VIII
+title: 637 VIII
 
 ---
-
-
-
-
   
 
 ## VIII
@@ -237,5 +233,3 @@ hearing this, and Swami Yogananda said to Swamiji, "Well, once you have
 the urge within towards anything to be done, you won't have any peace
 until you see the utmost done about it. Now what you have a mind to have
 done shall be done no doubt."
-
-

@@ -1,11 +1,7 @@
 ---
-title: WITH THE SWAMI VIVEKANANDA AT MADURA
+title: 364 WITH THE SWAMI VIVEKANANDA AT MADURA
 
 ---
-
-
-
-
   
 
 ## WITH THE SWAMI VIVEKANANDA AT MADURA
@@ -181,5 +177,3 @@ his position.
 The discourse ended, as the time appointed in the programme for his
 visiting the Temple had already arrived. He accordingly took leave of
 the gentlemen present and proceeded to visit the Temple.
-
-

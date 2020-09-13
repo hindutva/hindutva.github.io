@@ -1,11 +1,7 @@
 ---
-title: LI
+title: 512 LI
 
 ---
-
-
-
-
   
 
   
@@ -77,5 +73,3 @@ Spirit wherever they go. Godspeed to you.
 Yours with all blessings,
 
 VIVEKANANDA.
-
-

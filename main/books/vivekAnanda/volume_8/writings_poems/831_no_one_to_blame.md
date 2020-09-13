@@ -1,11 +1,7 @@
 ---
-title: NO ONE TO BLAME
+title: 831 NO ONE TO BLAME
 
 ---
-
-
-
-
   
 
 ## NO ONE TO BLAME
@@ -61,5 +57,3 @@ That *death* is curse, and so is *life*, and best when stops to be.
 
 Om Nama Bhagavate Sambuddhāya  
 Om, I salute the Lord, the awakened.
-
-

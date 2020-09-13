@@ -1,11 +1,7 @@
 ---
-title: ON MANTRA AND MANTRA-CHAITANYA
+title: 727 ON MANTRA AND MANTRA-CHAITANYA
 
 ---
-
-
-
-
   
 
 ## ON MANTRA AND MANTRA-CHAITANYA
@@ -32,5 +28,3 @@ use consists only in uttering them in connection with certain
 sacrifices, when they will surely produce effect in the form of various
 material enjoyments or spiritual knowledge. The latter arises from the
 utterance of the Upanishads.
-
-

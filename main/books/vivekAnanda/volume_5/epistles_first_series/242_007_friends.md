@@ -1,11 +1,7 @@
 ---
-title: VII
+title: 242 VII
 
 ---
-
-
-
-
   
 
   
@@ -105,5 +101,3 @@ its fanaticism and thirst for notoriety was bound to say that I was the
 public favourite. I cut a few lines from that magazine also.
 
 V.
-
-

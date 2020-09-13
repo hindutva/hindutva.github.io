@@ -1,11 +1,7 @@
 ---
-title: FUNDAMENTALS OF RELIGION
+title: 211 FUNDAMENTALS OF RELIGION
 
 ---
-
-
-
-
   
 
 ## FUNDAMENTALS OF RELIGION
@@ -317,5 +313,3 @@ body is not free, neither is the will but that there must be something
 beyond both the mind and body which is free and
 
 (*incomplete*)
-
-

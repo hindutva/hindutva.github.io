@@ -1,11 +1,7 @@
 ---
-title: 'KNOWLEDGE: ITS SOURCE AND ACQUIREMENT'
+title: '223 KNOWLEDGE: ITS SOURCE AND ACQUIREMENT'
 
 ---
-
-
-
-
   
 
 ## KNOWLEDGE: ITS SOURCE AND ACQUIREMENT
@@ -234,5 +230,3 @@ the help of such wise guides advances faster than the one without it.
 But it is equally certain that such guides will rise up in the societies
 that are now without them and will lead them to equally rapid progress
 in the future.
-
-

@@ -1,11 +1,7 @@
 ---
-title: INTRODUCTION TO JNANA-YOGA
+title: 419 INTRODUCTION TO JNANA-YOGA
 
 ---
-
-
-
-
   
 
 ## INTRODUCTION TO JNANA-YOGA
@@ -154,5 +150,3 @@ matter allowing the real Self to manifest Itself. It is as if a screen
 or a veil were between us and some other object. The object becomes
 clear as the screen is gradually withdrawn. The question is simply one
 of manifestation of the higher Self.
-
-

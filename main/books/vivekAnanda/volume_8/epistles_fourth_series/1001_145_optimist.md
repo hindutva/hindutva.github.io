@@ -1,11 +1,7 @@
 ---
-title: CXLV
+title: 1001 CXLV
 
 ---
-
-
-
-
   
 
   
@@ -98,5 +94,3 @@ between the Brahmo Samaj and us, for they are gone already, but a
 harder, deeper, and more terrible one.
 
 V.
-
-

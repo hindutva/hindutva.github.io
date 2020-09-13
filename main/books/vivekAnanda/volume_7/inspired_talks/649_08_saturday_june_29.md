@@ -1,13 +1,9 @@
 ---
-title: 'RECORDED BY MISS S. E. WALDO
+title: '649 RECORDED BY MISS S. E. WALDO
 
   (A DISCIPLE)'
 
 ---
-
-
-
-
   
 
 ## RECORDED BY MISS S. E. WALDO (A DISCIPLE)
@@ -67,5 +63,3 @@ Perfect strength will have no activity in this world; it only is, it
 does not act.
 
 While real perfection is only one, relative perfections must be many.
-
-

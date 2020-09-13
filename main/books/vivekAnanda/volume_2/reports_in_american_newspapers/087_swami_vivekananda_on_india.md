@@ -1,11 +1,7 @@
 ---
-title: SWAMI VIVEKANANDA ON INDIA
+title: 087 SWAMI VIVEKANANDA ON INDIA
 
 ---
-
-
-
-
   
 
 ## SWAMI VIVEKANANDA ON INDIA
@@ -97,5 +93,3 @@ had to depend on getting their pay from God. After speaking briefly on
 the Caste system in India, our civilization in the south, our general
 knowledge of the mind, and various other topics the speaker concluded
 his remarks.
-
-

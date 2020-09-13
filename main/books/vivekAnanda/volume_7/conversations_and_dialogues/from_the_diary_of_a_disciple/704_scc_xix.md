@@ -1,11 +1,7 @@
 ---
-title: CONVERSATIONS AND DIALOGUES
+title: 704 CONVERSATIONS AND DIALOGUES
 
 ---
-
-
-
-
   
 
 ## CONVERSATIONS AND DIALOGUES
@@ -150,5 +146,3 @@ portion."
 
 Saying this, Swamiji opened the particular passage and began to read it
 in the most impressive manner.
-
-

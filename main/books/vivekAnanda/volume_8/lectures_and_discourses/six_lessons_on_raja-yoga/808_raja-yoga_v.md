@@ -1,13 +1,9 @@
 ---
-title: 'RAJA YOGA
+title: '808 RAJA YOGA
 
   FIFTH LESSON'
 
 ---
-
-
-
-
   
 
 ## RAJA YOGA FIFTH LESSON
@@ -87,5 +83,3 @@ to your only true aim-God. Seek only the Eternal, finding which we are
 at rest for ever; having the all, nothing is left to strive for, and we
 are for ever in free and perfect existence — Existence absolute,
 Knowledge absolute, Bliss absolute.
-
-

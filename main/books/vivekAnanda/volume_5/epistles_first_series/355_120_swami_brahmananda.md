@@ -1,11 +1,7 @@
 ---
-title: CXX
+title: 355 CXX
 
 ---
-
-
-
-
   
 
   
@@ -19,5 +15,3 @@ how many months! . . .
 Yours affectionately,
 
 VIVEKANANDA.
-
-

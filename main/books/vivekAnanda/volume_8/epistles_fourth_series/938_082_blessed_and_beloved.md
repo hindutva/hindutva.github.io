@@ -1,11 +1,7 @@
 ---
-title: LXXXII
+title: 938 LXXXII
 
 ---
-
-
-
-
   
 
   
@@ -68,5 +64,3 @@ read. The Salem Society most probably is a Hindu community and no
 faddists. 
 
 V.
-
-

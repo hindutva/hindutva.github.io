@@ -1,11 +1,7 @@
 ---
-title: XVIII
+title: 874 XVIII
 
 ---
-
-
-
-
   
 
   
@@ -48,5 +44,3 @@ I am all right. Hoping it is same with you.
 
 I remain your brother,  
 VIVEKANANDA.
-
-

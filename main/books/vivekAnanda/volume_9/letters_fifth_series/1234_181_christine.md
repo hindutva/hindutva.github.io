@@ -1,9 +1,7 @@
 ---
-title: CLXXXI
+title: 1234 CLXXXI
 
 ---
-
-
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
@@ -41,5 +39,3 @@ VIVEKANANDA
 [→](182_nivedita.htm)  
 [Addressee→](183_christine.htm)  
 [Chronology→](../../volume_8/epistles_fourth_series/191_brother_hari.htm)
-
-

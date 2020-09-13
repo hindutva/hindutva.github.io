@@ -1,11 +1,7 @@
 ---
-title: VEDIC RELIGIOUS IDEALS
+title: 033 VEDIC RELIGIOUS IDEALS
 
 ---
-
-
-
-
   
 
 ## VEDIC RELIGIOUS IDEALS
@@ -398,5 +394,3 @@ the Devas, the bright ones, and then it was the origin of the universe,
 and the very same search is getting another name, more philosophical,
 clearer — the unity of all things — "Knowing which everything else
 becomes known."
-
-

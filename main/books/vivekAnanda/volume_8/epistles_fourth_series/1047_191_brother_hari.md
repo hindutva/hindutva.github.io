@@ -1,11 +1,7 @@
 ---
-title: CXCI
+title: 1047 CXCI
 
 ---
-
-
-
-
   
 
   
@@ -46,5 +42,3 @@ Yours affectionately,
 VIVEKANANDA.
 
 PS. Convey my love to all.
-
-

@@ -1,11 +1,7 @@
 ---
-title: LXXXV
+title: 320 LXXXV
 
 ---
-
-
-
-
   
 
   
@@ -40,5 +36,3 @@ I remain yours affectionately,
 VIVEKANANDA.
 
 PS. My future address is Math, Belur, Howrah Dist. Bengal.
-
-

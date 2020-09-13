@@ -1,11 +1,7 @@
 ---
-title: CLV
+title: 616 CLV
 
 ---
-
-
-
-
   
 
   
@@ -37,5 +33,3 @@ Oh, to become fearless, to be daring, to be careless of everything! . .
 Yours etc.,
 
 VIVEKANANDA.
-
-

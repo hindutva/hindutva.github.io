@@ -1,9 +1,7 @@
 ---
-title: CCI
+title: 1254 CCI
 
 ---
-
-
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
@@ -57,5 +55,3 @@ VIVEKANANDA.
 [→](202_christine.htm)  
 [Addressee→](202_christine.htm)  
 [Chronology→](202_christine.htm)
-
-

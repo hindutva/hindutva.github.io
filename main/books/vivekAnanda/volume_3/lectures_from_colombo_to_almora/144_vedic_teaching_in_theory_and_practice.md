@@ -1,11 +1,7 @@
 ---
-title: VEDIC TEACHING IN THEORY AND PRACTICE
+title: 144 VEDIC TEACHING IN THEORY AND PRACTICE
 
 ---
-
-
-
-
   
 
 ## VEDIC TEACHING IN THEORY AND PRACTICE
@@ -49,5 +45,3 @@ when he ceased to be Swami Vivekananda lecturing to critical and
 attentive hearers, when all details and personalities were lost, names
 and forms disappeared, only the Spirit remaining, uniting the speaker,
 hearer, and the spoken word.
-
-

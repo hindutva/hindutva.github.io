@@ -1,11 +1,7 @@
 ---
-title: SKETCH OF THE LIFE OF PAVHARI BABA
+title: 198 SKETCH OF THE LIFE OF PAVHARI BABA
 
 ---
-
-
-
-
   
 
 ## SKETCH OF THE LIFE OF PAVHARI BABA
@@ -425,5 +421,3 @@ possession of body and mind.
 The present writer owes a deep debt of gratitude to the departed saint
 and dedicates these lines, however unworthy, to the memory of one of the
 greatest Masters he has loved and served.
-
-

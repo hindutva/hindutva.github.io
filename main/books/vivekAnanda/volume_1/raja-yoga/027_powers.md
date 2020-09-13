@@ -1,11 +1,7 @@
 ---
-title: POWERS
+title: 027 POWERS
 
 ---
-
-
-
-
   
 
 PATANJALI'S YOGA APHORISMS
@@ -631,5 +627,3 @@ is the Purusha.
     stand in bold relief, while in the third, which is the highest,
     there is no question of suppressing, but only similar impressions
     succeed each other in a stream. — Ed.
-
-

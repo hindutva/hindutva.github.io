@@ -1,9 +1,7 @@
 ---
-title: CV
+title: 1158 CV
 
 ---
-
-
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
@@ -49,5 +47,3 @@ VIVEKANANDA.
 [→](106_mrs_bull.htm)  
 [Addressee→](115_christina.htm)  
 [Chronology→](../../volume_7/epistles_third_series/38_sharat_chandra.htm)
-
-

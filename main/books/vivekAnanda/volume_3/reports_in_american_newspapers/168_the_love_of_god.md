@@ -1,11 +1,7 @@
 ---
-title: THE LOVE OF GOD
+title: 168 THE LOVE OF GOD
 
 ---
-
-
-
-
   
 
 ## THE LOVE OF GOD
@@ -86,5 +82,3 @@ in their love that they are continually asking God to give them
 something, including all manner of selfish things. Modern religion is,
 therefore, nothing but a mere hobby and fashion and people flock to
 church like a lot of sheep."
-
-

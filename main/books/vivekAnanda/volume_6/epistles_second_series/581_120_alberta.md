@@ -1,11 +1,7 @@
 ---
-title: CXX
+title: 581 CXX
 
 ---
-
-
-
-
   
 
   
@@ -25,5 +21,3 @@ the Hotel Continental.
 With all love and blessings,
 
 VIVEKANANDA.
-
-

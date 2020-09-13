@@ -1,11 +1,7 @@
 ---
-title: MEMOIRS OF EUROPEAN TRAVEL
+title: 722 MEMOIRS OF EUROPEAN TRAVEL
 
 ---
-
-
-
-
   
 
 ## MEMOIRS OF EUROPEAN TRAVEL
@@ -2294,5 +2290,3 @@ Does a river acquire velocity unless there is resistence? The newer and
 better a thing is, the more opposition it will meet with at the outset.
 It is opposition which foretells success. Where there is no opposition
 there is no success either. Good-bye!
-
-

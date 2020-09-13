@@ -1,11 +1,7 @@
 ---
-title: 'LESSONS ON BHAKTI-YOGA '
+title: '448 LESSONS ON BHAKTI-YOGA '
 
 ---
-
-
-
-
   
 
 ## LESSONS ON BHAKTI-YOGA
@@ -282,5 +278,3 @@ see God." All the great ones claim to have *seen* God. Thousands of
 years ago has the vision been seen, and the unity which lies beyond has
 been recognised; and now the only thing we can do is to fill in these
 glorious outlines.
-
-

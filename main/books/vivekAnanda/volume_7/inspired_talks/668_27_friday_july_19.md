@@ -1,13 +1,9 @@
 ---
-title: 'RECORDED BY MISS S. E. WALDO
+title: '668 RECORDED BY MISS S. E. WALDO
 
   (A DISCIPLE)'
 
 ---
-
-
-
-
   
 
 ## RECORDED BY MISS S. E. WALDO (A DISCIPLE)
@@ -72,5 +68,3 @@ fearless search for truth and such love for every living thing the world
 has never seen. Buddha was the Washington of the religious world; he
 conquered a throne only to give it to the world, as Washington did to
 the American people. He sought nothing for himself.
-
-

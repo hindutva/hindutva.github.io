@@ -1,13 +1,9 @@
 ---
-title: 'RECORDED BY MISS S. E. WALDO
+title: '680 RECORDED BY MISS S. E. WALDO
 
   (A DISCIPLE)'
 
 ---
-
-
-
-
   
 
 ## RECORDED BY MISS S. E. WALDO (A DISCIPLE)
@@ -88,5 +84,3 @@ on to it, the whole chain can be dragged in and read. This power is
 easily acquired, but it is of no real value; and to practise it takes
 just so much from our spiritual forces. Go not after these things,
 worship God.
-
-

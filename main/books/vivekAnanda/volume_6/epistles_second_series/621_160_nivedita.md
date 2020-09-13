@@ -1,11 +1,7 @@
 ---
-title: CLX
+title: 621 CLX
 
 ---
-
-
-
-
   
 
   
@@ -24,5 +20,3 @@ community. . . .
 
 Yours etc.,  
 VIVEKANANDA.
-
-

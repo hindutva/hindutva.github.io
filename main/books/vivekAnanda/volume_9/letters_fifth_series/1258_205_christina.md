@@ -1,9 +1,7 @@
 ---
-title: CCV
+title: 1258 CCV
 
 ---
-
-
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
@@ -36,5 +34,3 @@ VIVEKANANDA.
 [→](206_christina.htm)  
 [Addressee→](206_christina.htm)  
 [Chronology→](206_christina.htm)
-
-

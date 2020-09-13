@@ -1,11 +1,7 @@
 ---
-title: MIRACLES
+title: 166 MIRACLES
 
 ---
-
-
-
-
   
 
 ## MIRACLES
@@ -25,5 +21,3 @@ are not the performances of the wise men. These do not go about the
 country performing their wonders in the market places for pay. They can
 be seen and known only by those who seek to know the truth, and not
 moved by childish curiosity."
-
-

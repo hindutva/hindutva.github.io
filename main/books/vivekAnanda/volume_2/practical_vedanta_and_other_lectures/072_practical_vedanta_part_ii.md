@@ -1,11 +1,7 @@
 ---
-title: PRACTICAL VEDANTA
+title: 072 PRACTICAL VEDANTA
 
 ---
-
-
-
-
   
 
 ## PRACTICAL VEDANTA
@@ -569,5 +565,3 @@ that we shall work with satisfaction and contentment, instead of with
 discontent and dissatisfaction, for we know that Truth is within us, we
 have It as our birthright, and we have only to manifest It, and make It
 tangible.
-
-

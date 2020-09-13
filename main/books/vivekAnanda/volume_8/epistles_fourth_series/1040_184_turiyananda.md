@@ -1,11 +1,7 @@
 ---
-title: CLXXXIV
+title: 1040 CLXXXIV
 
 ---
-
-
-
-
   
 
   
@@ -37,5 +33,3 @@ back till September. I am all alone, and washing; I like it. Have you
 seen my friends? Give them my love.
 
 V.
-
-

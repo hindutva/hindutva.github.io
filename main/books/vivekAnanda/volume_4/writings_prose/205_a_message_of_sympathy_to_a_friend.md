@@ -1,11 +1,7 @@
 ---
-title: A MESSAGE OF SYMPATHY TO A FRIEND
+title: 205 A MESSAGE OF SYMPATHY TO A FRIEND
 
 ---
-
-
-
-
   
 
  Chronology [»  
@@ -60,5 +56,3 @@ Om Shri Krishnārpanamastu.
 May the Lord send you peace is the prayer day and night of —
 
 VIVEKANANDA.
-
-

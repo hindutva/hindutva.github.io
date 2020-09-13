@@ -1,11 +1,7 @@
 ---
-title: LXVII
+title: 302 LXVII
 
 ---
-
-
-
-
   
 
   
@@ -64,5 +60,3 @@ carefully-written articles from their pen. Work on with all energy.
 Yours with love,
 
 VIVEKANANDA.
-
-

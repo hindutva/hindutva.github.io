@@ -1,11 +1,7 @@
 ---
-title: XXVIII
+title: 769 XXVIII
 
 ---
-
-
-
-
   
 
   
@@ -36,5 +32,3 @@ Society.
 I remain Yours ever truly,
 
 VIVEKANANDA.
-
-

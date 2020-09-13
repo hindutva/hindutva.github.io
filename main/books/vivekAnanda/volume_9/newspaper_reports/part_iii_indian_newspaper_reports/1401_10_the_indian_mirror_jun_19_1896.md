@@ -1,9 +1,7 @@
 ---
-title: ON EDUCATION
+title: 1401 ON EDUCATION
 
 ---
-
-
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
 9](../../volume_9_contents.htm) / [Newspaper
@@ -42,5 +40,3 @@ taken down by Mr. Goodwin, who is a great admirer of the Swami, and
 these lectures will be published later on.
 
 [→](11_the_brahmavadin_jul_18_1896.htm)
-
-

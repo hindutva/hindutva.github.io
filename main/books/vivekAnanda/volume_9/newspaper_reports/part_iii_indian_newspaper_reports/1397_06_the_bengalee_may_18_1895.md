@@ -1,9 +1,7 @@
 ---
-title: "SWAMI VIVEKANANDA ON THE SEA-VOYAGE\n MOVEMENT"
+title: "1397 SWAMI VIVEKANANDA ON THE SEA-VOYAGE\n MOVEMENT"
 
 ---
-
-
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
 9](../../volume_9_contents.htm) / [Newspaper
@@ -85,5 +83,3 @@ it is something to know that so high an authority and so good a Hindoo
 as Swami Vivekananda supports travel to foreign countries. . . .
 
 [→](07_the_indian_mirror_jun_29_1895.htm)
-
-

@@ -1,11 +1,7 @@
 ---
-title: II
+title: 394 II
 
 ---
-
-
-
-
   
 
 ## II
@@ -52,5 +48,3 @@ social movement. Before Buddha great numbers of animals were killed for
 sacrifice and other reasons, and people drank wine and ate meat in large
 quantities. Since Buddha's teaching drunkenness has almost disappeared,
 and the killing of animals has almost gone.
-
-

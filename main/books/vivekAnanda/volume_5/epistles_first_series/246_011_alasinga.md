@@ -1,11 +1,7 @@
 ---
-title: XI
+title: 246 XI
 
 ---
-
-
-
-
   
 
   
@@ -88,5 +84,3 @@ Work hard. Be holy and pure and the fire will come.
 Yours affectionately,
 
 VIVEKANANDA.
-
-

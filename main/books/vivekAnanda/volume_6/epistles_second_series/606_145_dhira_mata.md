@@ -1,11 +1,7 @@
 ---
-title: CXLV
+title: 606 CXLV
 
 ---
-
-
-
-
   
 
   
@@ -41,5 +37,3 @@ Hoping soon to join you in Europe or America, I remain,
 Ever your loving son,
 
 VIVEKANANDA.
-
-

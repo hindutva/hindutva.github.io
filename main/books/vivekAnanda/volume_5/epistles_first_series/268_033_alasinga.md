@@ -1,11 +1,7 @@
 ---
-title: XXXIII
+title: 268 XXXIII
 
 ---
-
-
-
-
   
 
   
@@ -29,5 +25,3 @@ on, my brave boys.
 Ever yours with blessings,
 
 VIVEKANANDA.
-
-

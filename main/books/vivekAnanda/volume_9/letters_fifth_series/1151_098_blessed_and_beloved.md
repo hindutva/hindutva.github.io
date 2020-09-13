@@ -1,9 +1,7 @@
 ---
-title: XCVIII
+title: 1151 XCVIII
 
 ---
-
-
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
@@ -52,5 +50,3 @@ V.
 [→](099_christina.htm)  
 [Addressee→](099_christina.htm)  
 [Chronology→](../../volume_5/epistles_first_series/063_alasinga.htm)
-
-

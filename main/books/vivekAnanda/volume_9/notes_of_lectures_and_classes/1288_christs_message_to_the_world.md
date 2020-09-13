@@ -1,9 +1,7 @@
 ---
-title: CHRIST'S MESSAGE TO THE WORLD
+title: 1288 CHRIST'S MESSAGE TO THE WORLD
 
 ---
-
-
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Notes of Lectures and
 Classes](notes_of_lectures_and_classes_contents.htm) /
@@ -31,5 +29,3 @@ of each great wave stands an illumined soul, a mighty spiritual leader
 and teacher of men. Such a one was Jesus of Nazareth.
 
 [→](mohammeds_message_to_the_world.htm)
-
-

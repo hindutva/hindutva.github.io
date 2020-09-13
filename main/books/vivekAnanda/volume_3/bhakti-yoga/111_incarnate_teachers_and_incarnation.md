@@ -1,11 +1,7 @@
 ---
-title: INCARNATE TEACHERS AND INCARNATION
+title: 111 INCARNATE TEACHERS AND INCARNATION
 
 ---
-
-
-
-
   
 
 CHAPTER VI
@@ -112,5 +108,3 @@ says Bhagavan Shri Ramakrishna, "all the little brooks and ditches
 become full to the brim without any effort or consciousness on their own
 part; so when an Incarnation comes, a tidal wave of spirituality breaks
 upon the world, and people feel spirituality almost full in the air."
-
-

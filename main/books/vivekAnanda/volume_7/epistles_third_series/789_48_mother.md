@@ -1,11 +1,7 @@
 ---
-title: XLVIII
+title: 789 XLVIII
 
 ---
-
-
-
-
   
 
   
@@ -54,5 +50,3 @@ How is Miss Spencer? All love to her. You know already I am a very bad
 correspondent, but the heart never fails. Tell this to Miss Spencer.
 
 V.
-
-

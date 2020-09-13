@@ -1,11 +1,7 @@
 ---
-title: CLXXV
+title: 1031 CLXXV
 
 ---
-
-
-
-
   
 
 
@@ -41,5 +37,3 @@ And work? What is work? Whose work? Whom shall I work for?
 I am free. I am Mother's child. She works, She plays. Why should I plan?
 What should I plan? Things came and went, just as She liked, without my
 planning. We are Her automata. She is the wirepuller.
-
-

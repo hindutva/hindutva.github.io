@@ -1,11 +1,7 @@
 ---
-title: XXXIX
+title: 780 XXXIX
 
 ---
-
-
-
-
   
 
   
@@ -76,5 +72,3 @@ work here a bit.
 Yours,
 
 VIVEKANANDA.
-
-

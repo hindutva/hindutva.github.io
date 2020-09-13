@@ -1,13 +1,9 @@
 ---
-title: 'RAJA YOGA
+title: '807 RAJA YOGA
 
   FOURTH LESSON'
 
 ---
-
-
-
-
   
 
 ## RAJA YOGA FOURTH LESSON
@@ -80,5 +76,3 @@ reason and is the only light that takes us everywhere.
 
 Inspiration is from within and we have to inspire ourselves by our own
 higher faculties.
-
-

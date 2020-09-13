@@ -1,11 +1,7 @@
 ---
-title: THE LOVE OF GOD - II
+title: 840 THE LOVE OF GOD - II
 
 ---
-
-
-
-
   
 
 ## THE LOVE OF GOD - II
@@ -74,5 +70,3 @@ nowadays has become a mere hobby and fashion. People go to church like a
 flock of sheep. They do not embrace God because they need Him. Most
 persons are unconscious atheists who self-complacently think that they
 are devout believers.
-
-

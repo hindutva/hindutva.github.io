@@ -1,11 +1,7 @@
 ---
-title: XI
+title: 867 XI
 
 ---
-
-
-
-
   
 
   
@@ -55,5 +51,3 @@ and the kingdom for ever and ever." My compliments to you all.
 Yours etc.,  
 SACHCHIDANANDA.  
 (Swamiji used to call himself such in those days.)
-
-

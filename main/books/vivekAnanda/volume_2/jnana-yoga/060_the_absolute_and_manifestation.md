@@ -1,11 +1,7 @@
 ---
-title: THE ABSOLUTE AND MANIFESTATION
+title: 060 THE ABSOLUTE AND MANIFESTATION
 
 ---
-
-
-
-
   
 
 CHAPTER VI
@@ -423,5 +419,3 @@ want is the harmony of Existence, Knowledge, and Bliss Infinite. For
 that is our goal. We want harmony, not one-sided development. And it is
 possible to have the intellect of a Shankara with the heart of a Buddha.
 I hope we shall all struggle to attain to that blessed combination.
-
-

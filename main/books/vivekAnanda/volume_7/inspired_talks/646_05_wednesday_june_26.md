@@ -1,13 +1,9 @@
 ---
-title: 'RECORDED BY MISS S. E. WALDO
+title: '646 RECORDED BY MISS S. E. WALDO
 
   (A DISCIPLE)'
 
 ---
-
-
-
-
   
 
 ## RECORDED BY MISS S. E. WALDO (A DISCIPLE)
@@ -92,5 +88,3 @@ away, ambition non-existent. They are all principle, no personality.
 1.  [^](#txt1)The mother-monkey is very fond of her young, but if an
     iron plate is heated under her feet and it becomes unbearable, she
     throws down the baby and stands on it to save herself.
-
-

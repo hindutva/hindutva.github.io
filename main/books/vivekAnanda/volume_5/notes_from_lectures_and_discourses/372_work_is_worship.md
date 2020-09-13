@@ -1,11 +1,7 @@
 ---
-title: WORK IS WORSHIP
+title: 372 WORK IS WORSHIP
 
 ---
-
-
-
-
   
 
 ## WORK IS WORSHIP
@@ -40,5 +36,3 @@ to worship Him. Stand in that reverent attitude to the whole universe,
 and then will come perfect non-attachment. This should be your duty.
 This is the proper attitude of work. This is the secret taught by
 Karma-Yoga.
-
-

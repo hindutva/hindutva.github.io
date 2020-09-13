@@ -1,9 +1,7 @@
 ---
-title: AN UNFINISHED POEM
+title: 1305 AN UNFINISHED POEM
 
 ---
-
-
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) /[Writings: Prose and
 Poems](writings_prose_and_poems_contents.htm) /
@@ -45,5 +43,3 @@ On one side this dark abyss — I shudder to see it even —
 On the other this wall . . .
 
 [→](bhartriharis_verses.htm)
-
-

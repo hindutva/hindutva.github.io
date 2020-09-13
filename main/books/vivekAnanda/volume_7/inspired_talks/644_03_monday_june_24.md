@@ -1,13 +1,9 @@
 ---
-title: 'RECORDED BY MISS S. E. WALDO
+title: '644 RECORDED BY MISS S. E. WALDO
 
   (A DISCIPLE)'
 
 ---
-
-
-
-
   
 
 ## RECORDED BY MISS S. E. WALDO (A DISCIPLE)
@@ -119,5 +115,3 @@ man is all gone, only Thou remainest." "I am Thou." Blame none; if evil
 comes, know the Lord is playing with you and be exceeding glad.
 
 Love is beyond time and space, it is absolute.
-
-

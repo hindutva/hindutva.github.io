@@ -1,13 +1,9 @@
 ---
-title: 'RECORDED BY MISS S. E. WALDO
+title: '652 RECORDED BY MISS S. E. WALDO
 
   (A DISCIPLE)'
 
 ---
-
-
-
-
   
 
 ## RECORDED BY MISS S. E. WALDO (A DISCIPLE)
@@ -53,5 +49,3 @@ soul, the triangle of existence. This is the Vishishtādvaitist idea.
 A bit of Mother, a drop, was Krishna, another was Buddha, another was
 Christ. The worship of even one spark of Mother in our earthly mother
 leads to greatness. Worship Her if you want love and wisdom.
-
-

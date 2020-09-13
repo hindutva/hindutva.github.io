@@ -1,11 +1,7 @@
 ---
-title: PLEA FOR TOLERANCE
+title: 163 PLEA FOR TOLERANCE
 
 ---
-
-
-
-
   
 
 ## PLEA FOR TOLERANCE
@@ -92,5 +88,3 @@ conclusion was especially fine, when he acknowledged his readiness to
 accept Christ but must also bow to Krishna and to Buddha; and when, with
 a fine picture of the cruelty of civilization, he refused to hold Christ
 responsible for the crimes of progress.
-
-

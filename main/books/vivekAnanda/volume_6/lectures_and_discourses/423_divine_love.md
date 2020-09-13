@@ -1,11 +1,7 @@
 ---
-title: DIVINE LOVE
+title: 423 DIVINE LOVE
 
 ---
-
-
-
-
   
 
 ## DIVINE LOVE
@@ -279,5 +275,3 @@ love. My body, my mind, and my soul are all at Thy altar. Love, refuse
 these gifts not!"
 
 (*Vedanta and the West*, Sept.-Oct. 1955)
-
-

@@ -1,11 +1,7 @@
 ---
-title: XXX
+title: 265 XXX
 
 ---
-
-
-
-
   
 
   
@@ -65,5 +61,3 @@ Lord bless you.
 Yours ever with blessings,
 
 VIVEKANANDA.
-
-

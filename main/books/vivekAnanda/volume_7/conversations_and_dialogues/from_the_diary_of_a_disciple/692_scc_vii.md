@@ -1,11 +1,7 @@
 ---
-title: CONVERSATIONS AND DIALOGUES
+title: 692 CONVERSATIONS AND DIALOGUES
 
 ---
-
-
-
-
   
 
 ## CONVERSATIONS AND DIALOGUES
@@ -242,5 +238,3 @@ to Sannyasa" (Jābālopanishad, 4). Sacrifice your life for the good of
 others and go round to the doors of people carrying this message of
 fearlessness "उत्तिष्ठत जाग्रत प्राप्य वरान् निबोधत — Arise, awake, and
 stop not till the goal is reached."
-
-

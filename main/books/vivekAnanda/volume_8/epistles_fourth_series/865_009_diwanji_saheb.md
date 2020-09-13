@@ -1,11 +1,7 @@
 ---
-title: IX
+title: 865 IX
 
 ---
-
-
-
-
   
 
   
@@ -71,5 +67,3 @@ forefathers have so much as *seen* a volume of the Vedas for the last
 from the Rākshasas in the shape of the Brahmins of the Kaliyuga.
 
 I have sent a Bengali boy to you. Hope he would be treated kindly.
-
-

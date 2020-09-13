@@ -1,5 +1,5 @@
 ---
-title: CXXXII
+title: 593 CXXXII
 
 ---
  
@@ -64,5 +64,3 @@ good did he achieve?
 
 Yours affly.,  
 VIVEKANANDA.
-
-

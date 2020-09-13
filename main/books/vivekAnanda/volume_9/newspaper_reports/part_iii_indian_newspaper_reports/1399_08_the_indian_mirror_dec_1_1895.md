@@ -1,9 +1,7 @@
 ---
-title: INDIAN PHILOSOPHY AND WESTERN SOCIETY
+title: 1399 INDIAN PHILOSOPHY AND WESTERN SOCIETY
 
 ---
-
-
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
 9](../../volume_9_contents.htm) / [Newspaper

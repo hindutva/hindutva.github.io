@@ -1,13 +1,9 @@
 ---
-title: 'RAJA YOGA
+title: '805 RAJA YOGA
 
   SECOND LESSON'
 
 ---
-
-
-
-
   
 
 ## RAJA YOGA SECOND LESSON
@@ -149,5 +145,3 @@ and spiritually. Take every step in that light.
 Of hundreds of thousands only one soul will say, "I will go beyond, and
 I will penetrate to God." Few can face the truth; but to accomplish
 anything, we must be willing to die for Truth.
-
-

@@ -1,11 +1,7 @@
 ---
-title: HINTS ON PRACTICAL SPIRITUALITY
+title: 053 HINTS ON PRACTICAL SPIRITUALITY
 
 ---
-
-
-
-
   
 
 ## HINTS ON PRACTICAL SPIRITUALITY
@@ -435,5 +431,3 @@ That is the secret: To think that I am the spirit and not the body, and
 that the whole of this universe with all its relations, with all its
 good and all its evil, is but as a series of paintings — scenes on a
 canvas — of which I am the witness.
-
-

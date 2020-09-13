@@ -1,11 +1,7 @@
 ---
-title: REFERENCES TO YOGA
+title: 029 REFERENCES TO YOGA
 
 ---
-
-
-
-
   
 
 PATANJALI'S YOGA APHORISMS
@@ -323,5 +319,3 @@ worship should be performed.
 
 *These several extracts give an idea of what other systems of Indian
 Philosophy have to say upon Yoga.*
-
-

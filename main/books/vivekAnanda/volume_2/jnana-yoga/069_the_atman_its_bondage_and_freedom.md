@@ -1,11 +1,7 @@
 ---
-title: 'THE ATMAN: ITS BONDAGE AND FREEDOM'
+title: '069 THE ATMAN: ITS BONDAGE AND FREEDOM'
 
 ---
-
-
-
-
   
 
 CHAPTER XIV
@@ -254,5 +250,3 @@ desires in this world, because their brain is imperfect. At the same
 time, the highest state is when we have no desires, but the two are
 opposite poles of the same existence. One is near the animal, and the
 other near to God.
-
-

@@ -1,9 +1,7 @@
 ---
-title: A WITTY HINDU
+title: 1337 A WITTY HINDU
 
 ---
-
-
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
 9](../../volume_9_contents.htm) / [Newspaper
@@ -40,5 +38,3 @@ manner that was charming. Following the address a number of questions
 were asked by persons in the audience.
 
 [→](14_minneapolis_tribune_dec_15_1893.htm)
-
-

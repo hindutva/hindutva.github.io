@@ -1,11 +1,7 @@
 ---
-title: SADHANAS OR PREPARATIONS FOR HIGHER LIFE
+title: 374 SADHANAS OR PREPARATIONS FOR HIGHER LIFE
 
 ---
-
-
-
-
   
 
 ## SADHANAS OR PREPARATIONS FOR HIGHER LIFE
@@ -175,5 +171,3 @@ fame, joys and glories of life — punishments and successes — will be no
 more, and the whole life will seem like a show. We shall see only the
 infinite rhythm going on, endless and purposeless, going we do not know
 where. Only this much shall we say; our play is done.
-
-

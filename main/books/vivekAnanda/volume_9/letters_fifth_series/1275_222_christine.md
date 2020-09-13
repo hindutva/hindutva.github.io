@@ -1,9 +1,7 @@
 ---
-title: CCXXII
+title: 1275 CCXXII
 
 ---
-
-
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
@@ -37,5 +35,3 @@ VIVEKANANDA.
 [→](223_mademoiselle.htm)  
 [Addressee→](224_christine.htm)  
 [Chronology→](223_mademoiselle.htm)
-
-

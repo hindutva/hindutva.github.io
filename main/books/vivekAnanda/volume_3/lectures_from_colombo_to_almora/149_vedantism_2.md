@@ -1,11 +1,7 @@
 ---
-title: VEDANTISM
+title: 149 VEDANTISM
 
 ---
-
-
-
-
   
 
 ## VEDANTISM
@@ -191,5 +187,3 @@ that knowledge was the finding of unity in diversity, and the highest
 point in every science was reached when it found the one unity
 underlying all variety. This was as true in physical science as in the
 spiritual.
-
-

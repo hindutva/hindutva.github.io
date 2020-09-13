@@ -1,9 +1,7 @@
 ---
-title: CLXXIX
+title: 1232 CLXXIX
 
 ---
-
-
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
@@ -39,5 +37,3 @@ VIVEKANANDA.
 [→](180_mrs_leggett.htm)  
 [Addressee→](181_christine.htm)  
 [Chronology→](180_mrs_leggett.htm)
-
-

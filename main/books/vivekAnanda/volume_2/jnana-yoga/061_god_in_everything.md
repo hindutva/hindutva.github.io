@@ -1,11 +1,7 @@
 ---
-title: GOD IN EVERYTHING
+title: 061 GOD IN EVERYTHING
 
 ---
-
-
-
-
   
 
 CHAPTER VII
@@ -336,5 +332,3 @@ that I may see the Truth that is within thee. I have known the Truth
 that is within thee, I have known what is the real meaning of thy rays
 and thy glory and have seen That which shines in thee; the Truth in thee
 I see, and That which is within thee is within me, and I am That."
-
-

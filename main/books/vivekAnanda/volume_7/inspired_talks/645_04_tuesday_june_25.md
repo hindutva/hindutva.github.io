@@ -1,13 +1,9 @@
 ---
-title: 'RECORDED BY MISS S. E. WALDO
+title: '645 RECORDED BY MISS S. E. WALDO
 
   (A DISCIPLE)'
 
 ---
-
-
-
-
   
 
 ## RECORDED BY MISS S. E. WALDO (A DISCIPLE)
@@ -116,5 +112,3 @@ conscience troubled him, and he said, "Mr. Bull, I have been sitting
 here a long time, perhaps I annoy you. I am sorry, I will go away." But
 the bull replied, "Oh no, not at all! Bring your whole family and live
 on my horn; what can you do to me?"
-
-

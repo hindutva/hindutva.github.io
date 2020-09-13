@@ -1,11 +1,7 @@
 ---
-title: WHAT WE BELIEVE IN
+title: 206 WHAT WE BELIEVE IN
 
 ---
-
-
-
-
   
 
   
@@ -158,5 +154,3 @@ or any other social evil. Preach to let "hands off", and everything will
 come right.
 
 My blessings on you all, my brave, steadfast, and loving souls.
-
-

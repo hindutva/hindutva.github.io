@@ -1,9 +1,7 @@
 ---
-title: LXXI
+title: 1124 LXXI
 
 ---
-
-
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
@@ -37,5 +35,3 @@ KRIPANANDA.
 
 [→](072_mckindley.htm)  
 [Chronology→](../../volume_5/epistles_first_series/049_alasinga.htm)
-
-

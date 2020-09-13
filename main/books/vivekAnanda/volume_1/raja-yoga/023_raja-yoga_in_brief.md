@@ -1,11 +1,7 @@
 ---
-title: RAJA-YOGA IN BRIEF
+title: 023 RAJA-YOGA IN BRIEF
 
 ---
-
-
-
-
   
 
 CHAPTER VIII
@@ -184,5 +180,3 @@ for his perseverance. He was ready to work through all those births,
 nothing discouraged him. But the first man felt that even four more
 births were too long. Only perseverance, like that of the man who was
 willing to wait aeons brings about the highest result.
-
-

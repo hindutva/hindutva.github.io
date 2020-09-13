@@ -1,11 +1,7 @@
 ---
-title: XLII
+title: 783 XLII
 
 ---
-
-
-
-
   
 
   
@@ -93,5 +89,3 @@ With everlasting love,
 Yours ever in the Lord,
 
 VIVEKANANDA.
-
-

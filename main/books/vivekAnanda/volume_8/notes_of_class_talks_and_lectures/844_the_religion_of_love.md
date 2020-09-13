@@ -1,11 +1,7 @@
 ---
-title: THE RELIGION OF LOVE
+title: 844 THE RELIGION OF LOVE
 
 ---
-
-
-
-
   
 
 ## THE RELIGION OF LOVE
@@ -149,5 +145,3 @@ Pardon me, Thy child!"
 Again he told how the same saint was bitten by a cobra, and when,
 towards nightfall he recovered, he said, "A messenger came to me from
 the Beloved."
-
-

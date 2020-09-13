@@ -1,11 +1,7 @@
 ---
-title: IMMORTALITY
+title: 067 IMMORTALITY
 
 ---
-
-
-
-
   
 
 CHAPTER XII
@@ -356,5 +352,3 @@ no more grovel in darkness.
     Ferris erected the first of its kind for the Chicago Exposition
     of 1893. In India we have a corresponding wooden device very common
     in fairs. — Ed.
-
-

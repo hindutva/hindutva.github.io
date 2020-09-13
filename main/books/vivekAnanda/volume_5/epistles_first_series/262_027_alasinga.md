@@ -1,11 +1,7 @@
 ---
-title: XXVII
+title: 262 XXVII
 
 ---
-
-
-
-
   
 
   
@@ -101,5 +97,3 @@ prevail.
 Yours etc.,
 
 VIVEKANANDA.
-
-

@@ -1,9 +1,7 @@
 ---
-title: THE SWAMI VIVEKANANDA IN ENGLAND
+title: 1402 THE SWAMI VIVEKANANDA IN ENGLAND
 
 ---
-
-
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
 9](../../volume_9_contents.htm) / [Newspaper
@@ -103,5 +101,3 @@ London, S. W.
 June 23, 1896
 
 [→](12_the_indian_mirror_sep_22_1896.htm)
-
-

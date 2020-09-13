@@ -1,9 +1,7 @@
 ---
-title: OUR MISSION IN AMERICA
+title: 1409 OUR MISSION IN AMERICA
 
 ---
-
-
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
 9](../../volume_9_contents.htm) / [Newspaper
@@ -42,5 +40,3 @@ all that several of our own countrymen have been discovered in that way.
 that has been similarly discovered by the Americans. (Cheers).
 
 [→](19_the_indian_mirror_feb_15_1901.htm)
-
-

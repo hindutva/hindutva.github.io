@@ -1,11 +1,7 @@
 ---
-title: MODERN INDIA
+title: 224 MODERN INDIA
 
 ---
-
-
-
-
   
 
 ## MODERN INDIA
@@ -1345,5 +1341,3 @@ take away my unmanliness, and make me a Man!"
 8.  [^](#txt8)In her anxiety to save her reputation, Kunti threw the
     newborn child Karna, into water. A charioteer found the child in his
     pitiable condition and adopted him as his son.
-
-

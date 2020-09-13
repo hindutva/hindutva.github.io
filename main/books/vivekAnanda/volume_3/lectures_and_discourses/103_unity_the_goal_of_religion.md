@@ -1,11 +1,7 @@
 ---
-title: UNITY, THE GOAL OF RELIGION
+title: 103 UNITY, THE GOAL OF RELIGION
 
 ---
-
-
-
-
   
 
 ## UNITY, THE GOAL OF RELIGION
@@ -163,5 +159,3 @@ conclusions yet further. While its cosmology agrees with that taught by
 Kapila, the Vedanta is not satisfied to end in dualism, but continues
 its search for the final unity which is alike the goal of science and
 religion.
-
-

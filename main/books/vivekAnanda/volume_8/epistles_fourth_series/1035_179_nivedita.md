@@ -1,11 +1,7 @@
 ---
-title: CLXXIX
+title: 1035 CLXXIX
 
 ---
-
-
-
-
   
 
   
@@ -47,5 +43,3 @@ wife of Judge Adams. Go to see her immediately. Much good may come out
 of it. She is well known; find out her address.
 
 V.
-
-

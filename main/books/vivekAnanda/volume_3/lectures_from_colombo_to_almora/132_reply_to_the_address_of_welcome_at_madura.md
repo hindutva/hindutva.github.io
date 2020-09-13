@@ -1,11 +1,7 @@
 ---
-title: REPLY TO THE ADDRESS OF WELCOME AT MADURA
+title: 132 REPLY TO THE ADDRESS OF WELCOME AT MADURA
 
 ---
-
-
-
-
   
 
 ## REPLY TO THE ADDRESS OF WELCOME AT MADURA
@@ -218,5 +214,3 @@ without the necessity of abusing any one, without the necessity of
 fighting any one in the world. May the Lord help us, each one of us
 here, to realise the Rishihood for our own salvation and for that of
 others!
-
-

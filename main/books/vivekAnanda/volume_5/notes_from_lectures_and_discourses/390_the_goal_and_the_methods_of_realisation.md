@@ -1,11 +1,7 @@
 ---
-title: THE GOAL AND METHODS OF REALISATION
+title: 390 THE GOAL AND METHODS OF REALISATION
 
 ---
-
-
-
-
   
 
 ## THE GOAL AND METHODS OF REALISATION
@@ -54,5 +50,3 @@ the varieties of religious belief are an advantage, since all faiths are
 good, so far as they encourage man to lead a religious life. The more
 sects there are, the more opportunities there are for making successful
 appeals to the divine instinct in all men.
-
-

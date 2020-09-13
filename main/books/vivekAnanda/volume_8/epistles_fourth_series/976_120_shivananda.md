@@ -1,11 +1,7 @@
 ---
-title: CXX
+title: 976 CXX
 
 ---
-
-
-
-
   
 
   
@@ -36,5 +32,3 @@ Calcutta in a few days and will be all right.
 
 Yours in the Lord,  
 VIVEKANANDA.
-
-

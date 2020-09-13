@@ -1,11 +1,7 @@
 ---
-title: UNITY IN DIVERSITY
+title: 063 UNITY IN DIVERSITY
 
 ---
-
-
-
-
   
 
 CHAPTER IX
@@ -410,5 +406,3 @@ hatreds, through our love and co-operation. A tremendous stream is
 flowing towards the ocean carrying us all along with it; and though like
 straws and scraps of paper we may at times float aimlessly about, in the
 long run we are sure to join the Ocean of Life and Bliss.
-
-

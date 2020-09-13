@@ -1,13 +1,9 @@
 ---
-title: 'RECORDED BY MISS S. E. WALDO
+title: '648 RECORDED BY MISS S. E. WALDO
 
   (A DISCIPLE)'
 
 ---
-
-
-
-
   
 
 ## RECORDED BY MISS S. E. WALDO (A DISCIPLE)
@@ -20,5 +16,3 @@ remarked:*)
 
 Be thankful for all food, it is Brahman. His universal energy is
 transmuted into our individual energy and helps us in all that we do.
-
-

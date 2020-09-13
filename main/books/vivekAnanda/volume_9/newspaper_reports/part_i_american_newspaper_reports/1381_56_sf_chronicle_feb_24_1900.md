@@ -1,9 +1,7 @@
 ---
-title: HINDOO MONK LECTURES
+title: 1381 HINDOO MONK LECTURES
 
 ---
-
-
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
 9](../../volume_9_contents.htm) / [Newspaper
@@ -39,5 +37,3 @@ any society, but would grow instinctively as the intellect of man
 developed.
 
 [→](57_oakland_tribune_feb_26_1900.htm)
-
-

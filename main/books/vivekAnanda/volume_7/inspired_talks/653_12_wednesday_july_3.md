@@ -1,13 +1,9 @@
 ---
-title: 'RECORDED BY MISS S. E. WALDO
+title: '653 RECORDED BY MISS S. E. WALDO
 
   (A DISCIPLE)'
 
 ---
-
-
-
-
   
 
 ## RECORDED BY MISS S. E. WALDO (A DISCIPLE)
@@ -150,5 +146,3 @@ mere child's play and do not trouble themselves about anything.
 It is easy to strike a blow, but tremendously hard to stay the hand,
 stand still, and say, "In Thee, O Lord, I take refuge", and then wait
 for Him to act.
-
-

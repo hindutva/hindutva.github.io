@@ -1,11 +1,7 @@
 ---
-title: THE GITA I
+title: 043 THE GITA I
 
 ---
-
-
-
-
   
 
 ## THE GITA I
@@ -385,5 +381,3 @@ think. We will become \[only\] by \[degrees\].
 
 You see, that was about Krishna and his time. In the next lecture we
 will know more of his book.
-
-

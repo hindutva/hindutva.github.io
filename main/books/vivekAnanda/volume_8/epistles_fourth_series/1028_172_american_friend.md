@@ -1,11 +1,7 @@
 ---
-title: CLXXII
+title: 1028 CLXXII
 
 ---
-
-
-
-
   
 
 
@@ -32,5 +28,3 @@ driven out. Glory, glory unto Mother! I have no wish, no ambition now.
 Blessed be Mother! I am the servant of Ramakrishna. I am merely a
 machine. I know nothing else. Nor do I want to know. Glory, glory unto
 Shri Guru!
-
-

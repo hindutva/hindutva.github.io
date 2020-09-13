@@ -1,9 +1,7 @@
 ---
-title: FOR UNIVERSAL RELIGION
+title: 1373 FOR UNIVERSAL RELIGION
 
 ---
-
-
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
 9](../../volume_9_contents.htm) / [Newspaper

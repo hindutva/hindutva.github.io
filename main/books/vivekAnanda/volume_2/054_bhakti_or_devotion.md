@@ -1,11 +1,7 @@
 ---
-title: BHAKTI OR DEVOTION
+title: 054 BHAKTI OR DEVOTION
 
 ---
-
-
-
-
   
 
 ## BHAKTI OR DEVOTION
@@ -483,5 +479,3 @@ resolved, as it were, into Infinite Love. Man himself was also
 transformed. He was approaching God, he was throwing off all vain
 desires, of which he was full before. With desires vanished selfishness,
 and, at the apex, he found that Love, Lover, and Beloved were One.
-
-

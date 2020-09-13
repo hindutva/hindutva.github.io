@@ -1,11 +1,7 @@
 ---
-title: ON RAJA-YOGA
+title: 432 ON RAJA-YOGA
 
 ---
-
-
-
-
   
 
 ## ON RAJA-YOGA
@@ -50,5 +46,3 @@ Supreme Spirit, when one realises. "I and my Father are one."
 
 Do one thing at a time and while doing it put your whole soul into it to
 the exclusion of all else.
-
-

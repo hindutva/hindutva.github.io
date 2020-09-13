@@ -1,11 +1,7 @@
 ---
-title: CLVI
+title: 617 CLVI
 
 ---
-
-
-
-
   
 
   
@@ -36,5 +32,3 @@ My dreams are breaking. Om Tat Sat!
 Yours,
 
 VIVEKANANDA.
-
-

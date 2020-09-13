@@ -1,11 +1,7 @@
 ---
-title: THE IDEAL OF KARMA-YOGA
+title: 014 THE IDEAL OF KARMA-YOGA
 
 ---
-
-
-
-
   
 
 CHAPTER VIII
@@ -316,5 +312,3 @@ fame, nor for anything else; and when a man can do that, he will be a
 Buddha, and out of him will come the power to work in such a manner as
 will transform the world. This man represents the very highest ideal of
 Karma-Yoga.
-
-

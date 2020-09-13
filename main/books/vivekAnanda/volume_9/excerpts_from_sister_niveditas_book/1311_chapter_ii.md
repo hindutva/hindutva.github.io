@@ -1,9 +1,7 @@
 ---
-title: CHAPTER II
+title: 1311 CHAPTER II
 
 ---
-
-
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Excerpts from Sister
 Nivedita's Book](excerpts_from_sister_niveditas_book_contents.htm) /
@@ -138,5 +136,3 @@ the proof the courage and sincerity of one who was both woman and
 European.
 
 [→](chapter_iii.htm)
-
-

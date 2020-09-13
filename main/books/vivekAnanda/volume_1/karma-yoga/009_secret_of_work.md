@@ -1,11 +1,7 @@
 ---
-title: THE SECRET OF WORK
+title: 009 THE SECRET OF WORK
 
 ---
-
-
-
-
   
 
 CHAPTER III
@@ -321,5 +317,3 @@ them. Thus it is plain that to be an ideal householder is a much more
 difficult task than to be an ideal Sannyasin; the true life of work is
 indeed as hard as, if not harder than, the equally true life of
 renunciation.
-
-

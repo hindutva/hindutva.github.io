@@ -1,11 +1,7 @@
 ---
-title: JNANA YOGA - IX
+title: 803 JNANA YOGA - IX
 
 ---
-
-
-
-
   
 
 ## JNANA YOGA - IX
@@ -113,5 +109,3 @@ not free at the same time." That means that we are never free on the
 earthly plane, but ever free on the spiritual side. The Self is beyond
 both freedom and bondage. We *are* Brahman, we *are* immortal knowledge
 beyond the senses, we *are* Bliss Absolute.
-
-

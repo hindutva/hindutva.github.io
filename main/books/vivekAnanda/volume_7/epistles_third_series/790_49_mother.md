@@ -1,11 +1,7 @@
 ---
-title: IL
+title: 790 IL
 
 ---
-
-
-
-
   
 
   
@@ -54,5 +50,3 @@ PS. Do you know anything about Turiyananda? Has he got completely
 cured? 
 
 V.
-
-

@@ -1,11 +1,7 @@
 ---
-title: LXXIV
+title: 309 LXXIV
 
 ---
-
-
-
-
   
 
   
@@ -92,5 +88,3 @@ well-being is impossible without men and money coming from the West.
 Ever grateful and ever praying to the Lord for your welfare,
 
 VIVEKANANDA.
-
-

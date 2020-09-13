@@ -1,11 +1,7 @@
 ---
-title: PRACTICAL VEDANTA
+title: 071 PRACTICAL VEDANTA
 
 ---
-
-
-
-
   
 
 ## PRACTICAL VEDANTA
@@ -530,5 +526,3 @@ of us will have to become a prophet, and you are that already. Only
 *know* it. Never think there is anything impossible for the soul. It is
 the greatest heresy to think so. If there is sin, this is the only sin —
 to say that you are weak, or others are weak.
-
-

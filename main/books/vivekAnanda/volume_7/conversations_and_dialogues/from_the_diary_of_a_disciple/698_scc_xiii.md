@@ -1,11 +1,7 @@
 ---
-title: 'CONVERSATIONS AND DIALOGUES '
+title: '698 CONVERSATIONS AND DIALOGUES '
 
 ---
-
-
-
-
   
 
 ## CONVERSATIONS AND DIALOGUES
@@ -86,5 +82,3 @@ Shri Ramakrishna would have been put to trouble to walk such a long
 distance from Calcutta. It is fortunate that the Math has not been
 established here." The boat then returned to the Math amid the
 enveloping darkness.
-
-

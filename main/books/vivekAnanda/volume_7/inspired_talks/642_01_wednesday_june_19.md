@@ -1,13 +1,9 @@
 ---
-title: 'RECORDED BY MISS S. E. WALDO
+title: '642 RECORDED BY MISS S. E. WALDO
 
   (A DISCIPLE)'
 
 ---
-
-
-
-
   
 
 ## RECORDED BY MISS S. E. WALDO (A DISCIPLE)
@@ -123,5 +119,3 @@ nature. (Here "nature" means matter and mind.)
     whole creation has come out of two primary principles one being
     called Ormuzd (the principle of Good) and the other Ahriman (the
     principle of Evil).
-
-

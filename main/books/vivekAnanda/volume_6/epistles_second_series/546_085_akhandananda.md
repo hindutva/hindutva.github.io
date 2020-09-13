@@ -1,11 +1,7 @@
 ---
-title: LXXXV
+title: 546 LXXXV
 
 ---
-
-
-
-
   
 
   
@@ -87,5 +83,3 @@ man. . . . Never fear.
 Yours affectionately,
 
 VIVEKANANDA.
-
-

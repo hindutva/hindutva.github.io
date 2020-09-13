@@ -1,11 +1,7 @@
 ---
-title: DIVINITY OF MAN
+title: 086 DIVINITY OF MAN
 
 ---
-
-
-
-
   
 
 ## DIVINITY OF MAN
@@ -71,5 +67,3 @@ love God for love's sake and his neighbor in spite of himself. The
 people of the West struggle too hard; repose is a factor of
 civilization. We do not lay our infirmities to God. There is a tendency
 toward a union of religions.
-
-

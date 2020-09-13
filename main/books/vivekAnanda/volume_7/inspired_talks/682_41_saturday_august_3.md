@@ -1,13 +1,9 @@
 ---
-title: 'RECORDED BY MISS S. E. WALDO
+title: '682 RECORDED BY MISS S. E. WALDO
 
   (A DISCIPLE)'
 
 ---
-
-
-
-
   
 
 ## RECORDED BY MISS S. E. WALDO (A DISCIPLE)
@@ -140,5 +136,3 @@ robe.
     fools who could not mend their circumstances even with the help of
     three boons. So both of them agreed to get back their ugly little
     noses and the dice was accordingly cast.
-
-

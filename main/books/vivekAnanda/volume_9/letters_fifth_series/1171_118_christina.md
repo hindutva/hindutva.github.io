@@ -1,9 +1,7 @@
 ---
-title: CXVIII
+title: 1171 CXVIII
 
 ---
-
-
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
@@ -61,5 +59,3 @@ cuts deep into the stone soul." — R. K. \[Ramakrishna\] Paramahamsa
 [→](119_margaret.htm)  
 [Addressee→](127_christina.htm)  
 [Chronology→](119_margaret.htm)
-
-

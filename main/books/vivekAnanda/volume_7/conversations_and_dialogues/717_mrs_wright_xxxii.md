@@ -1,11 +1,7 @@
 ---
-title: 'CONVERSATIONS AND DIALOGUE '
+title: '717 CONVERSATIONS AND DIALOGUE '
 
 ---
-
-
-
-
   
 
 ## CONVERSATIONS AND DIALOGUE
@@ -141,5 +137,3 @@ fell on her sword and died like a man." It was strange to hear the other
 side of the Indian mutiny, when you would never believe that there was
 another side to it, and to be assured that a Hindu could not possibly
 kill a woman. . . .
-
-

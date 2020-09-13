@@ -1,11 +1,7 @@
 ---
-title: LXVIII
+title: 529 LXVIII
 
 ---
-
-
-
-
   
 
   
@@ -34,5 +30,3 @@ He asks me to come to London.
 Yours,
 
 VIVEKANANDA.
-
-

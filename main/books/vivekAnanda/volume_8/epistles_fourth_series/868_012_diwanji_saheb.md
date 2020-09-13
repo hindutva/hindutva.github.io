@@ -1,11 +1,7 @@
 ---
-title: XII
+title: 868 XII
 
 ---
-
-
-
-
   
 
   
@@ -51,5 +47,3 @@ great Father of Mercies. Amen!
 
 Yours affectionately,  
 VIVEKANANDA.
-
-

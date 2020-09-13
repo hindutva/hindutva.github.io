@@ -1,13 +1,9 @@
 ---
-title: 'BUDDHISM, THE RELIGION OF THE
+title: '739 BUDDHISM, THE RELIGION OF THE
 
   LIGHT OF ASIA'
 
 ---
-
-
-
-
   
 
 ## BUDDHISM, THE RELIGION OF THE LIGHT OF ASIA
@@ -66,5 +62,3 @@ they followed him."
 
 In conclusion Kananda said that Buddhism was the foundation of the
 Christian religion; that the catholic church came from Buddhism.
-
-

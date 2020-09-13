@@ -1,11 +1,7 @@
 ---
-title: ON BHAKTI-YOGA
+title: 382 ON BHAKTI-YOGA
 
 ---
-
-
-
-
   
 
 ## ON BHAKTI-YOGA
@@ -147,5 +143,3 @@ Shri Ramakrishna is a force. You should not think that his doctrine is
 this or that. But he is a power, living even now in his disciples and
 working in the world. I saw him growing in his ideas. He is still
 growing. Shri Ramakrishna was both a Jivanmukta and an Acharya.
-
-

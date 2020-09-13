@@ -1,9 +1,7 @@
 ---
-title: WAYSIDE STORIES
+title: 1345 WAYSIDE STORIES
 
 ---
-
-
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
 9](../../volume_9_contents.htm) / [Newspaper
@@ -21,5 +19,3 @@ Yankee character, and perhaps the Hindoo's comment was an echo of what
 he had heard the Englishmen in India say of the "Yankee."
 
 [→](22_bay_city_times_press_mar_21_1894.htm)
-
-

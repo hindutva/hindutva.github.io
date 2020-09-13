@@ -1,11 +1,7 @@
 ---
-title: XCVIII
+title: 559 XCVIII
 
 ---
-
-
-
-
   
 
   
@@ -35,5 +31,3 @@ Sunday my public lectures.
 Yours ever in grateful affection,
 
 VIVEKANANDA.
-
-

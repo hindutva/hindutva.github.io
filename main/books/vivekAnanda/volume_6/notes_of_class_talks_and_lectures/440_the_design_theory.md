@@ -1,11 +1,7 @@
 ---
-title: THE DESIGN THEORY
+title: 440 THE DESIGN THEORY
 
 ---
-
-
-
-
   
 
 ## THE DESIGN THEORY
@@ -55,5 +51,3 @@ manifestation, and monism is pure spirituality in the essence.
 
 The idea of renunciation and sacrifice is in all religions as a means to
 reach God.
-
-

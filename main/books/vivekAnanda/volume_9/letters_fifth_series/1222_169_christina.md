@@ -1,9 +1,7 @@
 ---
-title: CLXIX
+title: 1222 CLXIX
 
 ---
-
-
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
@@ -34,5 +32,3 @@ VIVEKANANDA.
 [→](170_abhedananda.htm)  
 [Addressee→](171_christina.htm)  
 [Chronology→](170_abhedananda.htm)
-
-

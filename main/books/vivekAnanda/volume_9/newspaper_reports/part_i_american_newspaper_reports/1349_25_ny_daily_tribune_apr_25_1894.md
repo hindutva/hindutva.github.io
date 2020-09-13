@@ -1,9 +1,7 @@
 ---
-title: A LECTURE ON "INDIA AND HINDUISM"
+title: 1349 A LECTURE ON "INDIA AND HINDUISM"
 
 ---
-
-
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
 9](../../volume_9_contents.htm) / [Newspaper
@@ -28,5 +26,3 @@ added, passed from one body to another, until it had become a perfect
 spirit, able to do without the limitations of a body. . . .
 
 [→](26_smith_college_monthly_may_1894.htm)
-
-

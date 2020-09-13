@@ -1,9 +1,7 @@
 ---
-title: CLXXXVII
+title: 1240 CLXXXVII
 
 ---
-
-
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
@@ -29,5 +27,3 @@ VIVEKANANDA.
 [→](188_sister_nivedita.htm)  
 [Addressee→](189_sister_christine.htm)  
 [Chronology→](188_sister_nivedita.htm)
-
-

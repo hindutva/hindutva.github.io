@@ -1,11 +1,7 @@
 ---
-title: 'PRACTICAL RELIGION: BREATHING AND MEDITATION'
+title: '050 PRACTICAL RELIGION: BREATHING AND MEDITATION'
 
 ---
-
-
-
-
   
 
 ## PRACTICAL RELIGION: BREATHING AND MEDITATION
@@ -269,5 +265,3 @@ greatest conqueror in the world finds himself a mere child when he tries
 to control his own mind. This is the world he has to conquer — the
 greater and more difficult world to conquer. Do not despair! Awake,
 arise, and stop not until the goal is reached!...
-
-

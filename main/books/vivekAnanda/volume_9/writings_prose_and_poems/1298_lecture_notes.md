@@ -1,9 +1,7 @@
 ---
-title: LECTURE NOTES
+title: 1298 LECTURE NOTES
 
 ---
-
-
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Writings: Prose and
 Poems](writings_prose_and_poems_contents.htm) /
@@ -47,5 +45,3 @@ of others.
 Philosophy — must not be only dry intellectuality
 
 [→](macrocosm_and_microcosm.htm)
-
-

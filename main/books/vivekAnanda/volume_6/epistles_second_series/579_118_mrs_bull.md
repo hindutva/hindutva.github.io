@@ -1,11 +1,7 @@
 ---
-title: CXVIII
+title: 579 CXVIII
 
 ---
-
-
-
-
   
 
   
@@ -34,5 +30,3 @@ friend I have, and it will be the same all my life.
 Yours,
 
 VIVEKANANDA.
-
-

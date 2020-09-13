@@ -1,11 +1,7 @@
 ---
-title: THE FIRST STEPS
+title: 172 THE FIRST STEPS
 
 ---
-
-
-
-
   
 
 ## THE FIRST STEPS
@@ -285,5 +281,3 @@ know whether we shall reach it or not in millions of years to come, but
 we must make it our highest ideal, make our senses aim at the highest.
 If we cannot get to the end, we shall at least come nearer to it. We
 have slowly to work through the world and the senses to reach God.
-
-

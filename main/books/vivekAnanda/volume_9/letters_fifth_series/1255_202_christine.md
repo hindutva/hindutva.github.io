@@ -1,9 +1,7 @@
 ---
-title: CCII
+title: 1255 CCII
 
 ---
-
-
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
@@ -50,5 +48,3 @@ V.
 [→](203_christine.htm)  
 [Addressee→](203_christine.htm)  
 [Chronology→](../../volume_5/epistles_first_series/110_mary.htm)
-
-

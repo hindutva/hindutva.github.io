@@ -1,11 +1,7 @@
 ---
-title: THE HYMN OF CREATION
+title: 228 THE HYMN OF CREATION
 
 ---
-
-
-
-
   
 
 ## THE HYMN OF CREATION
@@ -42,5 +38,3 @@ Nay, the Sun is He, and He is the ray.
 
 1.  [^](#txt1)"Neti, Neti", "Not this, not this." Brahman cannot be
     described in any positive way.
-
-

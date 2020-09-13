@@ -1,11 +1,7 @@
 ---
-title: VII
+title: 748 VII
 
 ---
-
-
-
-
   
 
 
@@ -38,5 +34,3 @@ VIVEKANANDA.
   
 PS. I am leaving this place tomorrow. Let me see which way destiny
 leads!
-
-

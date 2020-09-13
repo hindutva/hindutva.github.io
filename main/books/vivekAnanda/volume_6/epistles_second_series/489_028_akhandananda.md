@@ -1,11 +1,7 @@
 ---
-title: XXVIII
+title: 489 XXVIII
 
 ---
-
-
-
-
   
 
   
@@ -53,5 +49,3 @@ craze for visiting Amarnath be put back for the present.
 Yours affectionately,
 
 VIVEKANANDA.
-
-

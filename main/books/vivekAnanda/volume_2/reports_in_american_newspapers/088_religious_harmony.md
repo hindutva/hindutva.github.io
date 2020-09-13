@@ -1,11 +1,7 @@
 ---
-title: RELIGIOUS HARMONY
+title: 088 RELIGIOUS HARMONY
 
 ---
-
-
-
-
   
 
 ## RELIGIOUS HARMONY
@@ -77,5 +73,3 @@ ethics of Buddha taught but allowed that as far as the belief in the
 personality of God was concerned, agnosticism prevailed, the main thing
 being to follow out Buddha's precepts which were, "Be good, be moral, be
 perfect."
-
-

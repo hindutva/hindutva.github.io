@@ -1,11 +1,7 @@
 ---
-title: 'CONVERSATIONS AND DIALOGUES '
+title: '710 CONVERSATIONS AND DIALOGUES '
 
 ---
-
-
-
-
   
 
 ## CONVERSATIONS AND DIALOGUES
@@ -163,5 +159,3 @@ these words, and began to pace to and fro, uttering now and then the
 name of Shiva or humming a song on the Divine Mother, such as, "Who
 knows how diversely Thou playest, O Mother, Thou flowing stream of
 nectar", and so on.
-
-

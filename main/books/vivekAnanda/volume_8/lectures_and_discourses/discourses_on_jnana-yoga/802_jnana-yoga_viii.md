@@ -1,11 +1,7 @@
 ---
-title: JNANA YOGA - VIII
+title: 802 JNANA YOGA - VIII
 
 ---
-
-
-
-
   
 
 ## JNANA YOGA - VIII
@@ -113,5 +109,3 @@ good they are doing by helping to stamp out the false ego. Hold fast to
 the real Self, think only pure thoughts, and you will accomplish more
 than a regiment of mere preachers. Out of purity and silence comes the
 word of power.
-
-

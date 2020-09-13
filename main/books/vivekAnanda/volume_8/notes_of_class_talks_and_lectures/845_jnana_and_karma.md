@@ -1,11 +1,7 @@
 ---
-title: JNANA AND KARMA
+title: 845 JNANA AND KARMA
 
 ---
-
-
-
-
   
 
 ## JNANA AND KARMA
@@ -173,5 +169,3 @@ others. Religion is experience. Above all and in all, be sincere;
 identification brings misery, because it brings desire. Thus the poor
 man sees gold, and identifies himself with the need of gold. Be the
 witness. *Learn never to react*.
-
-

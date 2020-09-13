@@ -1,9 +1,7 @@
 ---
-title: AS THE WAVE FOLLOWS WAVE
+title: 1344 AS THE WAVE FOLLOWS WAVE
 
 ---
-
-
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
 9](../../volume_9_contents.htm) / [Newspaper
@@ -62,5 +60,3 @@ In conclusion Kananda said that Buddhism was the foundation of the
 christian religion; that the catholic church came from Buddhism.
 
 [→](21_detroit_evening_news_mar_21_1894.htm)
-
-

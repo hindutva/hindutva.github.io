@@ -1,11 +1,7 @@
 ---
-title: 'WHY WE DISAGREE '
+title: '001 WHY WE DISAGREE '
 
 ---
-
-
-
-
   
 
 ## WHY WE DISAGREE
@@ -54,5 +50,3 @@ well and thinks that is the whole world. I have to thank you of America
 for the great attempt you are making to break down the barriers of this
 little world of ours, and hope that, in the future, the Lord will help
 you to accomplish your purpose.
-
-

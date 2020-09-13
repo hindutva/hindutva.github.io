@@ -1,11 +1,7 @@
 ---
-title: THE GITA II
+title: 044 THE GITA II
 
 ---
-
-
-
-
   
 
 ## THE GITA II
@@ -233,5 +229,3 @@ unchanged, so even though all the senses bring in sensations from
 nature, the ocean-like heart of the sage knows no disturbance, knows no
 fear." (Ibid. 70.) Let miseries come in millions of rivers and happiness
 in hundreds! I am no slave to misery! I am no slave to happiness!
-
-

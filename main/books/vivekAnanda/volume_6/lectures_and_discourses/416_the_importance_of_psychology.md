@@ -1,11 +1,7 @@
 ---
-title: THE IMPORTANCE OF PSYCHOLOGY
+title: 416 THE IMPORTANCE OF PSYCHOLOGY
 
 ---
-
-
-
-
   
 
 ## THE IMPORTANCE OF PSYCHOLOGY
@@ -152,5 +148,3 @@ To control the mind you must go deep down into the subconscious mind,
 classify and arrange in order all the different impressions, thoughts,
 etc., stored up there, and control them. This is the first step. By the
 control of the subconscious mind you get control over the conscious.
-
-

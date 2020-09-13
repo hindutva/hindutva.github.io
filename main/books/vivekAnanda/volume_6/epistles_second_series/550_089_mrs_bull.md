@@ -1,11 +1,7 @@
 ---
-title: LXXXIX
+title: 550 LXXXIX
 
 ---
-
-
-
-
   
 
   
@@ -31,5 +27,3 @@ Janes and others.
 Yours, with best wishes,
 
 VIVEKANANDA.
-
-

@@ -1,9 +1,7 @@
 ---
-title: AN UNIVERSAL RELIGION
+title: 1388 AN UNIVERSAL RELIGION
 
 ---
-
-
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
 9](../../volume_9_contents.htm) / [Newspaper

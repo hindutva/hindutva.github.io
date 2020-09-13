@@ -1,11 +1,7 @@
 ---
-title: LXIX
+title: 304 LXIX
 
 ---
-
-
-
-
   
 
   
@@ -55,5 +51,3 @@ Barrows and how he should be welcomed. You also write some good words of
 welcome for him in the *Brahmavadin*. All here send love.
 
 V.
-
-

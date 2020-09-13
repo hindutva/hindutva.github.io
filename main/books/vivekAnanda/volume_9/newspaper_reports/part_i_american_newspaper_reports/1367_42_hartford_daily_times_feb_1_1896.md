@@ -1,9 +1,7 @@
 ---
-title: '"UNIVERSAL RELIGION"'
+title: 1367 "UNIVERSAL RELIGION"
 
 ---
-
-
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
 9](../../volume_9_contents.htm) / [Newspaper
@@ -114,5 +112,3 @@ be in harmony with reason and all known laws, and the Lord will always
 be with you.
 
 [→](43_tribune_mar_5_1896.htm)
-
-

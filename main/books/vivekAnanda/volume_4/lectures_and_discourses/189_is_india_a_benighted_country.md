@@ -1,11 +1,7 @@
 ---
-title: IS INDIA A BENIGHTED COUNTRY?
+title: 189 IS INDIA A BENIGHTED COUNTRY?
 
 ---
-
-
-
-
   
 
 ## IS INDIA A BENIGHTED COUNTRY?
@@ -157,5 +153,3 @@ in the Hall of Columbus would sit smiling and expectant, waiting for an
 hour or two of other men's speeches, to listen to Vivekananda for
 fifteen minutes. The Chairman knew the old rule of keeping the best
 until the last.
-
-

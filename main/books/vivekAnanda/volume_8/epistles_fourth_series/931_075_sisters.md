@@ -1,11 +1,7 @@
 ---
-title: LXXV
+title: 931 LXXV
 
 ---
-
-
-
-
   
 
   
@@ -50,5 +46,3 @@ PS. I will write to Mother Church as soon as I get time. Give my love to
 Sam and sister Locke. 
 
 V.
-
-

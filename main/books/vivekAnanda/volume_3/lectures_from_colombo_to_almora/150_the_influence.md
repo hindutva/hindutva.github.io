@@ -1,11 +1,7 @@
 ---
-title: THE INFLUENCE OF INDIAN SPIRITUAL THOUGHT IN ENGLAND
+title: 150 THE INFLUENCE OF INDIAN SPIRITUAL THOUGHT IN ENGLAND
 
 ---
-
-
-
-
   
 
 ## THE INFLUENCE OF INDIAN SPIRITUAL THOUGHT IN ENGLAND
@@ -184,5 +180,3 @@ do not care what philosophy you take up; only I am ready to prove here
 that throughout the whole of India, there runs a mutual and cordial
 string of eternal faith in the perfection of humanity, and I believe in
 it myself. And let that faith be spread over the whole land.
-
-

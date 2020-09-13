@@ -1,13 +1,9 @@
 ---
-title: 'RECORDED BY MISS S. E. WALDO
+title: '658 RECORDED BY MISS S. E. WALDO
 
   (A DISCIPLE)'
 
 ---
-
-
-
-
   
 
 ## RECORDED BY MISS S. E. WALDO (A DISCIPLE)
@@ -67,5 +63,3 @@ encyclopaedias. They said, "Knowledge in books and money in other
 people's hands is like no knowledge and no money at all."
 
 Shankara was regarded by many as an incarnation of Shiva.
-
-

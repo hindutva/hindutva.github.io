@@ -1,11 +1,7 @@
 ---
-title: CONVERSATIONS AND DIALOGUES
+title: 702 CONVERSATIONS AND DIALOGUES
 
 ---
-
-
-
-
   
 
 ## CONVERSATIONS AND DIALOGUES
@@ -249,5 +245,3 @@ Bengal man.
 1.  [^](#t1)The Bengali alamanac makes a forecast of the annual rainfall
     but not a drop comes out of squeezing its pages! Similarly
     scriptures are useless unless their truths are realised in life.
-
-

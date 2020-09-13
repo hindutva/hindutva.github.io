@@ -1,11 +1,7 @@
 ---
-title: CONVERSATIONS AND DIALOGUES
+title: 703 CONVERSATIONS AND DIALOGUES
 
 ---
-
-
-
-
   
 
 ## CONVERSATIONS AND DIALOGUES
@@ -321,5 +317,3 @@ attain to the knowledge of Brahman in this very life." Swamiji placing
 his hand on the disciple's head said, "Have no fear, my son. You are not
 like ordinary worldly men — neither householders, nor exactly Sannyasins
 — but quite a new type."
-
-

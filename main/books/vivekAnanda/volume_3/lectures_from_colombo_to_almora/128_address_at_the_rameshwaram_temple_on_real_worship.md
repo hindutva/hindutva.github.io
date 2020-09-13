@@ -1,11 +1,7 @@
 ---
-title: ADDRESS AT THE RAMESWARAM TEMPLE ON REAL WORSHIP
+title: 128 ADDRESS AT THE RAMESWARAM TEMPLE ON REAL WORSHIP
 
 ---
-
-
-
-
   
 
 ## ADDRESS AT THE RAMESWARAM TEMPLE ON REAL WORSHIP
@@ -79,5 +75,3 @@ is learned or ignorant, he is nearer to Shiva than anybody else, whether
 he knows it or not. And if a man is selfish, even though he has visited
 all the temples, seen all the places of pilgrimage, and painted himself
 like a leopard, he is still further off from Shiva.
-
-

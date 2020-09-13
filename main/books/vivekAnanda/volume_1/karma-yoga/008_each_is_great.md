@@ -1,13 +1,9 @@
 ---
-title: 'EACH
+title: '008 EACH
 
   IS GREAT IN HIS OWN PLACE'
 
 ---
-
-
-
-
   
 
 CHAPTER II
@@ -504,5 +500,3 @@ householder, hold your life a sacrifice for the welfare of others; and
 if you choose the life of renunciation, do not even look at beauty and
 money and power. Each is great in his own place, but the duty of the one
 is not the duty of the other.
-
-

@@ -1,11 +1,7 @@
 ---
-title: PRIVILEGE
+title: 041 PRIVILEGE
 
 ---
-
-
-
-
   
 
 ## PRIVILEGE
@@ -209,5 +205,3 @@ Taking one side alone, one half only of the position, is dangerous and
 liable to lead to quarrels. We must take the whole thing as it is, stand
 on it as our basis and work it out in every part of our lives, as
 individuals and as unit members of society.
-
-

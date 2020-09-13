@@ -1,11 +1,7 @@
 ---
-title: 'CONVERSATIONS AND DIALOGUES '
+title: '689 CONVERSATIONS AND DIALOGUES '
 
 ---
-
-
-
-
   
 
 ## CONVERSATIONS AND DIALOGUES
@@ -139,5 +135,3 @@ some day. There are irrefutable arguments to prove that the Shrāddha
 ceremony appeases the departed beings. Today I don't feel well. I shall
 explain it to you another day." But the disciple did not get another
 opportunity to ask that question to Swamiji.
-
-

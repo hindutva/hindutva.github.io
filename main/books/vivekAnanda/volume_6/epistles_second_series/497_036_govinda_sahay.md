@@ -1,11 +1,7 @@
 ---
-title: XXXVI
+title: 497 XXXVI
 
 ---
-
-
-
-
   
 
   
@@ -38,5 +34,3 @@ V.
   
 PS. Don't be ruffled if now and then you get a brush from the world; it
 will be over in no time, and everything will be all right.
-
-

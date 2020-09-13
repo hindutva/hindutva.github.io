@@ -1,11 +1,7 @@
 ---
-title: LXIX
+title: 925 LXIX
 
 ---
-
-
-
-
   
 
   
@@ -56,5 +52,3 @@ very beginning. The *Brahmavadin* is for preaching Vedanta and not
 Theosophy. I almost lose my patience when I see these underhand
 dealings. This is the world — those whom you love best and help most try
 to cheat you. — V.
-
-

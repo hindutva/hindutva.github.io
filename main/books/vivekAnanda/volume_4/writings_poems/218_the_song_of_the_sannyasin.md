@@ -1,11 +1,7 @@
 ---
-title: THE SONG OF THE SANNYÂSIN
+title: 218 THE SONG OF THE SANNYÂSIN
 
 ---
-
-
-
-
   
 
 ## THE SONG OF THE SANNYÂSIN
@@ -113,5 +109,3 @@ Nor I, nor thou, nor God, nor man. The "I"
 Has All become, the All is "I" and Bliss.  
 Know thou art That, Sannyāsin bold! Say —  
                                            "Om Tat Sat, Om!"
-
-

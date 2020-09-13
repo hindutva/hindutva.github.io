@@ -1,11 +1,7 @@
 ---
-title: THE DIVINITY OF MAN
+title: 167 THE DIVINITY OF MAN
 
 ---
-
-
-
-
   
 
 ## THE DIVINITY OF MAN
@@ -210,5 +206,3 @@ for his own little self. He thanked some anonymous person who had sent
 him a picture of the heart of Jesus. This he thought a manifestation of
 bigotry. Bigots belong to no religion. They are a singular phenomena
 \[sic\].
-
-

@@ -1,11 +1,7 @@
 ---
-title: THE REAL AND THE APPARENT MAN
+title: 070 THE REAL AND THE APPARENT MAN
 
 ---
-
-
-
-
   
 
 CHAPTER XV
@@ -770,5 +766,3 @@ will then permeate the atmosphere of the world, and the very air that we
 breathe will say with every one of its pulsations, "Thou art That". And
 the whole universe with its myriads of suns and moons, through
 everything that speaks, with one voice will say, "Thou art That".
-
-

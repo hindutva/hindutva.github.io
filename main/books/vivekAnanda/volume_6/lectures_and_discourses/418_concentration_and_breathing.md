@@ -1,11 +1,7 @@
 ---
-title: CONCENTRATION AND BREATHING
+title: 418 CONCENTRATION AND BREATHING
 
 ---
-
-
-
-
   
 
 ## CONCENTRATION AND BREATHING
@@ -126,5 +122,3 @@ breathing, by governing the gross body first and then the fine body.
 The first breathing exercise is perfectly safe and very healthful. It
 will give you good health, and better your condition generally at least.
 The other practices should be taken up slowly and carefully.
-
-

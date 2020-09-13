@@ -1,13 +1,9 @@
 ---
-title: 'RECORDED BY MISS S. E. WALDO
+title: '669 RECORDED BY MISS S. E. WALDO
 
   (A DISCIPLE)'
 
 ---
-
-
-
-
   
 
 ## RECORDED BY MISS S. E. WALDO (A DISCIPLE)
@@ -77,5 +73,3 @@ attachment for it. Let name and fame and money go; they are a terrible
 bondage. Feel the wonderful atmosphere of freedom. You are free, free,
 free! Oh, blessed am I! Freedom am I! I am the Infinite! In my soul I
 can find no beginning and no end. All is my Self. Say this unceasingly.
-
-

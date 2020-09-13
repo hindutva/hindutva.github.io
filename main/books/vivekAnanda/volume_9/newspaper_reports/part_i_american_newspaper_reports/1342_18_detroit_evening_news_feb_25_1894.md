@@ -1,9 +1,7 @@
 ---
-title: CULTURE AT HOME
+title: 1342 CULTURE AT HOME
 
 ---
-
-
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
 9](../../volume_9_contents.htm) / [Newspaper
@@ -45,5 +43,3 @@ smiled at him ironically and said:
 "I thought I could disturb your philosophical Eastern calm."
 
 [→](19_detroit_tribune_mar_11_1894.htm)
-
-

@@ -1,11 +1,7 @@
 ---
-title: XL
+title: 781 XL
 
 ---
-
-
-
-
   
 
   
@@ -100,5 +96,3 @@ these three, nothing can hold you back.
 With love and blessings,
 
 VIVEKANANDA.
-
-

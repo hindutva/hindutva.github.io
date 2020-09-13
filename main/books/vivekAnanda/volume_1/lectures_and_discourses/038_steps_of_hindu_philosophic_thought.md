@@ -1,11 +1,7 @@
 ---
-title: STEPS OF HINDU PHILOSOPHIC THOUGHT
+title: 038 STEPS OF HINDU PHILOSOPHIC THOUGHT
 
 ---
-
-
-
-
   
 
 ## STEPS OF HINDU PHILOSOPHIC THOUGHT
@@ -367,5 +363,3 @@ dream that there is a universe vanish. That very thing which we now see
 as the universe will appear to us as God (Absolute), and that very God
 who has so long been external will appear to be internal, as our own
 Self.
-
-

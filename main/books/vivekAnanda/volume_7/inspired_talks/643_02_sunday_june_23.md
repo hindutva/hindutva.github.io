@@ -1,13 +1,9 @@
 ---
-title: 'RECORDED BY MISS S. E. WALDO
+title: '643 RECORDED BY MISS S. E. WALDO
 
   (A DISCIPLE)'
 
 ---
-
-
-
-
   
 
 ## RECORDED BY MISS S. E. WALDO (A DISCIPLE)
@@ -65,5 +61,3 @@ Christ are the two biggest "bubbles" the world has yet produced. Moses
 was a tiny bubble, greater and greater ones came. Sometime, however, all
 will be bubbles and escape; but creation, ever new, will bring new water
 to go through the process all over again.
-
-

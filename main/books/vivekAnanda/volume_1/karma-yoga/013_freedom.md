@@ -1,11 +1,7 @@
 ---
-title: FREEDOM
+title: 013 FREEDOM
 
 ---
-
-
-
-
   
 
 CHAPTER VII
@@ -403,5 +399,3 @@ in all; He is all and in all. We can only worship Him. Give up all
 fruits of work; do good for its own sake; then alone will come perfect
 non-attachment. The bonds of the heart will thus break, and we shall
 reap perfect freedom. This freedom is indeed the goal of Karma-Yoga.
-
-

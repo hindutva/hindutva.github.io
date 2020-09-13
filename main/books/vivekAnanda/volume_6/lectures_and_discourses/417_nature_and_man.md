@@ -1,11 +1,7 @@
 ---
-title: NATURE AND MAN
+title: 417 NATURE AND MAN
 
 ---
-
-
-
-
   
 
 ## NATURE AND MAN
@@ -118,5 +114,3 @@ no discord. To be in harmony with nature means stagnation, death. How
 did man build this house? By being in harmony with nature? No. By
 fighting against nature. It is the constant struggle against nature that
 constitutes human progress, not conformity with it.
-
-

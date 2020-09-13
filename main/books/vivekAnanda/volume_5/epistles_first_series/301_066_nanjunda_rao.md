@@ -1,11 +1,7 @@
 ---
-title: LXVI
+title: 301 LXVI
 
 ---
-
-
-
-
   
 
   
@@ -60,5 +56,3 @@ like a worldly worm. Advance!
 Yours with all love and blessings,
 
 VIVEKANANDA.
-
-

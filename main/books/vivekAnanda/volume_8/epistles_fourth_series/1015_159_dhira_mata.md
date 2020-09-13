@@ -1,11 +1,7 @@
 ---
-title: CLIX
+title: 1015 CLIX
 
 ---
-
-
-
-
   
 
   
@@ -95,5 +91,3 @@ immediately; the trust and things have time enough for them.
 
 Ever your son,  
 VIVEKANANDA.
-
-

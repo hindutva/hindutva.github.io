@@ -1,11 +1,7 @@
 ---
-title: THE HYMN OF SAMADHI
+title: 229 THE HYMN OF SAMADHI
 
 ---
-
-
-
-
   
 
 ## THE HYMN OF SAMADHI
@@ -27,5 +23,3 @@ The only current, the "I am", "I am".
 Lo! 'Tis stopped, ev'n that current flows no more,  
 Void merged into void — beyond speech and mind!  
 Whose heart understands, he verily does.
-
-

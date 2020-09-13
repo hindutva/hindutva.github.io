@@ -1,11 +1,7 @@
 ---
-title: LX
+title: 295 LX
 
 ---
-
-
-
-
   
 
   
@@ -32,5 +28,3 @@ burst on the public again in good time. . . .
 Yours with love,
 
 VIVEKANANDA.
-
-

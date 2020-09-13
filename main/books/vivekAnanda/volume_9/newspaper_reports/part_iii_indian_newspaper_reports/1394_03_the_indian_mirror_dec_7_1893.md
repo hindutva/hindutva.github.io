@@ -1,9 +1,7 @@
 ---
-title: PARLIAMENT OF RELIGIONS IN CHICAGO
+title: 1394 PARLIAMENT OF RELIGIONS IN CHICAGO
 
 ---
-
-
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
 9](../../volume_9_contents.htm) / [Newspaper
@@ -59,5 +57,3 @@ Hinduism"](../../../volume_1/addresses_at_the_parliament/v1_c1_paper_on_hinduism
 *Complete Works*, I: 6-20\]. . . .
 
 [→](04_the_indian_mirror_jun_14_1894.htm)
-
-

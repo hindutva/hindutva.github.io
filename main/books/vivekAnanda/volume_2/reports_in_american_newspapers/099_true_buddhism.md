@@ -1,11 +1,7 @@
 ---
-title: TRUE BUDDHISM
+title: 099 TRUE BUDDHISM
 
 ---
-
-
-
-
   
 
 ## TRUE BUDDHISM
@@ -100,5 +96,3 @@ the cry of suffering mankind, and how, lastly, after his teachings had
 been universally accepted in India, he accepted the invitation of a
 despised Pariah, who dined him on swine's flesh, from the effects of
 which he died.
-
-

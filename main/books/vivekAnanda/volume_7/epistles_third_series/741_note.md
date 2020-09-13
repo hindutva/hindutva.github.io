@@ -1,11 +1,7 @@
 ---
-title: volume 7/epistles third seriesnote
+title: 741 volume 7/epistles third seriesnote
 
 ---
-
-
-
-
   
 
 NOTE
@@ -16,5 +12,3 @@ Vividishananda or Sachchidananda. But for the convenience of the
 readers, these volumes use the more familiar name Vivekananda.
 
 PUBLISHER
-
-

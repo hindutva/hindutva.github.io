@@ -1,11 +1,7 @@
 ---
-title: XVIII
+title: 759 XVIII
 
 ---
-
-
-
-
   
 
   
@@ -69,5 +65,3 @@ thing in the world — hypocrisy.
 Your affectionate brother,
 
 VIVEKANANDA.
-
-

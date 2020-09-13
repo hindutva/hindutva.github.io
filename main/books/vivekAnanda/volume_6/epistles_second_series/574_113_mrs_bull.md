@@ -1,11 +1,7 @@
 ---
-title: CXIII
+title: 574 CXIII
 
 ---
-
-
-
-
   
 
   
@@ -35,5 +31,3 @@ sold out, and there is a standing order for several hundreds more.
 Yours etc.,
 
 VIVEKANANDA.
-
-

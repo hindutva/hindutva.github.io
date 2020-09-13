@@ -1,11 +1,7 @@
 ---
-title: INDIAN RELIGIOUS THOUGHT
+title: 186 INDIAN RELIGIOUS THOUGHT
 
 ---
-
-
-
-
   
 
 ## INDIAN RELIGIOUS THOUGHT
@@ -126,5 +122,3 @@ each central flame is the same, and the apparent inequality is only in
 the imperfection of the temporal instrument of its expression. As we
 rise higher and higher in the scale of being, the medium becomes more
 and more translucent.
-
-

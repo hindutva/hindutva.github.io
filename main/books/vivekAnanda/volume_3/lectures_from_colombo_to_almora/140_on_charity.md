@@ -1,11 +1,7 @@
 ---
-title: ON CHARITY
+title: 140 ON CHARITY
 
 ---
-
-
-
-
   
 
 ## ON CHARITY
@@ -34,5 +30,3 @@ forced them to learn some little of their scriptures before they were
 able to obtain food; and the discriminate charity of Western nations
 which necessitated a costly system of poor-law relief, and in the end
 succeeded only in changing mendicants into criminals.
-
-

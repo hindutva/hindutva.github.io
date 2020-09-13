@@ -1,13 +1,9 @@
 ---
-title: 'RECORDED BY MISS S. E. WALDO
+title: '657 RECORDED BY MISS S. E. WALDO
 
   (A DISCIPLE)'
 
 ---
-
-
-
-
   
 
 ## RECORDED BY MISS S. E. WALDO (A DISCIPLE)
@@ -56,5 +52,3 @@ and our burning is what we call "life". When the supply of oxygen gives
 out, then the lamp must go out. All we can do is to keep the lamp clean.
 Life is a product, a compound, and as such must resolve itself into its
 elements.
-
-

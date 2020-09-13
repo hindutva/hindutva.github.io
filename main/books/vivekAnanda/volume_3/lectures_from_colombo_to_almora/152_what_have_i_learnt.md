@@ -1,11 +1,7 @@
 ---
-title: WHAT HAVE I LEARNT?
+title: 152 WHAT HAVE I LEARNT?
 
 ---
-
-
-
-
   
 
 ## WHAT HAVE I LEARNT?
@@ -154,5 +150,3 @@ renounce the world, but to give up heaven too; ay, not only to give up
 evil, but to give up good too; and thus to go beyond all, beyond this
 phenomenal existence, and ultimately realise the Sat-Chit-Ânanda Brahman
 — the Absolute Existence-Knowledge-Bliss, which is Brahman.
-
-

@@ -1,11 +1,7 @@
 ---
-title: IN MANY TONGUES
+title: 1418 IN MANY TONGUES
 
 ---
-
-
-
-
   
 
 ## IN MANY TONGUES
@@ -69,5 +65,3 @@ charity, humanity and benevolence. He said he could not impress too
 strongly on every one that each was his brother’s keeper. That was the
 whole theory of humanity. If Christ had cried with Cain: “Am I my
 brother’s keeper?” we would still be walking in darkness.
-
-

@@ -1,11 +1,7 @@
 ---
-title: CLIX
+title: 620 CLIX
 
 ---
-
-
-
-
   
 
   
@@ -23,5 +19,3 @@ up. . . .
 
 Yours etc.  
 VIVEKANANDA.
-
-

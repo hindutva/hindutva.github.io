@@ -1,11 +1,7 @@
 ---
-title: 'LIGHT '
+title: '822 LIGHT '
 
 ---
-
-
-
-
   
 
 ## LIGHT
@@ -18,5 +14,3 @@ I look behind and after
 And find that all is right,  
 In my deepest sorrows  
 There is a soul of light.
-
-

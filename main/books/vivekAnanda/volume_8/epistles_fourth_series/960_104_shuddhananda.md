@@ -1,11 +1,7 @@
 ---
-title: CIV
+title: 960 CIV
 
 ---
-
-
-
-
   
 
   
@@ -60,5 +56,3 @@ With love to all and blessings,
 Yours,
 
 VIVEKANANDA.
-
-

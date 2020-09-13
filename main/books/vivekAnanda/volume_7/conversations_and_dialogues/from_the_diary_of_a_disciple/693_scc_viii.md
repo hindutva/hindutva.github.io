@@ -1,11 +1,7 @@
 ---
-title: CONVERSATIONS AND DIALOGUES
+title: 693 CONVERSATIONS AND DIALOGUES
 
 ---
-
-
-
-
   
 
 ## CONVERSATIONS AND DIALOGUES
@@ -217,5 +213,3 @@ Swami Yogananda, and Sister Nivedita are now no more on earth. Only the
 sacred memory of their lives remains — and the disciple considers
 himself blessed to be able to record, in ever so meagre a way, these
 reminiscences.
-
-

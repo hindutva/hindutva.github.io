@@ -1,11 +1,7 @@
 ---
-title: XXIX
+title: 885 XXIX
 
 ---
-
-
-
-
   
 
   
@@ -40,5 +36,3 @@ With my best love, gratitude to you and all your brothers,
 I remain, yours faithfully,
 
 VIVEKANANDA.
-
-

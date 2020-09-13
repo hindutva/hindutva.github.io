@@ -1,11 +1,7 @@
 ---
-title: XIV
+title: 755 XIV
 
 ---
-
-
-
-
   
 
 
@@ -49,5 +45,3 @@ world. May you live and pass away like flowers as you are born — is the
 constant prayer of your brother.
 
 VIVEKANANDA.
-
-

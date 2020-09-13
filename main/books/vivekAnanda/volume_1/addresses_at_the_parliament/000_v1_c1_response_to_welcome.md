@@ -1,11 +1,7 @@
 ---
-title: RESPONSE TO WELCOME
+title: 000 RESPONSE TO WELCOME
 
 ---
-
-
-
-
   
 
 ## RESPONSE TO WELCOME
@@ -55,5 +51,3 @@ fervently hope that the bell that tolled this morning in honour of this
 convention may be the death-knell of all fanaticism, of all persecutions
 with the sword or with the pen, and of all uncharitable feelings between
 persons wending their way to the same goal.
-
-

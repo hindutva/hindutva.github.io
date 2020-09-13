@@ -1,11 +1,7 @@
 ---
-title: CONVERSATIONS AND DIALOGUES
+title: 716 CONVERSATIONS AND DIALOGUES
 
 ---
-
-
-
-
   
 
 ## CONVERSATIONS AND DIALOGUES
@@ -227,5 +223,3 @@ of love have given me this nice bed, and I have something to eat also.
 But, also, I have not been destined to enjoy physically — and lying on
 the mattress only aggravates my illness. I feel suffocated, as it were.
 I have to come down and lie on the floor for relief!
-
-

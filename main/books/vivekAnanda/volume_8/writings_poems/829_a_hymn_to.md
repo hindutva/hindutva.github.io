@@ -1,11 +1,7 @@
 ---
-title: A HYMN TO SHRI RAMAKRISHNA
+title: 829 A HYMN TO SHRI RAMAKRISHNA
 
 ---
-
-
-
-
   
 
 ## A HYMN TO SHRI RAMAKRISHNA
@@ -54,5 +50,3 @@ art my only refuge.
 auspicious, converts sinfulness to purity. Because, O Thou the only goal
 of all beings, shelter have I none, therefore Thou art, O friend of the
 lowly, my only refuge.
-
-

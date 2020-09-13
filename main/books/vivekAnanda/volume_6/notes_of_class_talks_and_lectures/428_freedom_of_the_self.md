@@ -1,11 +1,7 @@
 ---
-title: FREEDOM OF THE SELF
+title: 428 FREEDOM OF THE SELF
 
 ---
-
-
-
-
   
 
 ## FREEDOM OF THE SELF
@@ -26,5 +22,3 @@ The will can never be free, because it is the slave of cause and effect.
 But the "I" behind the will is free; and this is the Self. "I am free" —
 that is the basis on which to build and live. And freedom means
 immortality.
-
-

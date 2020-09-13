@@ -1,9 +1,7 @@
 ---
-title: SAYINGS AND UTTERANCES
+title: 1323 SAYINGS AND UTTERANCES
 
 ---
-
-
 [Home](../../index.htm) / [Complete-Works](../complete_works.htm) /
 [Volume 9](volume_9_contents.htm) /
 
@@ -995,5 +993,3 @@ another in his hand\] — for I *have* touched the feet of God!" (*CWSN*
 1: 262)
 
 [→](newspaper_reports/part_i_american_newspaper_reports/american_newspaper_contents.htm)
-
-

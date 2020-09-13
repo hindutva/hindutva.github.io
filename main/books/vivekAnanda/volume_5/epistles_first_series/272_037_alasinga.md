@@ -1,11 +1,7 @@
 ---
-title: XXXVII
+title: 272 XXXVII
 
 ---
-
-
-
-
   
 
   
@@ -43,5 +39,3 @@ Be the servant of all.
 Ever yours with blessings,
 
 VIVEKANANDA.
-
-

@@ -1,11 +1,7 @@
 ---
-title: X
+title: 639 X
 
 ---
-
-
-
-
   
 
 ## X
@@ -320,5 +316,3 @@ as well as for the good of the world". So what are you sitting idle for?
 Arise, awake; wake up yourselves, and awaken others. Achieve the
 consummation of human life before you pass off — "Arise, awake, and stop
 not till the goal is reached."
-
-

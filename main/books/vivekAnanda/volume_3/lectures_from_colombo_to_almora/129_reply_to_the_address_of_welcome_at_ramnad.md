@@ -1,11 +1,7 @@
 ---
-title: REPLY TO THE ADDRESS OF WELCOME AT RAMNAD
+title: 129 REPLY TO THE ADDRESS OF WELCOME AT RAMNAD
 
 ---
-
-
-
-
   
 
 ## REPLY TO THE ADDRESS OF WELCOME AT RAMNAD
@@ -351,5 +347,3 @@ practice. May that which we have listened to and studied become food to
 us, may it become strength in us, may it become energy in us to help
 each other; may we, the teacher and the taught, not be jealous of each
 other! Peace, peace, peace, in the name of Hari!
-
-

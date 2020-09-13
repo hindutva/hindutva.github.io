@@ -1,11 +1,7 @@
 ---
-title: SOUL AND GOD
+title: 437 SOUL AND GOD
 
 ---
-
-
-
-
   
 
 ## SOUL AND GOD
@@ -32,5 +28,3 @@ The idea is very crude.
 
 The idea of the continuity of life is foolish. We can never get rid of
 death until we get rid of life.
-
-

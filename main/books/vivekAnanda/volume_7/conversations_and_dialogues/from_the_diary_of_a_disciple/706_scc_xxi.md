@@ -1,11 +1,7 @@
 ---
-title: 'CONVERSATIONS AND DIALOGUES '
+title: '706 CONVERSATIONS AND DIALOGUES '
 
 ---
-
-
-
-
   
 
 ## CONVERSATIONS AND DIALOGUES
@@ -249,5 +245,3 @@ Truth.
 
 Swamiji: So it will be. If you have earnestness of desire, it will
 certainly be.
-
-

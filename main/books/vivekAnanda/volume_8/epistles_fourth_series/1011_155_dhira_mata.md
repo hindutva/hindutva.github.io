@@ -1,11 +1,7 @@
 ---
-title: CLV
+title: 1011 CLV
 
 ---
-
-
-
-
   
 
   
@@ -44,5 +40,3 @@ Glad it is ended.
 
 Ever your loving son,  
 VIVEKANANDA.
-
-

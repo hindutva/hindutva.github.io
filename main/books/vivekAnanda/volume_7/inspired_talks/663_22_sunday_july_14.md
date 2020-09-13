@@ -1,13 +1,9 @@
 ---
-title: 'RECORDED BY MISS S. E. WALDO
+title: '663 RECORDED BY MISS S. E. WALDO
 
   (A DISCIPLE)'
 
 ---
-
-
-
-
   
 
 ## RECORDED BY MISS S. E. WALDO (A DISCIPLE)
@@ -93,5 +89,3 @@ an external and fatalistic doctrine, it is horrible.
 2.  [^](#txt2)Find out that the relationship between yourself and the
     machine is as between a worker and his instrument. Never identify
     yourself with it.
-
-

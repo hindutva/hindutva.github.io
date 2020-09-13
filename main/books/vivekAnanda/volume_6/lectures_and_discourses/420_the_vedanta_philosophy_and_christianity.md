@@ -1,11 +1,7 @@
 ---
-title: THE VEDANTA PHILOSOPHY AND CHRISTIANITY
+title: 420 THE VEDANTA PHILOSOPHY AND CHRISTIANITY
 
 ---
-
-
-
-
   
 
 ## THE VEDANTA PHILOSOPHY AND CHRISTIANITY
@@ -94,5 +90,3 @@ not know any better; now I do. Now they do not know any better; after a
 while they will. Every one acts according to his own nature. We are all
 in process of growth. From this standpoint one man is not better than
 another.
-
-

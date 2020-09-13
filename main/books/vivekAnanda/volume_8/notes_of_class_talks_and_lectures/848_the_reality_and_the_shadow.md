@@ -1,11 +1,7 @@
 ---
-title: THE REALITY AND THE SHADOW
+title: 848 THE REALITY AND THE SHADOW
 
 ---
-
-
-
-
   
 
 ## THE REALITY AND THE SHADOW
@@ -73,5 +69,3 @@ Itself."
 
 After the discourse an opportunity was afforded for asking questions of
 the speaker, who devoted half an hour to answering them.
-
-

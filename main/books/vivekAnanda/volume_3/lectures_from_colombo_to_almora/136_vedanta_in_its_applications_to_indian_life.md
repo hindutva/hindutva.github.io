@@ -1,11 +1,7 @@
 ---
-title: 'VEDANTA IN ITS APPLICATION TO INDIAN LIFE '
+title: '136 VEDANTA IN ITS APPLICATION TO INDIAN LIFE '
 
 ---
-
-
-
-
   
 
 ## VEDANTA IN ITS APPLICATION TO INDIAN LIFE
@@ -593,5 +589,3 @@ at the same time may you never be without work."
 
 May He who taught such grand ideas to our forefathers ages ago help us
 to get strength to carry into practice His commands!
-
-

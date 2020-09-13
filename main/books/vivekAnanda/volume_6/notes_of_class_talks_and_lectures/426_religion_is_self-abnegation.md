@@ -1,11 +1,7 @@
 ---
-title: RELIGION IS SELF-ABNEGATION
+title: 426 RELIGION IS SELF-ABNEGATION
 
 ---
-
-
-
-
   
 
 ## RELIGION IS SELF-ABNEGATION
@@ -28,5 +24,3 @@ because Jesus' teaching, "Resist not evil", has never been tried.
 Selflessness alone will solve the problem. Religion comes with intense
 self-sacrifice. Desire nothing for yourself. Do all for others. This is
 to live and move and have your being in God.
-
-

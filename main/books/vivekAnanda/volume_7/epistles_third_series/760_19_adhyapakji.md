@@ -1,11 +1,7 @@
 ---
-title: XIX
+title: 760 XIX
 
 ---
-
-
-
-
   
 
   
@@ -28,5 +24,3 @@ Women's Club of Mrs. Howe.
 
 Yours ever truly,  
 VIVEKANANDA.
-
-

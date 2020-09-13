@@ -1,11 +1,7 @@
 ---
-title: BUDDHISM, THE FULFILMENT OF HINDUISM
+title: 005 BUDDHISM, THE FULFILMENT OF HINDUISM
 
 ---
-
-
-
-
   
 
 ## BUDDHISM, THE FULFILMENT OF HINDUISM
@@ -89,5 +85,3 @@ is why India has been the slave of conquerors for the last thousand
 years. Let us then join the wonderful intellect of the Brahmins with the
 heart, the noble soul, the wonderful humanising power of the Great
 Master.
-
-

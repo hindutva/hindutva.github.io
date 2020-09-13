@@ -1,11 +1,7 @@
 ---
-title: THE HINDU RELIGION
+title: 031 THE HINDU RELIGION
 
 ---
-
-
-
-
   
 
 ## THE HINDU RELIGION
@@ -116,5 +112,3 @@ progress.
 (Summary of a lecture delivered before the Ethical Society, Brooklyn, at
 the Pouch Gallery in Clinton Avenue, on the 30th December, 1894.
 Reproduced from the *Brooklyn Standard Union.*)
-
-

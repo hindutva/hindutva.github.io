@@ -1,9 +1,7 @@
 ---
-title: XC
+title: 1143 XC
 
 ---
-
-
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
@@ -45,5 +43,3 @@ V.
 [→](091_christina.htm)  
 [Addressee→](091_christina.htm)  
 [Chronology→](../../volume_5/epistles_first_series/061_dr_nanjunda_rao.htm)
-
-

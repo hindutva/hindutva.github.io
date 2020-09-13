@@ -1,9 +1,7 @@
 ---
-title: THE HINDOO OPTIMISTIC
+title: 1362 THE HINDOO OPTIMISTIC
 
 ---
-
-
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
 9](../../volume_9_contents.htm) / [Newspaper
@@ -38,5 +36,3 @@ When the lesson is learned from them they should be forgotten.
 better and be happy." . . .
 
 [→](38_baltimore_news_nov_3_1894.htm)
-
-

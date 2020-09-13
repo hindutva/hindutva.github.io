@@ -1,13 +1,9 @@
 ---
-title: 'RECORDED BY MISS S. E. WALDO
+title: '674 RECORDED BY MISS S. E. WALDO
 
   (A DISCIPLE)'
 
 ---
-
-
-
-
   
 
 ## RECORDED BY MISS S. E. WALDO (A DISCIPLE)
@@ -24,5 +20,3 @@ Perpetuating old myths in the form of allegories and giving them undue
 importance fosters superstition and is really weakness. Truth must have
 no compromise. Teach truth and make no apology for any superstition;
 neither drag truth to the level of the listener.
-
-

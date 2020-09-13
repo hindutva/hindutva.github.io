@@ -1,13 +1,9 @@
 ---
-title: 'RECORDED BY MISS S. E. WALDO
+title: '672 RECORDED BY MISS S. E. WALDO
 
   (A DISCIPLE)'
 
 ---
-
-
-
-
   
 
 ## RECORDED BY MISS S. E. WALDO (A DISCIPLE)
@@ -86,5 +82,3 @@ Separating ourselves from the Absolute and attributing certain qualities
 to It give us Ishvara. It is the Reality of the universe as seen through
 our mind. Personal devil is the misery of the world seen through the
 minds of the superstitious.
-
-

@@ -1,11 +1,7 @@
 ---
-title: SECTS AND DOCTRINES IN INDIA
+title: 093 SECTS AND DOCTRINES IN INDIA
 
 ---
-
-
-
-
   
 
 ## SECTS AND DOCTRINES IN INDIA
@@ -35,5 +31,3 @@ The first ceremony to be performed on joining the order is to be burnt
 in effigy, which supposed to destroy once for all the old body, name and
 caste. The man then receives a new name, and is allowed to go forth and
 preach or travel, but must take no money for what he does.
-
-

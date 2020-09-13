@@ -1,11 +1,7 @@
 ---
-title: DISCIPLESHIP
+title: 813 DISCIPLESHIP
 
 ---
-
-
-
-
   
 
 ## DISCIPLESHIP
@@ -490,5 +486,3 @@ knows that the Guru was within the body, within himself. He opens out.
 He realises. He crosses the ocean of life, goes beyond. He crosses this
 terrible ocean: and in mercy, without a thought of gain or praise, he in
 his turn helps others to cross.
-
-

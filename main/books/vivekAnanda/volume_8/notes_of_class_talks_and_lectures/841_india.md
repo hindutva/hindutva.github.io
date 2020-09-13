@@ -1,11 +1,7 @@
 ---
-title: INDIA
+title: 841 INDIA
 
 ---
-
-
-
-
   
 
 ## INDIA
@@ -143,5 +139,3 @@ of the beauties of nature. His excessive spirituality is a quality which
 makes itself felt with his auditors, for it manifests itself in the love
 for animate and inanimate things and in the keen insight into the
 mysterious workings of the divine law of harmony and kindly intentions.
-
-

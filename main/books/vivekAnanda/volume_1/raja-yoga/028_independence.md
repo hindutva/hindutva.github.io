@@ -1,11 +1,7 @@
 ---
-title: INDEPENDENCE
+title: 028 INDEPENDENCE
 
 ---
-
-
-
-
   
 
 PATANJALI'S YOGA APHORISMS
@@ -529,5 +525,3 @@ flowing into the ocean of perfection, of self-realisation.
 
 Glory unto those who have realised their own nature. May their blessings
 be on us all!
-
-

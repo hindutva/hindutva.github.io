@@ -1,9 +1,7 @@
 ---
-title: CHAPTER XI
+title: 1320 CHAPTER XI
 
 ---
-
-
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Excerpts from Sister
 Nivedita's Book](excerpts_from_sister_niveditas_book_contents.htm) /
@@ -103,5 +101,3 @@ to confer it on the Swami. And this was possible because the spot was
 one of the minor camping grounds used by Europeans.
 
 [→](chapter_xii.htm)
-
-

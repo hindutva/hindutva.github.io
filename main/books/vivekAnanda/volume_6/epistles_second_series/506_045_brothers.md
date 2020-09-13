@@ -1,11 +1,7 @@
 ---
-title: XLV
+title: 506 XLV
 
 ---
-
-
-
-
   
 
   
@@ -163,5 +159,3 @@ be off now, while there is time, or they will surely come to grief. We
 want an organisation. Off with laziness. Spread! Spread! Run like fire
 to all places. Do not depend upon me. Whether I live or die, go on
 spreading, yourselves.
-
-

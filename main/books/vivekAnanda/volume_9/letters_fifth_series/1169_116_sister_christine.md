@@ -1,9 +1,7 @@
 ---
-title: CXVI
+title: 1169 CXVI
 
 ---
-
-
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
@@ -40,5 +38,3 @@ VIVEKANANDA.
 [→](117_miss_noble.htm)  
 [Addressee→](118_christina.htm)  
 [Chronology→](117_miss_noble.htm)
-
-

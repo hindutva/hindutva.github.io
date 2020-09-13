@@ -1,11 +1,7 @@
 ---
-title: THE MAHABHARATA
+title: 178 THE MAHABHARATA
 
 ---
-
-
-
-
   
 
 ## THE MAHABHARATA
@@ -723,5 +719,3 @@ thousands of years and form the basis of their thoughts and of their
 moral and ethical ideas. In fact, the Ramayana and the Mahabharata are
 the two encyclopaedias of the ancient Aryan life and wisdom, portraying
 an ideal civilisation which humanity has yet to aspire after.
-
-

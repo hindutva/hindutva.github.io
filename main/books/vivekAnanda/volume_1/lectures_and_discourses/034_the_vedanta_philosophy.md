@@ -1,11 +1,7 @@
 ---
-title: THE VEDANTA PHILOSOPHY
+title: 034 THE VEDANTA PHILOSOPHY
 
 ---
-
-
-
-
   
 
 ## THE VEDANTA PHILOSOPHY
@@ -295,5 +291,3 @@ V.](../../volume_5/questions_and_answers/discussion_at_the_graduate_philosophica
     the Sankhya, this universe does not require any explanation from
     outside. The Vedanta believes that there is the one Soul, which
     appears as many; and we build on the Sankhya's analysis.
-
-

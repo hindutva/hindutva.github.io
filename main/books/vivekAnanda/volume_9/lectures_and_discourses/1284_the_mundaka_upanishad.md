@@ -1,9 +1,7 @@
 ---
-title: THE MUNDAKA UPANISHAD
+title: 1284 THE MUNDAKA UPANISHAD
 
 ---
-
-
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Lectures and
 Discourses](lectures_and_discourses_contents.htm) /

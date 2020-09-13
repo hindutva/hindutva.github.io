@@ -1,11 +1,7 @@
 ---
-title: BREATHING
+title: 049 BREATHING
 
 ---
-
-
-
-
   
 
 ## BREATHING
@@ -348,5 +344,3 @@ worse. He laughs at it.
 \[According to SWAMI VIVEKANANDA HIS SECOND VISIT TO THE WEST (P. 461),
 this address was delivered on 29 March 1900 under the title "The Science
 of Breathing". — Ed.\]
-
-

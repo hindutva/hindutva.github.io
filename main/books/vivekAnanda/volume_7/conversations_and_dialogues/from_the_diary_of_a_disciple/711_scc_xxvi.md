@@ -1,11 +1,7 @@
 ---
-title: CONVERSATIONS AND DIALOGUES
+title: 711 CONVERSATIONS AND DIALOGUES
 
 ---
-
-
-
-
   
 
 ## CONVERSATIONS AND DIALOGUES
@@ -140,5 +136,3 @@ work now, and let me rest a while. If you fail to do anything else,
 well, you can tell the world at large about the scriptural truths you
 have studied so long. There is no higher gift than this, for the gift of
 knowledge is the highest gift in the world."
-
-

@@ -1,11 +1,7 @@
 ---
-title: CV
+title: 961 CV
 
 ---
-
-
-
-
   
 
   
@@ -33,5 +29,3 @@ Punjab. So we shall meet in person there.
 With blessings,
 
 VIVEKANANDA.
-
-

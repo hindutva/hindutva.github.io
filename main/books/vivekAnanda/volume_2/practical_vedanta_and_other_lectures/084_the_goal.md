@@ -1,11 +1,7 @@
 ---
-title: THE GOAL
+title: 084 THE GOAL
 
 ---
-
-
-
-
   
 
 ## THE GOAL
@@ -391,5 +387,3 @@ In the midst of the manifold, he who sees that One; in the midst of this
 infinite death, he who sees that one life; in the midst of the manifold,
 he who sees that which never changes in his own soul — unto him belongs
 eternal peace.
-
-

@@ -1,9 +1,7 @@
 ---
-title: VI
+title: 402 VI
 
 ---
-
-
 [← ](ii_v_shri_surendra_nath_sen.htm)[Home](../../../index.htm) /
 [Complete-Works](../../complete_works.htm) / [Volume
 5](../volume_5_contents.htm) / [Conversations and
@@ -988,5 +986,3 @@ whole better than your kind!
 1.  [^](#txt1)Lord Curzon, who took steps to raise the standard of
     university education so high as to make it very expensive and hence
     almost inaccessible to boys of the middle classes.
-
-

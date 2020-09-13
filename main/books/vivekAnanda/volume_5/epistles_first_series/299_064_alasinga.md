@@ -1,11 +1,7 @@
 ---
-title: LXIV
+title: 299 LXIV
 
 ---
-
-
-
-
   
 
   
@@ -68,5 +64,3 @@ Work on! Hold on! Be brave! Dare anything and everything!
 Yours with blessings and love,
 
 VIVEKANANDA.
-
-

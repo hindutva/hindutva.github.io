@@ -1,11 +1,7 @@
 ---
-title: CLXVIII
+title: 1024 CLXVIII
 
 ---
-
-
-
-
   
 
   
@@ -37,5 +33,3 @@ All well here. Hope this finds you and all others well.
 
 Yours affectionately,  
 VIVEKANANDA.
-
-

@@ -1,11 +1,7 @@
 ---
-title: LXII
+title: 297 LXII
 
 ---
-
-
-
-
   
 
   
@@ -54,5 +50,3 @@ know.
 Yours with all blessings etc.,
 
 VIVEKANANDA.
-
-

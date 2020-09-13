@@ -1,11 +1,7 @@
 ---
-title: LX
+title: 521 LX
 
 ---
-
-
-
-
   
 
   
@@ -69,5 +65,3 @@ Again accept my eternal gratitude.
 Your devoted son,
 
 VIVEKANANDA.
-
-

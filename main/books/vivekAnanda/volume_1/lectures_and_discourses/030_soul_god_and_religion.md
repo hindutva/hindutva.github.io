@@ -1,11 +1,7 @@
 ---
-title: SOUL, GOD AND RELIGION
+title: 030 SOUL, GOD AND RELIGION
 
 ---
-
-
-
-
   
 
 ## SOUL, GOD AND RELIGION
@@ -377,5 +373,3 @@ Mount as a guide. We have to take what appeals to our inner spirit.
 Buddha taught five hundred years before Christ, and his words were full
 of blessings: never a curse came from his lips, nor from his life; never
 one from Zoroaster, nor from Confucius.
-
-

@@ -1,11 +1,7 @@
 ---
-title: 'THE COSMOS: THE MICROCOSM'
+title: '066 THE COSMOS: THE MICROCOSM'
 
 ---
-
-
-
-
   
 
 CHAPTER XI
@@ -430,5 +426,3 @@ deed, lays up a store for you and that as the bad thoughts and bad works
 are ready to spring upon you like tigers, so also there is the inspiring
 hope that the good thoughts and good deeds are ready with the power of a
 hundred thousand angels to defend you always and for ever.
-
-

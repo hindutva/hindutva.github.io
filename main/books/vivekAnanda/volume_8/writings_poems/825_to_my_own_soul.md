@@ -1,11 +1,7 @@
 ---
-title: TO MY OWN SOUL
+title: 825 TO MY OWN SOUL
 
 ---
-
-
-
-
   
 
 ## TO MY OWN SOUL
@@ -30,5 +26,3 @@ In thee is friendship, faith,
 For thou didst warn when evil thoughts were brewing —  
 And though, alas, thy warning thrown away,  
 Went on the same as ever — good and true.
-
-

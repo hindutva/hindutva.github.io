@@ -1,11 +1,7 @@
 ---
-title: CONGRESS OF RELIGIOUS UNITY
+title: 838 CONGRESS OF RELIGIOUS UNITY
 
 ---
-
-
-
-
   
 
 ## CONGRESS OF RELIGIOUS UNITY
@@ -28,5 +24,3 @@ brother whether we believe in the universal fatherhood of God or not,
 because every religion and every creed recognises man as divine, and you
 should do him no harm that you might not injure that which is divine in
 him."
-
-

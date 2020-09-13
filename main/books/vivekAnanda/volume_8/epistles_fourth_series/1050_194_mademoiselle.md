@@ -1,11 +1,7 @@
 ---
-title: CXCIV
+title: 1050 CXCIV
 
 ---
-
-
-
-
   
 
   
@@ -32,5 +28,3 @@ My letter is funny, isn't it? But it is my first attempt.
 
 Yours faithfully,  
 VIVEKANANDA.
-
-

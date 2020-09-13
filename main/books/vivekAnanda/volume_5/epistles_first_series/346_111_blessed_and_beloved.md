@@ -1,11 +1,7 @@
 ---
-title: CXI
+title: 346 CXI
 
 ---
-
-
-
-
   
 
   
@@ -44,5 +40,3 @@ With all love and blessings,
 Ever yours in the Lord,
 
 VIVEKANANDA.
-
-

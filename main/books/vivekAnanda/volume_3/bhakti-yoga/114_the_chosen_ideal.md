@@ -1,11 +1,7 @@
 ---
-title: THE CHOSEN IDEAL
+title: 114 THE CHOSEN IDEAL
 
 ---
-
-
-
-
   
 
 CHAPTER IX
@@ -86,5 +82,3 @@ Indian banyan, sending out branch after branch and root after root to
 all sides, till it covers the entire field of religion. Thus will the
 true devotee realise that He who was his own ideal in life is worshipped
 in all ideals by all sects, under all names, and through all forms.
-
-

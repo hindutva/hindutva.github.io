@@ -1,11 +1,7 @@
 ---
-title: 'SANNYASA: ITS IDEAL AND PRACTICE'
+title: '151 SANNYASA: ITS IDEAL AND PRACTICE'
 
 ---
-
-
-
-
   
 
 ## SANNYASA: ITS IDEAL AND PRACTICE
@@ -88,5 +84,3 @@ your Sangha. There is no place for disobedience here. Crush it out
 without mercy. No disobedient members here, you must turn them out.
 There must not be any traitors in the camp. You must be as free as the
 air, and as obedient as this plant and the dog.
-
-

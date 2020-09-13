@@ -1,11 +1,7 @@
 ---
-title: AN EVENING WITH OUR HINDU COUSINS
+title: 090 AN EVENING WITH OUR HINDU COUSINS
 
 ---
-
-
-
-
   
 
 ## AN EVENING WITH OUR HINDU COUSINS
@@ -87,5 +83,3 @@ and the Brotherhood of man being, virtually, his theme, and that the
 address made a deep impression is evinced by the report of every
 auditor, the broadest liberality of true religious sentiment and precept
 characterizing the whole trend of thought.
-
-

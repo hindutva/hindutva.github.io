@@ -1,11 +1,7 @@
 ---
-title: CLI
+title: 1007 CLI
 
 ---
-
-
-
-
   
 
   
@@ -61,5 +57,3 @@ content.
 
 Ever your son,  
 VIVEKANANDA.
-
-

@@ -1,9 +1,7 @@
 ---
-title: AN UNTITLED POEM ON SHRI RAMAKRISHNA
+title: 1304 AN UNTITLED POEM ON SHRI RAMAKRISHNA
 
 ---
-
-
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Writings: Prose and
 Poems](writings_prose_and_poems_contents.htm) /
@@ -24,5 +22,3 @@ sweet chants of the Sāma-Veda etc., with voices thundering like clouds
 that Shri Ramakrishna, I offer my eternal worship.
 
 [→](an_unfinished_poem.htm)
-
-

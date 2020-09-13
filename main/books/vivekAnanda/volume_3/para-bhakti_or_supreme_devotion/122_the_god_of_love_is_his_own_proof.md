@@ -1,11 +1,7 @@
 ---
-title: THE GOD OF LOVE IS HIS OWN PROOF
+title: 122 THE GOD OF LOVE IS HIS OWN PROOF
 
 ---
-
-
-
-
   
 
 CHAPTER VIII
@@ -73,5 +69,3 @@ the saint's saintliness as well as in the wicked man's wickedness,
 because he has Him already seated in glory in his own heart as the one
 Almighty inextinguishable Light of Love which is ever shining and
 eternally present.
-
-

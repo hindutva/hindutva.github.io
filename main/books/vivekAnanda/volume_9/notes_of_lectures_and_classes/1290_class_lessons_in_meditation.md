@@ -1,9 +1,7 @@
 ---
-title: CLASS LESSONS IN MEDITATION BY SWAMI VIVEKANANDA
+title: 1290 CLASS LESSONS IN MEDITATION BY SWAMI VIVEKANANDA
 
 ---
-
-
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Notes of Lectures and
 Classes](notes_of_lectures_and_classes_contents.htm) /
@@ -23,5 +21,3 @@ outside, but look down the spinal column inside to the base of the
 spine.
 
 [→](the_gita.htm)
-
-

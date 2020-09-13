@@ -1,9 +1,7 @@
 ---
-title: EDUCATION
+title: 1389 EDUCATION
 
 ---
-
-
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
 9](../../volume_9_contents.htm) / [Newspaper
@@ -32,5 +30,3 @@ girls were receiving their education, it was absolutely essential that
 the young students should be pure, and this purity must be taught them.
 
 [→](light_jul_4_1896.htm)
-
-

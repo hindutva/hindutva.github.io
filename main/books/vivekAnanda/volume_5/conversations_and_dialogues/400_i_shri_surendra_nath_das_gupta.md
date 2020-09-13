@@ -1,11 +1,7 @@
 ---
-title: 'I '
+title: '400 I '
 
 ---
-
-
-
-
   
 
 ## I
@@ -112,5 +108,3 @@ spend their days fighting and quarrelling with one another as they do!
 But how long can they go in that way? In the evening of life (At the end
 of one's whole course of transmigratory existence.) they must all come
 home, to the arms of the Mother."
-
-

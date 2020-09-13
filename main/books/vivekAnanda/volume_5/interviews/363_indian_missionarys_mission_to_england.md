@@ -1,11 +1,7 @@
 ---
-title: INDIAN MISSIONARY'S MISSION TO ENGLAND
+title: 363 INDIAN MISSIONARY'S MISSION TO ENGLAND
 
 ---
-
-
-
-
   
 
 ## INDIAN MISSIONARY'S MISSION TO ENGLAND
@@ -99,5 +95,3 @@ money and without price. The Indian missionary is a man of exceptionally
 fine physique; his command of English can only be described as perfect.
 
 C. S. B.
-
-

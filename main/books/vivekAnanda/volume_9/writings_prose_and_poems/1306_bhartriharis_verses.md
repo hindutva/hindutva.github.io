@@ -1,9 +1,7 @@
 ---
-title: BHARTRIHARI'S VERSES ON RENUNCIATION1
+title: 1306 BHARTRIHARI'S VERSES ON RENUNCIATION1
 
 ---
-
-
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Writings: Prose and
 Poems](writings_prose_and_poems_contents.htm) /

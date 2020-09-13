@@ -1,11 +1,7 @@
 ---
-title: ONE EXISTENCE APPEARING AS MANY
+title: 105 ONE EXISTENCE APPEARING AS MANY
 
 ---
-
-
-
-
   
 
 ## ONE EXISTENCE APPEARING AS MANY
@@ -291,5 +287,3 @@ are the body, you do not see the world at all; it vanishes for ever. The
 Jnani seeks to tear himself away from this bondage of matter by the
 force of intellectual conviction. This is the negative way — the "Neti,
 Neti" — "Not this, not this."
-
-

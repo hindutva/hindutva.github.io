@@ -1,11 +1,7 @@
 ---
-title: XVI
+title: 872 XVI
 
 ---
-
-
-
-
   
 
   
@@ -43,5 +39,3 @@ if the Lord permits. My love to you all. May you ever be happy!
 Your affectionate brother,
 
 VIVEKANANDA.
-
-

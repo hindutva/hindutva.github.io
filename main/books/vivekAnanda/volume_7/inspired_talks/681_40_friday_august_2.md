@@ -1,13 +1,9 @@
 ---
-title: 'RECORDED BY MISS S. E. WALDO
+title: '681 RECORDED BY MISS S. E. WALDO
 
   (A DISCIPLE)'
 
 ---
-
-
-
-
   
 
 ## RECORDED BY MISS S. E. WALDO (A DISCIPLE)
@@ -96,5 +92,3 @@ Stand on your own Self.
 
 The dead body resents nothing; let us make our bodies dead and cease to
 identify ourselves with them.
-
-

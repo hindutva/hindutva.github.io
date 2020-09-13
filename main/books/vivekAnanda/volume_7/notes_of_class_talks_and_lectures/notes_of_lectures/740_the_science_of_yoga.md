@@ -1,11 +1,7 @@
 ---
-title: THE SCIENCE OF YOGA
+title: 740 THE SCIENCE OF YOGA
 
 ---
-
-
-
-
   
 
 ## THE SCIENCE OF YOGA
@@ -222,5 +218,3 @@ bodies. We are all body. From this body we have to separate the soul.
 Therefore the training begins with the body itself, \[until ultimately\]
 the spirit manifests itself. . . . The central idea in all this training
 is to attain to that power of concentration, the power of meditation.
-
-

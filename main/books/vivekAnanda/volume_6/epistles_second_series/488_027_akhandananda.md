@@ -1,11 +1,7 @@
 ---
-title: XXVII
+title: 488 XXVII
 
 ---
-
-
-
-
   
 
   
@@ -67,5 +63,3 @@ With blessings and best wishes,
 Ever yours,
 
 VIVEKANANDA.
-
-

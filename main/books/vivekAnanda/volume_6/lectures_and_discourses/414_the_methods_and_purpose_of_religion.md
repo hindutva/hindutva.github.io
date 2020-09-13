@@ -1,11 +1,7 @@
 ---
-title: THE METHODS AND PURPOSE OF RELIGION
+title: 414 THE METHODS AND PURPOSE OF RELIGION
 
 ---
-
-
-
-
   
 
 ## THE METHODS AND PURPOSE OF RELIGION
@@ -450,5 +446,3 @@ Multiply your prophets if you like; it has no objection. It only
 preaches the principle, and the method it leaves to you. Take any path
 you like; follow any prophet you like; but have only that method which
 suits your own nature, so that you will be sure to progress.
-
-

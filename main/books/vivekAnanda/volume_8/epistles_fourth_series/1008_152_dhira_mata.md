@@ -1,11 +1,7 @@
 ---
-title: CLII
+title: 1008 CLII
 
 ---
-
-
-
-
   
 
   
@@ -79,5 +75,3 @@ friends.
 
 Ever your son,  
 VIVEKANANDA.
-
-

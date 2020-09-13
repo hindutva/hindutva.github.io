@@ -1,11 +1,7 @@
 ---
-title: AN ORIENTAL GOD IN NEW YORK
+title: 1432 AN ORIENTAL GOD IN NEW YORK
 
 ---
-
-
-
-
   
 
 ## AN ORIENTAL GOD IN NEW YORK
@@ -43,5 +39,3 @@ chanting rhythm of tone that is rich and musical. Crowds throng about
 him day and evening, two-thirds women, and for the moment Swami
 Vivikananda reigns. But I am sure he does not look like -- not even like
 an oriental god.
-
-

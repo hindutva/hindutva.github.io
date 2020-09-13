@@ -1,11 +1,7 @@
 ---
-title: LIII
+title: 288 LIII
 
 ---
-
-
-
-
   
 
   
@@ -34,5 +30,3 @@ yours.
 Yours with love,
 
 VIVEKANANDA.
-
-

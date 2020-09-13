@@ -1,11 +1,7 @@
 ---
-title: THE RELIGIONS OF INDIA
+title: 092 THE RELIGIONS OF INDIA
 
 ---
-
-
-
-
   
 
 ## THE RELIGIONS OF INDIA
@@ -55,5 +51,3 @@ prophet," and to be a prophet was all there was of religion.
 The speaker brought his lecture to a close by giving an account of the
 Jains, who show remarkable kindness to dumb animals, and whose moral law
 is summed up in the words: "Not to injure others is the highest good."
-
-

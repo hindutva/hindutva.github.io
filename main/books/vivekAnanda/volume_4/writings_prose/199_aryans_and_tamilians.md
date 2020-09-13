@@ -1,11 +1,7 @@
 ---
-title: ARYANS AND TAMILIANS
+title: 199 ARYANS AND TAMILIANS
 
 ---
-
-
-
-
   
 
 ## ARYANS AND TAMILIANS
@@ -232,5 +228,3 @@ we are descendants of the whole universe, sentient or insentient. Proud
 that we are born, and work, and suffer — prouder still that we die when
 the task is finished and enter forever the realm where there is no more
 delusion.
-
-

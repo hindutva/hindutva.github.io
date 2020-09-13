@@ -1,13 +1,9 @@
 ---
-title: 'MEMOIRS OF EUROPEAN TRAVEL
+title: '724 MEMOIRS OF EUROPEAN TRAVEL
 
   ADDENDA'
 
 ---
-
-
-
-
   
 
 ## MEMOIRS OF EUROPEAN TRAVEL ADDENDA
@@ -197,5 +193,3 @@ large in bulk. Then at the time of the Roman occupation of Greece, Greek
 art contented itself merely by copying the works of previous artists of
 that country; and the only novelty there was, consisted in reproducing
 exactly the face of some particular individual.
-
-

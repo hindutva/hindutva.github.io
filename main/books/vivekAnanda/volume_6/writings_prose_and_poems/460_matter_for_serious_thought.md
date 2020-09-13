@@ -1,11 +1,7 @@
 ---
-title: MATTER FOR SERIOUS THOUGHT
+title: 460 MATTER FOR SERIOUS THOUGHT
 
 ---
-
-
-
-
   
 
 ## MATTER FOR SERIOUS THOUGHT
@@ -194,5 +190,3 @@ was not to go so soon. The body itself would resent it. The inveterate
 obtuseness of the mind of a thousand years was not to pass away at a
 moment's notice. And is it not for this that the Krishnavyal class are
 held in repute? "Bravo, Habit! Thou hast thrashed them so well", etc.
-
-
