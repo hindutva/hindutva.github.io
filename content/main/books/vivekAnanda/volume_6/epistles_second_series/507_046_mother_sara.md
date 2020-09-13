@@ -1,11 +1,7 @@
 ---
-title: XLVI
+title: 507 XLVI
 
 ---
-
-
-
-
   
 
   
@@ -44,5 +40,3 @@ VIVEKANANDA.
   
 PS. Kindly write me whether the Guernseys have returned to town or are
 still in Fishkill. — V.
-
-

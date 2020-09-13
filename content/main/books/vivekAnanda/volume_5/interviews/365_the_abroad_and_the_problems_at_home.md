@@ -1,11 +1,7 @@
 ---
-title: THE ABROAD AND THE PROBLEMS AT HOME
+title: 365 THE ABROAD AND THE PROBLEMS AT HOME
 
 ---
-
-
-
-
   
 
 ## THE ABROAD AND THE PROBLEMS AT HOME
@@ -298,5 +294,3 @@ the train steamed up to the Egmore platform, and the only hurried remark
 that fell from the Swami was that he was dead against all political
 entanglements of Indian and European problems. The interview then
 terminated.
-
-

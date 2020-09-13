@@ -1,11 +1,7 @@
 ---
-title: AT THE PARLIAMENT OF RELIGIONS
+title: 156 AT THE PARLIAMENT OF RELIGIONS
 
 ---
-
-
-
-
   
 
 ## AT THE PARLIAMENT OF RELIGIONS
@@ -115,5 +111,3 @@ and one from Vyāsa:\]
 a string of pearls." "Holy, perfect and pure men are seen in all creeds,
 therefore they all lead to the same truth — for how can nectar be the
 outcome of poison?"
-
-

@@ -1,11 +1,7 @@
 ---
-title: JNANA YOGA - V
+title: 799 JNANA YOGA - V
 
 ---
-
-
-
-
   
 
 ## JNANA YOGA - V
@@ -104,5 +100,3 @@ with the soul, I am a spark of that Divine Fire which Thou art. But when
 I identify myself with the Atman, I and Thou art one.
 
 Therefore the Jnani strives to realise the Self and nothing else.
-
-

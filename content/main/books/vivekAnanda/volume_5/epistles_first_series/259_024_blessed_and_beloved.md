@@ -1,11 +1,7 @@
 ---
-title: XXIV
+title: 259 XXIV
 
 ---
-
-
-
-
   
 
   
@@ -47,5 +43,3 @@ With my love to you all,
 Yours ever with blessings,
 
 VIVEKANANDA.
-
-

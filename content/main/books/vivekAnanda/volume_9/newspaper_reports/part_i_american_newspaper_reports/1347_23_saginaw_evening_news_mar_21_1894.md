@@ -1,9 +1,7 @@
 ---
-title: KANANDA ARRIVES
+title: 1347 KANANDA ARRIVES
 
 ---
-
-
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
 9](../../volume_9_contents.htm) / [Newspaper
@@ -25,5 +23,3 @@ religion of the Hindoo and to show that they are not heathen but believe
 in a future state.
 
 [→](24_the_lynn_daily.htm)
-
-

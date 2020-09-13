@@ -1,9 +1,7 @@
 ---
-title: CLXXVI
+title: 1229 CLXXVI
 
 ---
-
-
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
@@ -28,5 +26,3 @@ SWAMI VIVEKANANDA
 [→](177_mrs_hansbrough.htm)  
 [Addressee→](179_christina.htm)  
 [Chronology→](177_mrs_hansbrough.htm)
-
-

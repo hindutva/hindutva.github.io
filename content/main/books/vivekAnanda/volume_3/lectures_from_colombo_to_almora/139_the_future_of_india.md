@@ -1,11 +1,7 @@
 ---
-title: THE FUTURE OF INDIA
+title: 139 THE FUTURE OF INDIA
 
 ---
-
-
-
-
   
 
 ## THE FUTURE OF INDIA
@@ -601,5 +597,3 @@ our whole life to it. Let this be our determination, and may He, the
 Lord, who "comes again and again for the salvation of His own people",
 to quote from our scriptures — may the great Krishna bless us and lead
 us all to the fulfilment of our aims!
-
-

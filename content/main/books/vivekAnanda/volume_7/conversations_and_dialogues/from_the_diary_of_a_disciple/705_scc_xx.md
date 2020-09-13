@@ -1,11 +1,7 @@
 ---
-title: CONVERSATIONS AND DIALOGUES
+title: 705 CONVERSATIONS AND DIALOGUES
 
 ---
-
-
-
-
   
 
 ## CONVERSATIONS AND DIALOGUES
@@ -132,5 +128,3 @@ heart's blood, then only will She be pleased. Your Raghunandan also says
 like that. The Mother's child shall be a hero, a Mahāvira. In
 unhappiness, sorrow, death, and desolation, the Mother's child shall
 always remain fearless.
-
-

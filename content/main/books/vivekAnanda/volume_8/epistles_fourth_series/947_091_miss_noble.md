@@ -1,11 +1,7 @@
 ---
-title: XCI
+title: 947 XCI
 
 ---
-
-
-
-
   
 
   
@@ -74,5 +70,3 @@ Lord is unchangeable and He is Love. May He make our heart His eternal
 habitation is the constant prayer of,
 
 VIVEKANANDA.
-
-

@@ -1,11 +1,7 @@
 ---
-title: MANNERS AND CUSTOMS IN INDIA
+title: 164 MANNERS AND CUSTOMS IN INDIA
 
 ---
-
-
-
-
   
 
 ## MANNERS AND CUSTOMS IN INDIA
@@ -135,5 +131,3 @@ stand head and shoulders above all other nations.
     been an aberration on the part of the reporter, for, as is well
     known, if a Sannyasin takes a wife he is considered by the Hindu
     society to be a fallen person and beyond the pale.
-
-

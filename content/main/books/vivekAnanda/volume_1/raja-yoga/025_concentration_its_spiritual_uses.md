@@ -1,11 +1,7 @@
 ---
-title: 'CONCENTRATION: ITS SPIRITUAL USES '
+title: '025 CONCENTRATION: ITS SPIRITUAL USES '
 
 ---
-
-
-
-
   
 
 PATANJALI'S YOGA APHORISMS
@@ -1130,5 +1126,3 @@ the Soul is manifested just as It is, in Its own glory. Then alone we
 know that the Soul is not a compound; It is the only eternal simple in
 the universe, and as such, It cannot be born, It cannot die; It is
 immortal, indestructible, the ever-living essence of intelligence.
-
-

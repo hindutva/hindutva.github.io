@@ -1,11 +1,7 @@
 ---
-title: PERSONAL TRAITS
+title: 157 PERSONAL TRAITS
 
 ---
-
-
-
-
   
 
 ## PERSONAL TRAITS
@@ -56,5 +52,3 @@ says with the dying Buddha; "I cannot help you. No man can help you.
 Help yourself."
 
 LUCY MONROE.
-
-

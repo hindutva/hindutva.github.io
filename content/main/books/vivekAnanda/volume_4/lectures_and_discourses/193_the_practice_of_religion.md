@@ -1,11 +1,7 @@
 ---
-title: THE PRACTICE OF RELIGION
+title: 193 THE PRACTICE OF RELIGION
 
 ---
-
-
-
-
   
 
 ## THE PRACTICE OF RELIGION
@@ -382,5 +378,3 @@ separates ourselves from the body, and then the soul knows itself as it
 is — the unborn, the deathless, and birthless being. No more is there
 any misery, no more births upon this earth, no more evolution. \[The
 soul knows itself as having\] ever been perfect and free.
-
-

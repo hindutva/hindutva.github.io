@@ -1,13 +1,9 @@
 ---
-title: 'RECORDED BY MISS S. E. WALDO
+title: '651 RECORDED BY MISS S. E. WALDO
 
   (A DISCIPLE)'
 
 ---
-
-
-
-
   
 
 ## RECORDED BY MISS S. E. WALDO (A DISCIPLE)
@@ -123,5 +119,3 @@ see truth in others.
 
 A great Bhakta (Hanuman) once said when asked what day of the month it
 was, "God is my eternal date, no other date I care for."
-
-

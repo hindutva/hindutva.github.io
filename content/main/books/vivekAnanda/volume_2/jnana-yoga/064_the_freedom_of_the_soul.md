@@ -1,11 +1,7 @@
 ---
-title: THE FREEDOM OF THE SOUL
+title: 064 THE FREEDOM OF THE SOUL
 
 ---
-
-
-
-
   
 
 CHAPTER X
@@ -427,5 +423,3 @@ hearts, and courses through our veins, and permeates our bodies.
 Delusion will vanish as the light becomes more and more effulgent, load
 after load of ignorance will vanish, and then will come a time when all
 else has disappeared and the Sun alone shines.
-
-

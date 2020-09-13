@@ -1,11 +1,7 @@
 ---
-title: 'THE COSMOS: THE MACROCOSM'
+title: '065 THE COSMOS: THE MACROCOSM'
 
 ---
-
-
-
-
   
 
 CHAPTER XI
@@ -280,5 +276,3 @@ man walking in the pride of youth, Thou art the old man tottering on
 crutches, Thou art in everything. Thou art everything, O Lord." This is
 the only solution of the Cosmos that satisfies the human intellect. In
 one word, we are born of Him, we live in Him, and unto Him we return.
-
-

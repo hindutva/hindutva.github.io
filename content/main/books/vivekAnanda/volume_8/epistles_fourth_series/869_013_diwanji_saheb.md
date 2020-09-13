@@ -1,11 +1,7 @@
 ---
-title: XIII
+title: 869 XIII
 
 ---
-
-
-
-
   
 
   
@@ -82,5 +78,3 @@ blessings on you and yours.
 Yours,  
 
 V.
-
-

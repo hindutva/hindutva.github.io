@@ -1,11 +1,7 @@
 ---
-title: II
+title: 1413 II
 
 ---
-
-
-
-
   
 
   
@@ -72,5 +68,3 @@ yours, I remain,
 Yours in the Lord,
 
 VIVEKANANDA
-
-

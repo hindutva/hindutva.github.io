@@ -1,11 +1,7 @@
 ---
-title: BHAKTI
+title: 145 BHAKTI
 
 ---
-
-
-
-
   
 
 ## BHAKTI
@@ -274,5 +270,3 @@ be worshipped. So long as we think of Him only as the Creator and
 Preserver, we can offer Him external worship, but when we get beyond all
 that and think Him to be Love Incarnate, seeing Him in all things and
 all things in Him, it is then that supreme Bhakti is attained.
-
-

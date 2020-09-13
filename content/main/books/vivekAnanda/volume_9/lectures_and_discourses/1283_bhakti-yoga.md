@@ -1,9 +1,7 @@
 ---
-title: BHAKTI-YOGA
+title: 1283 BHAKTI-YOGA
 
 ---
-
-
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Lectures and
 Discourses](lectures_and_discourses_contents.htm) /
@@ -471,5 +469,3 @@ But you are going to meet your heavenly lover and should not know that a
 girl was passing over your body."
 
 [→](the_mundaka_upanishad.htm)
-
-

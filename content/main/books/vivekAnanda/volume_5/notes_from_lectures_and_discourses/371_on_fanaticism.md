@@ -1,11 +1,7 @@
 ---
-title: ON FANATICISM
+title: 371 ON FANATICISM
 
 ---
-
-
-
-
   
 
 ## ON FANATICISM
@@ -92,5 +88,3 @@ heaven, and a thread of light going from each of our heads to heaven!
 How did the writer know all these things? She had been inspired, and
 wanted me to believe it too; and because I refused, she said, "You must
 be a very bad man; there is no hope for you!" This is fanaticism.
-
-

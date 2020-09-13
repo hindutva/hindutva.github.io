@@ -1,11 +1,7 @@
 ---
-title: A HYMN TO SHRI RAMAKRISHNA
+title: 830 A HYMN TO SHRI RAMAKRISHNA
 
 ---
-
-
-
-
   
 
 ## A HYMN TO SHRI RAMAKRISHNA
@@ -59,5 +55,3 @@ personality was covered by the cloth of Supreme Devotion, who was ever
 active (for the good of humanity) and whose actions were all superhuman.
 
 Hail, O Lord of Men! Victory unto You!
-
-

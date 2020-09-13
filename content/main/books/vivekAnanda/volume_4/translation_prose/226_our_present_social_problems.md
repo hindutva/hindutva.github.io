@@ -1,11 +1,7 @@
 ---
-title: OUR PRESENT SOCIAL PROBLEMS
+title: 226 OUR PRESENT SOCIAL PROBLEMS
 
 ---
-
-
-
-
   
 
   
@@ -163,5 +159,3 @@ realisation of Brahman everywhere and in everything. Then —
 — "Verily, seeing the same God equally existent every where, he does not
 injure the Self by the self, and so goes to the Supreme Goal" (Gitā,
 XIII. 28).
-
-

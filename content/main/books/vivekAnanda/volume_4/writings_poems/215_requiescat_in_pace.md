@@ -1,11 +1,7 @@
 ---
-title: REQUIESCAT IN PACE
+title: 215 REQUIESCAT IN PACE
 
 ---
-
-
-
-
   
 
 ## REQUIESCAT IN PACE
@@ -26,5 +22,3 @@ Thy bonds are broke, thy quest in bliss is found,
 And one with That which comes as Death and Life;  
 Thou helpful one! unselfish e'er on earth,  
 Ahead! still help with love this world of strife!
-
-

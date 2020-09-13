@@ -1,11 +1,7 @@
 ---
-title: 'CONVERSATIONS AND DIALOGUES '
+title: '715 CONVERSATIONS AND DIALOGUES '
 
 ---
-
-
-
-
   
 
 ## CONVERSATIONS AND DIALOGUES
@@ -104,5 +100,3 @@ learnt the lesson of self-surrender.
 
 So saying, Swamiji raised his folded hands to his head out of respect to
 him.
-
-

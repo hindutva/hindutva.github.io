@@ -1,11 +1,7 @@
 ---
-title: II
+title: 237 II
 
 ---
-
-
-
-
   
 
   
@@ -68,5 +64,3 @@ brother to man?
 Yours,
 
 VIVEKANANDA.
-
-

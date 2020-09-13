@@ -1,9 +1,7 @@
 ---
-title: ON THE BRAHMO SAMAJ
+title: 1336 ON THE BRAHMO SAMAJ
 
 ---
-
-
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
 9](../../volume_9_contents.htm) / [Newspaper
@@ -24,5 +22,3 @@ religious discussion, prepared the way for the present visitor
 he might have to say.
 
 [→](13_minneapolis_journal_dec_15_1893.htm)
-
-

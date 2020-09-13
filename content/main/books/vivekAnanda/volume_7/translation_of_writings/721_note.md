@@ -1,11 +1,7 @@
 ---
-title: volume 7/translation of writingsnote
+title: 721 volume 7/translation of writingsnote
 
 ---
-
-
-
-
   
 
 NOTE
@@ -21,5 +17,3 @@ memoirs, relates to his return journey from the West at the end of 1900.
 These were originally published in the Udbodhan.
 
 EDITOR.
-
-

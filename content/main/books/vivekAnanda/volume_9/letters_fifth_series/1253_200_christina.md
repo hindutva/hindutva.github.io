@@ -1,9 +1,7 @@
 ---
-title: CC
+title: 1253 CC
 
 ---
-
-
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
@@ -59,5 +57,3 @@ VIVEKANANDA.
 [→](201_sister_christine.htm)  
 [Addressee→](../../volume_5/epistles_first_series/109_christine.htm)  
 [Chronology→](../../volume_5/epistles_first_series/107_joe.htm)
-
-

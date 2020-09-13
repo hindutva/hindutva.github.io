@@ -1,9 +1,7 @@
 ---
-title: PHILOSOPHY OF FREEDOM
+title: 1370 PHILOSOPHY OF FREEDOM
 
 ---
-
-
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
 9](../../volume_9_contents.htm) / [Newspaper
@@ -76,5 +74,3 @@ own way; let them modify them as they will; he does not teach them as
 dogmas; truth, at length, must inevitably prevail. . . .
 
 [→](46_boston_daily_globe_mar_24_1896.htm)
-
-

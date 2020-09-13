@@ -1,11 +1,7 @@
 ---
-title: LXXIII
+title: 929 LXXIII
 
 ---
-
-
-
-
   
 
   
@@ -31,5 +27,3 @@ noon. With everlasting memory of love, gratitude and blessings,
 I am, your ever loving brother,
 
 VIVEKANANDA.
-
-

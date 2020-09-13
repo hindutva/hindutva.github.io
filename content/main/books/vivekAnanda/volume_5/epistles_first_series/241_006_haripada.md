@@ -1,11 +1,7 @@
 ---
-title: VI
+title: 241 VI
 
 ---
-
-
-
-
   
 
   
@@ -89,5 +85,3 @@ With love and best wishes,
 
 Yours,  
 VIVEKANANDA.
-
-

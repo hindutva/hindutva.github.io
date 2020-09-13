@@ -1,11 +1,7 @@
 ---
-title: XLV
+title: 786 XLV
 
 ---
-
-
-
-
   
 
   
@@ -33,5 +29,3 @@ With all love to Mr. Leggett and yourself,
 Ever yours affectionately,
 
 VIVEKANANDA.
-
-

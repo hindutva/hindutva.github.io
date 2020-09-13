@@ -1,11 +1,7 @@
 ---
-title: REPLY TO THE ADDRESS OF WELCOME AT PAMBAN
+title: 127 REPLY TO THE ADDRESS OF WELCOME AT PAMBAN
 
 ---
-
-
-
-
   
 
 ## REPLY TO THE ADDRESS OF WELCOME AT PAMBAN
@@ -138,5 +134,3 @@ Standing beside me, he with all his old enthusiasm is still expecting me
 to do more and more work. I wish there were half a dozen more such Rajas
 to take interest in our dear motherland and work for her amelioration in
 the spiritual line.
-
-

@@ -1,9 +1,7 @@
 ---
-title: CONVERSATIONS AND INTERVIEWS
+title: 1307 CONVERSATIONS AND INTERVIEWS
 
 ---
-
-
 [Home](../../index.htm) / [Complete-Works](../complete_works.htm) /
 [Volume 9](volume_9_contents.htm) /
 
@@ -479,5 +477,3 @@ another man's very soul". And this method was his own! No one ever
 before in India became Christian and Mohammedan and Vaishnava, by turn!
 
 [→](excerpts_from_sister_niveditas_book/excerpts_from_sister_niveditas_book_contents.htm)
-
-

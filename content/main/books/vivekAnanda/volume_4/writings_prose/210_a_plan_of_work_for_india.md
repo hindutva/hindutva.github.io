@@ -1,11 +1,7 @@
 ---
-title: A PLAN OF WORK FOR INDIA
+title: 210 A PLAN OF WORK FOR INDIA
 
 ---
-
-
-
-
   
 
 
@@ -107,5 +103,3 @@ I have found. I sacrifice myself unto Thee."
 sacrifice myself unto Thee." (Yajurveda Samhitā).
 
 May the Lord bless you for ever and ever!
-
-

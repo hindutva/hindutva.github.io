@@ -1,11 +1,7 @@
 ---
-title: THE METHOD AND THE MEANS
+title: 115 THE METHOD AND THE MEANS
 
 ---
-
-
-
-
   
 
 CHAPTER X
@@ -174,5 +170,3 @@ realisation is possible only when the mind is in a steady, peaceful
 condition of harmonious equilibrium.
 
 It is thus that one may begin to learn how to love the Lord.
-
-

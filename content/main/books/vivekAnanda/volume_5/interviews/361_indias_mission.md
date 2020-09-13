@@ -1,11 +1,7 @@
 ---
-title: INDIA'S MISSION
+title: 361 INDIA'S MISSION
 
 ---
-
-
-
-
   
 
 ## INDIA'S MISSION
@@ -197,5 +193,3 @@ asceticism, an unusual command of English and great conversational
 powers add not a little to an interesting personality. . . . His vow of
 Sannyasa implies renunciation of position, property, and name, as well
 as the persistent search for spiritual knowledge.
-
-

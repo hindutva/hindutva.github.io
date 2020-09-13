@@ -1,11 +1,7 @@
 ---
-title: DHYANA AND SAMADHI
+title: 022 DHYANA AND SAMADHI
 
 ---
-
-
-
-
   
 
 CHAPTER VII
@@ -305,5 +301,3 @@ been reasoned out, properly adjusted, scientifically organised, and,
 when faithfully practiced, will surely lead us to the desired end. Then
 will all sorrows cease, all miseries vanish; the seeds for actions will
 be burnt, and the soul will be free for ever.
-
-

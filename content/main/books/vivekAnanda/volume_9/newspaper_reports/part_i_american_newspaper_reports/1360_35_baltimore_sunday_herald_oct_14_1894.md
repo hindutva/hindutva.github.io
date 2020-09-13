@@ -1,9 +1,7 @@
 ---
-title: A WISE MAN AMONG US
+title: 1360 A WISE MAN AMONG US
 
 ---
-
-
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
 9](../../volume_9_contents.htm) / [Newspaper
@@ -65,5 +63,3 @@ Lyceum, and on Sunday week will speak at length at our second meeting on
 the university plan."
 
 [→](36_washington_times_oct_29_1894.htm)
-
-

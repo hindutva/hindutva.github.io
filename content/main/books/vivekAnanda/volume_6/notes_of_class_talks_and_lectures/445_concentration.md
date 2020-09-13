@@ -1,11 +1,7 @@
 ---
-title: CONCENTRATION
+title: 445 CONCENTRATION
 
 ---
-
-
-
-
   
 
 ## CONCENTRATION
@@ -56,5 +52,3 @@ away. Then alone does he become free and immortal. To all external
 appearance, unconsciousness and superconsciousness are the same; but
 they differ as a lump of clay from a lump of gold. The one whose whole
 soul is given up to God has reached the superconscious plane.
-
-

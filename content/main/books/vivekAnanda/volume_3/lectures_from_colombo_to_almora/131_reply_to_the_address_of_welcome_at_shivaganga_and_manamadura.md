@@ -1,11 +1,7 @@
 ---
-title: REPLY TO THE ADDRESS OF WELCOME AT SHIVAGANGA AND MANAMADURA
+title: 131 REPLY TO THE ADDRESS OF WELCOME AT SHIVAGANGA AND MANAMADURA
 
 ---
-
-
-
-
   
 
 ## REPLY TO THE ADDRESS OF WELCOME AT SHIVAGANGA AND MANAMADURA
@@ -186,5 +182,3 @@ vegetating, little, low life of man? Subordinating it to one high ideal
 is the only value that life has. This is the great work to be done in
 India. I welcome the present religious revival; and I should be foolish
 if I lost the opportunity of striking the iron while it is hot.
-
-

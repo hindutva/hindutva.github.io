@@ -1,11 +1,7 @@
 ---
-title: X
+title: 751 X
 
 ---
-
-
-
-
   
 
   
@@ -137,5 +133,3 @@ ruler of infinite love independently of revelation.
 Your ever grateful friend,
 
 VIVEKANANDA.
-
-

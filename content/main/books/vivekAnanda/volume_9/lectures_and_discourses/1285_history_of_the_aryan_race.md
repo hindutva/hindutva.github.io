@@ -1,9 +1,7 @@
 ---
-title: HISTORY OF THE ARYAN RACE1
+title: 1285 HISTORY OF THE ARYAN RACE1
 
 ---
-
-
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Lectures and
 Discourses](lectures_and_discourses_contents.htm) /

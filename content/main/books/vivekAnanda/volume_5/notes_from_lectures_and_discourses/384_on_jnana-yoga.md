@@ -1,11 +1,7 @@
 ---
-title: ON JNANA-YOGA
+title: 384 ON JNANA-YOGA
 
 ---
-
-
-
-
   
 
 ## ON JNANA-YOGA
@@ -201,5 +197,3 @@ that is God. Be your own Self.
 Thou art Our Father, our Mother, our dear Friend. Thou bearest the
 burden of the world. Help us to bear the burden of our lives. Thou art
 our Friend, our Lover, our Husband, Thou art ourselves!
-
-

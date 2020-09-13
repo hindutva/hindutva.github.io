@@ -1,9 +1,7 @@
 ---
-title: THE GITA — III
+title: 1293 THE GITA — III
 
 ---
-
-
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Notes of Lectures and
 Classes](notes_of_lectures_and_classes_contents.htm) /
@@ -107,5 +105,3 @@ are not laws at all. If it were a law it could not be broken. The fact
 that these so-called laws are broken shows clearly they are not laws.
 
 [→](gita_class.htm)
-
-

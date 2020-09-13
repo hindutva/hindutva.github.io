@@ -1,11 +1,7 @@
 ---
-title: HINDUISM AND SHRI RAMAKRISHNA
+title: 458 HINDUISM AND SHRI RAMAKRISHNA
 
 ---
-
-
-
-
   
 
 ## HINDUISM AND SHRI RAMAKRISHNA
@@ -203,5 +199,3 @@ and help in the turning of this mighty wheel of new dispensation!
 With the conviction firmly rooted in your heart that you are the
 servants of the Lord, His children, helpers in the fulfilment of His
 purpose, enter the arena of work.
-
-

@@ -1,9 +1,7 @@
 ---
-title: SWAMI VIVEKANANDA
+title: 1355 SWAMI VIVEKANANDA
 
 ---
-
-
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
 9](../../volume_9_contents.htm) / [Newspaper
@@ -56,5 +54,3 @@ in his constructive thought, when he will give it, can make the power of
 the prophets known to us by his own presence.
 
 [→](31_greenacre_voice_1894.htm)
-
-

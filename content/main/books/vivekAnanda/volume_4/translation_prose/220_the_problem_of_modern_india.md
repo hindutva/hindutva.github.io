@@ -1,11 +1,7 @@
 ---
-title: THE PROBLEM OF MODERN INDIA AND ITS SOLUTION
+title: 220 THE PROBLEM OF MODERN INDIA AND ITS SOLUTION
 
 ---
-
-
-
-
   
 
 ## THE PROBLEM OF MODERN INDIA AND ITS SOLUTION
@@ -302,5 +298,3 @@ sect, it offers its whole self for the service of all classes.
 To work we have the right, the result is in the hands of the Lord. We
 only pray: "O Thou Eternal Spirit, make us spiritual; O Thou Eternal
 Strength, make us strong; O Thou Mighty One, make us mighty."
-
-

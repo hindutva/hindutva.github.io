@@ -1,11 +1,7 @@
 ---
-title: XXII
+title: 257 XXII
 
 ---
-
-
-
-
   
 
   
@@ -73,5 +69,3 @@ to sit at dinner when it is cooked." Take care and work on.
 Yours ever with blessings,
 
 VIVEKANANDA.
-
-

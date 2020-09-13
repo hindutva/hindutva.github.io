@@ -1,9 +1,7 @@
 ---
-title: CLXXIII
+title: 1226 CLXXIII
 
 ---
-
-
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
@@ -50,5 +48,3 @@ V.
 [→](174_christina.htm)  
 [Addressee→](174_christina.htm)  
 [Chronology→](../../volume_8/epistles_fourth_series/181_mary.htm)
-
-

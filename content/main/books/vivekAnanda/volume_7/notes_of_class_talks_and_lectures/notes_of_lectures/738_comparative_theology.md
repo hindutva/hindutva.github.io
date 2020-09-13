@@ -1,11 +1,7 @@
 ---
-title: COMPARATIVE THEOLOGY
+title: 738 COMPARATIVE THEOLOGY
 
 ---
-
-
-
-
   
 
 ## COMPARATIVE THEOLOGY
@@ -113,5 +109,3 @@ wrong. That is more wrong than foolish. Stick to your beliefs. The truth
 is never lost. Books may perish, nations may go down in a crash, but the
 truth is preserved and is taken up by some man and handed back to
 society, which proves a grand and continuous revelation of God."
-
-

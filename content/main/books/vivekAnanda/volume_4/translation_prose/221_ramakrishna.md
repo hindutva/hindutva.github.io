@@ -1,11 +1,7 @@
 ---
-title: 'RAMAKRISHNA: HIS LIFE AND SAYINGS'
+title: '221 RAMAKRISHNA: HIS LIFE AND SAYINGS'
 
 ---
-
-
-
-
   
 
 ## RAMAKRISHNA: HIS LIFE AND SAYINGS
@@ -390,5 +386,3 @@ the One Universal Mother, has begun to deluge the world with the flood
 of the unselfish love of a great man's heart, then, O feeble man, what
 power cost thou possess that thou shouldst thwart the onward progress of
 the Almighty Mother's will? "
-
-

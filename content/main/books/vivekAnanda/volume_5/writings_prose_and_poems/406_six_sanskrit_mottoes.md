@@ -1,11 +1,7 @@
 ---
-title: SIX SANSKRIT MOTTOES
+title: 406 SIX SANSKRIT MOTTOES
 
 ---
-
-
-
-
   
 
 ## SIX SANSKRIT MOTTOES
@@ -52,5 +48,3 @@ Vivekananda.
 6\.         Thou art the father the lord the mother the husband and love
 
 Swami Vivekananda.
-
-

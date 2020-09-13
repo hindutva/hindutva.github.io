@@ -1,11 +1,7 @@
 ---
-title: ON DR. PAUL DEUSSEN
+title: 196 ON DR. PAUL DEUSSEN
 
 ---
-
-
-
-
   
 
 ## ON DR. PAUL DEUSSEN
@@ -181,5 +177,3 @@ essence of the Shāstras, or to the other extreme of demoniacal
 denouncers who see no good in us and in our history, and will, if they
 can, at once dynamite all the social and spiritual organizations of our
 ancient land of religion and philosophy.
-
-

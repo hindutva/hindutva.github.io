@@ -1,11 +1,7 @@
 ---
-title: LVII
+title: 292 LVII
 
 ---
-
-
-
-
   
 
   
@@ -121,5 +117,3 @@ a baby can easily digest it.
 Yours etc.,
 
 VIVEKANANDA.
-
-

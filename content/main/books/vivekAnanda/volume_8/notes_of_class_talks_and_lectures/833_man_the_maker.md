@@ -1,11 +1,7 @@
 ---
-title: MAN THE MAKER OF HIS DESTINY
+title: 833 MAN THE MAKER OF HIS DESTINY
 
 ---
-
-
-
-
   
 
 ## MAN THE MAKER OF HIS DESTINY
@@ -136,5 +132,3 @@ soon be under your feet." The highest things are under your feet,
 because you are Divine Stars; all these things are under your feet. You
 can swallow the stars by the handful if you want; such is your real
 nature. Be strong, get beyond all superstitions, and be free.
-
-

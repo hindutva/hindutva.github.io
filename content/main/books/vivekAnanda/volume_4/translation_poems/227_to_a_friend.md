@@ -1,11 +1,7 @@
 ---
-title: TO A FRIEND
+title: 227 TO A FRIEND
 
 ---
-
-
-
-
   
 
 ## TO A FRIEND
@@ -141,5 +137,3 @@ These are His manifold forms before thee,
 Rejecting them, where seekest thou for God?  
 Who loves all beings without distinction,  
 He indeed is worshipping best his God.
-
-

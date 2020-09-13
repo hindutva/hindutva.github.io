@@ -1,11 +1,7 @@
 ---
-title: A HYMN TO SHIVA
+title: 231 A HYMN TO SHIVA
 
 ---
-
-
-
-
   
 
 ## A HYMN TO SHIVA
@@ -98,5 +94,3 @@ Is on the humble fixed; whose neck is blue (Nilkantha, a name of
 Shiva)  
 With the poison (The all-destructive evil) swallowed:  
 Him, we salute!
-
-

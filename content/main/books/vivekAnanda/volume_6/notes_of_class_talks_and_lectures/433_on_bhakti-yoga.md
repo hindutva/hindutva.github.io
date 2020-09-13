@@ -1,11 +1,7 @@
 ---
-title: ON BHAKTI-YOGA
+title: 433 ON BHAKTI-YOGA
 
 ---
-
-
-
-
   
 
 ## ON BHAKTI-YOGA
@@ -73,5 +69,3 @@ Thee."
 When love to God is revealed and is all, this world appears like a drop.
 
 Pass from non-existence to existence, from darkness to light.
-
-

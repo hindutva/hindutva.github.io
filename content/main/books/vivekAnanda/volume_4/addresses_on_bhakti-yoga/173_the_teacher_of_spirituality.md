@@ -1,11 +1,7 @@
 ---
-title: THE TEACHER OF SPIRITUALITY
+title: 173 THE TEACHER OF SPIRITUALITY
 
 ---
-
-
-
-
   
 
 ## THE TEACHER OF SPIRITUALITY
@@ -378,5 +374,3 @@ must always remember what we are seeking. Not those foolish things of
 miraculous display, but the wonderful powers of the Spirit, which make
 man free, give him control over the whole of nature, take from him the
 badge of slavery, and show God unto him.
-
-

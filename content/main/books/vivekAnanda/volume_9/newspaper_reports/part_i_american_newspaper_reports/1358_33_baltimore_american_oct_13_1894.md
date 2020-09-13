@@ -1,9 +1,7 @@
 ---
-title: A HIGH PRIEST OF INDIA
+title: 1358 A HIGH PRIEST OF INDIA
 
 ---
-
-
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
 9](../../volume_9_contents.htm) /[Newspaper
@@ -38,5 +36,3 @@ channels to the same end. I think the great need of the world is less
 law, and more godly men and women. . . .
 
 [→](34_baltimore_news_oct_13_1894.htm)
-
-

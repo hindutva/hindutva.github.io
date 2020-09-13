@@ -1,11 +1,7 @@
 ---
-title: IDEALS OF WOMANHOOD
+title: 098 IDEALS OF WOMANHOOD
 
 ---
-
-
-
-
   
 
 ## IDEALS OF WOMANHOOD
@@ -121,5 +117,3 @@ adultery in marriage, except when marriage is consummated in prayer. And
 I and every good Hindoo believe, that my mother was pure and holy, and
 hence I owe her everything that I am. That is the secret of the race —
 chastity."
-
-

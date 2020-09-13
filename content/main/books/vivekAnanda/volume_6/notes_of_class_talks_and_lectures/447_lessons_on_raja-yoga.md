@@ -1,11 +1,7 @@
 ---
-title: LESSONS ON RAJA-YOGA
+title: 447 LESSONS ON RAJA-YOGA
 
 ---
-
-
-
-
   
 
 ## LESSONS ON RAJA-YOGA
@@ -311,5 +307,3 @@ the chemist will be finished. When unity is discovered, perfection in
 the science of religion is reached, and this was attained thousands of y
 ears ago. Perfect unity is reached when man says, "I and my Father are
 one".
-
-

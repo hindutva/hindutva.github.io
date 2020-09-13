@@ -1,9 +1,7 @@
 ---
-title: LXXVIII
+title: 1131 LXXVIII
 
 ---
-
-
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
@@ -42,5 +40,3 @@ V.
 [→](079_mrs_bull.htm)  
 [Addressee→](084_christina.htm)  
 [Chronology→](079_mrs_bull.htm)
-
-

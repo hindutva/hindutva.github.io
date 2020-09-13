@@ -1,11 +1,7 @@
 ---
-title: 'CONVERSATIONS AND DIALOGUE '
+title: '718 CONVERSATIONS AND DIALOGUE '
 
 ---
-
-
-
-
   
 
 ## CONVERSATIONS AND DIALOGUE
@@ -155,5 +151,3 @@ gentleman who had listened attentively to the words of the stranger.
 
 Vive Kananda discussed further in the same strain until the call
 terminated as the hour for the Hindu's lecture approached.
-
-

@@ -1,9 +1,7 @@
 ---
-title: CXXIV
+title: 1177 CXXIV
 
 ---
-
-
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
@@ -54,5 +52,3 @@ MacLeod→](../../volume_8/epistles_fourth_series/135_joe.htm)
 [Mrs. Ole
 Bull→](../../volume_6/epistles_second_series/145_dhira_mata.htm)  
 [Chronology→](../../volume_8/epistles_fourth_series/131_rakhal.htm)
-
-

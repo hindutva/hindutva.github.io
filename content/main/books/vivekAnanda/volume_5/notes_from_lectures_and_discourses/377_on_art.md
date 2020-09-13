@@ -1,11 +1,7 @@
 ---
-title: ON ART
+title: 377 ON ART
 
 ---
-
-
-
-
   
 
 ## ON ART
@@ -35,5 +31,3 @@ capacities of expressing *ideas*.
 The artistic faculty was highly developed in our Lord Shri Ramakrishna,
 and he used to say that without this faculty none can be truly
 spiritual.
-
-

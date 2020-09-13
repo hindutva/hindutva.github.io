@@ -1,11 +1,7 @@
 ---
-title: A PREFACE TO THE IMITATION OF CHRIST
+title: 819 A PREFACE TO THE IMITATION OF CHRIST
 
 ---
-
-
-
-
   
 
 ## A PREFACE TO THE IMITATION OF CHRIST
@@ -84,5 +80,3 @@ cart-loads of trashy novels and dramas.
 I have tried to make the translation as literal as possible, but I
 cannot say how far I have succeeded. The allusions to the Bible in
 several passages are given in the footnotes.
-
-

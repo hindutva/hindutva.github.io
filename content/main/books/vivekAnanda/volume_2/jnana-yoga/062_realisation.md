@@ -1,11 +1,7 @@
 ---
-title: REALISATION
+title: 062 REALISATION
 
 ---
-
-
-
-
   
 
 CHAPTER VIII
@@ -604,5 +600,3 @@ is our own true nature, and He is always in us and with us. Let us live
 in Him and stand in Him. It is the only joyful state of existence. Life
 on the plane of the Spirit is the only life, and let us all try to
 attain to this realisation.
-
-

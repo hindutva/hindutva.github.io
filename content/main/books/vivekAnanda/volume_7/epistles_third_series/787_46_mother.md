@@ -1,11 +1,7 @@
 ---
-title: XLVI
+title: 787 XLVI
 
 ---
-
-
-
-
   
 
   
@@ -31,5 +27,3 @@ With all love to Frankincense,
 Ever your son,
 
 VIVEKANANDA.
-
-

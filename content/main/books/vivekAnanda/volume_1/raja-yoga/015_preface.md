@@ -1,11 +1,7 @@
 ---
-title: PREFACE
+title: 015 PREFACE
 
 ---
-
-
-
-
   
 
 RAJA-YOGA
@@ -95,5 +91,3 @@ by one, or more, or all of these — and be free.
 
 This is the whole of religion. Doctrines, or dogmas, or rituals, or
 books, or temples, or forms, are but secondary details.
-
-

@@ -1,11 +1,7 @@
 ---
-title: VEDANTISM
+title: 126 VEDANTISM
 
 ---
-
-
-
-
   
 
 ## VEDANTISM
@@ -596,5 +592,3 @@ deeds, and let others look back with blessings and pride upon us as
 their ancestors. With the blessing of the Lord every one here will yet
 do such deeds that will eclipse those of our ancestors, great and
 glorious as they may have been.
-
-

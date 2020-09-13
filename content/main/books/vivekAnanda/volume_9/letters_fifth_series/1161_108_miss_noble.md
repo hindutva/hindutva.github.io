@@ -1,9 +1,7 @@
 ---
-title: CVIII
+title: 1161 CVIII
 
 ---
-
-
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
@@ -41,5 +39,3 @@ VIVEKANANDA.
 [→](109_lalajee.htm)  
 [Addressee→](../../volume_8/epistles_fourth_series/091_miss_noble.htm)  
 [Chronology→](../../volume_5/epistles_first_series/074_honoured_madam.htm)
-
-

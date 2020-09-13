@@ -1,11 +1,7 @@
 ---
-title: 'SHRI RAMAKRISHNA: THE NATION''S IDEAL'
+title: '734 SHRI RAMAKRISHNA: THE NATION''S IDEAL'
 
 ---
-
-
-
-
   
 
 ## SHRI RAMAKRISHNA: THE NATION'S IDEAL
@@ -26,5 +22,3 @@ such an Ishta-Devatā, or Guardian Angel, as the Christian nations call
 it. I sometimes imagine that different nations have different
 Ishta-Devatas, and these are each trying for supremacy. Sometimes I
 fancy, such an Ishta-Devata becomes powerless to do service to a nation.
-
-

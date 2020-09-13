@@ -1,11 +1,7 @@
 ---
-title: XXXIII
+title: 774 XXXIII
 
 ---
-
-
-
-
   
 
   
@@ -56,5 +52,3 @@ I am very well indeed and enjoying life immensely.
 Yours ever with love,
 
 VIVEKANANDA.
-
-

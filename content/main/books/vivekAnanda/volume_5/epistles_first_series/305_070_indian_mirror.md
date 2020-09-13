@@ -1,11 +1,7 @@
 ---
-title: LXX
+title: 305 LXX
 
 ---
-
-
-
-
   
 
 
@@ -50,5 +46,3 @@ stranger from the other side of the globe may find that in the midst of
 all our misery, our poverty, and degradation, the heart beats as warm as
 of yore, when the "wealth of Ind" was the proverb of nations and India
 was the land of the "Aryas".
-
-

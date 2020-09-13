@@ -1,11 +1,7 @@
 ---
-title: XXX
+title: 886 XXX
 
 ---
-
-
-
-
   
 
   
@@ -31,5 +27,3 @@ VIVEKANANDA.
 
 1.  [^](#txt1)Diwanji never visited the U.S.A. The time and place given
     by his relatives are wrong obviously.
-
-

@@ -1,9 +1,7 @@
 ---
-title: SWAMI VIVEKANANDA [ON EDUCATION] AT BELUR
+title: 1410 SWAMI VIVEKANANDA [ON EDUCATION] AT BELUR
 
 ---
-
-
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
 9](../../volume_9_contents.htm) / [Newspaper
@@ -66,5 +64,3 @@ I am seeing daily a glorious and wonderful future in my menial
 future depends.
 
 [→](20_the_indian_social_reformer_jun_16_1901.htm)
-
-

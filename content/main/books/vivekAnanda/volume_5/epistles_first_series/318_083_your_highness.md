@@ -1,11 +1,7 @@
 ---
-title: LXXXIII
+title: 318 LXXXIII
 
 ---
-
-
-
-
   
 
   
@@ -40,5 +36,3 @@ VIVEKANANDA.
 PS. Poor Goodwin is dead. Jagamohan knows him well. I want a couple of
 tiger skins, if I can, to be sent to the Math as present to two European
 friends. These seem to be most gratifying presents to Westerners.
-
-

@@ -1,11 +1,7 @@
 ---
-title: CLXXX
+title: 1036 CLXXX
 
 ---
-
-
-
-
   
 
   
@@ -32,5 +28,3 @@ One, I am the Rule of destiny, the Wiper-out of fact. *Shri wah Guru*!
 Steady, child, don't be bought by gold or anything else, and we win!
 
 VIVEKANANDA.
-
-

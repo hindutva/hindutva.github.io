@@ -1,11 +1,7 @@
 ---
-title: CLXXXVII
+title: 1043 CLXXXVII
 
 ---
-
-
-
-
   
 
   
@@ -42,5 +38,3 @@ With all love,
 
 Ever yours in the Lord,  
 VIVEKANANDA.
-
-

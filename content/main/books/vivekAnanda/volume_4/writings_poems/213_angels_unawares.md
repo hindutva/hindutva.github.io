@@ -1,11 +1,7 @@
 ---
-title: ANGELS UNAWARES
+title: 213 ANGELS UNAWARES
 
 ---
-
-
-
-
   
 
 ## ANGELS UNAWARES
@@ -85,5 +81,3 @@ To stocks and stones, and on to what the world
 Had shunned him for, his fall, he blessed the fall,  
 And with a joyful heart, declared it —  
                                                    "Blessed Sin!"
-
-

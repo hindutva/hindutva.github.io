@@ -1,11 +1,7 @@
 ---
-title: XXXV
+title: 776 XXXV
 
 ---
-
-
-
-
   
 
   
@@ -35,5 +31,3 @@ prayer of
 Your ever loving friend,
 
 VIVEKANANDA.
-
-

@@ -1,11 +1,7 @@
 ---
-title: XV
+title: 756 XV
 
 ---
-
-
-
-
   
 
 
@@ -63,5 +59,3 @@ VIVEKANANDA.
     how they spoke about her abroad and that Swamiji was misrepresenting
     India and the Christian Missionaries in Detroit and other places in
     the U.S.A. — Ed.
-
-

@@ -1,11 +1,7 @@
 ---
-title: WORK WITHOUT MOTIVE
+title: 373 WORK WITHOUT MOTIVE
 
 ---
-
-
-
-
   
 
 ## WORK WITHOUT MOTIVE
@@ -96,5 +92,3 @@ lower ego are not affected with evil, for they work for the good of the
 world. To work without motive, to work unattached, brings the highest
 bliss and freedom. This secret of Karma-Yoga is taught by the Lord Shri
 Krishna in the Gita.
-
-

@@ -1,13 +1,9 @@
 ---
-title: 'RECORDED BY MISS S. E. WALDO
+title: '650 RECORDED BY MISS S. E. WALDO
 
   (A DISCIPLE)'
 
 ---
-
-
-
-
   
 
 ## RECORDED BY MISS S. E. WALDO (A DISCIPLE)
@@ -89,5 +85,3 @@ wrote the Gita.
 There is only one Power, whether manifesting as evil or good. God and
 the devil are the same river with the water flowing in opposite
 directions.
-
-

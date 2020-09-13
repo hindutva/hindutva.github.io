@@ -1,11 +1,7 @@
 ---
-title: THE HYMN OF CREATION
+title: 456 THE HYMN OF CREATION
 
 ---
-
-
-
-
   
 
 ## THE HYMN OF CREATION
@@ -47,5 +43,3 @@ Whether held or whether not,
 He the ruler in the supreme sky, of this  
 He, O Sharman! knows, or knows not  
                                             He perchance!
-
-

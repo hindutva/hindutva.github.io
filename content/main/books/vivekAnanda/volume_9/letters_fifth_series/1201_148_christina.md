@@ -1,9 +1,7 @@
 ---
-title: CXLVIII
+title: 1201 CXLVIII
 
 ---
-
-
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
@@ -36,5 +34,3 @@ VIVEKANANDA.
 [→](149_christina.htm)  
 [Addressee→](149_christina.htm)  
 [Chronology→](../../volume_8/epistles_fourth_series/145_optimist.htm)
-
-

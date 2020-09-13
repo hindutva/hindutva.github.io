@@ -1,11 +1,7 @@
 ---
-title: ON FOOD
+title: 729 ON FOOD
 
 ---
-
-
-
-
   
 
 ## ON FOOD
@@ -22,5 +18,3 @@ danger of all filters. After continued searching I found one method by
 which water was distilled and then oxygen was passed into it. After this
 the water became so pure that great improvement of health was sure to
 result from its use.
-
-

@@ -1,11 +1,7 @@
 ---
-title: NON-ATTACHMENT IS COMPLETE SELF-ABNEGATION
+title: 012 NON-ATTACHMENT IS COMPLETE SELF-ABNEGATION
 
 ---
-
-
-
-
   
 
 CHAPTER VI
@@ -391,5 +387,3 @@ direct and independent means for the attainment of Moksha. "Fools alone
 say that work and philosophy are different, not the learned.” The
 learned know that, though apparently different from each other, they at
 last lead to the same goal of human perfection.
-
-

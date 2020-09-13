@@ -1,11 +1,7 @@
 ---
-title: CXXIII
+title: 358 CXXIII
 
 ---
-
-
-
-
   
 
   
@@ -31,5 +27,3 @@ I wanted to write many things, but the flesh is weak . . . "Whosoever
 worships me, for whatsoever desire, I meet him with that." . . .
 
 VIVEKANANDA
-
-

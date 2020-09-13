@@ -1,11 +1,7 @@
 ---
-title: LXXI
+title: 927 LXXI
 
 ---
-
-
-
-
   
 
   
@@ -63,5 +59,3 @@ VIVEKANANDA.
 PS. I am coming sure in March as early as possible. 
 
 V.
-
-

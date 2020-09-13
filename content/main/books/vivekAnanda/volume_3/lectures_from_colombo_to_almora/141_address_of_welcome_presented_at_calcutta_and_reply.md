@@ -1,11 +1,7 @@
 ---
-title: ADDRESS OF WELCOME PRESENTED AT CALCUTTA AND REPLY
+title: 141 ADDRESS OF WELCOME PRESENTED AT CALCUTTA AND REPLY
 
 ---
-
-
-
-
   
 
 ## ADDRESS OF WELCOME PRESENTED AT CALCUTTA AND REPLY
@@ -477,5 +473,3 @@ Gentlemen, allow me to thank you once more for all the kindness that I
 have received at your hands. It is my wish — my intense, sincere wish —
 to be even of the least service to the world, and above all to my own
 country and countrymen.
-
-

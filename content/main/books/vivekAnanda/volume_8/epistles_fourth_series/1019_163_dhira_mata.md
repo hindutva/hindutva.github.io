@@ -1,11 +1,7 @@
 ---
-title: CLXIII
+title: 1019 CLXIII
 
 ---
-
-
-
-
   
 
   
@@ -52,5 +48,3 @@ PS. Kindly tell Mrs. Leggett that my address for some weeks now will be,
 1719 Turk Street, San Francisco. 
 
 V.
-
-

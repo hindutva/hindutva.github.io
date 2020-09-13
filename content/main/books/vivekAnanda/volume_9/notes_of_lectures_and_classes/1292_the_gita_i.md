@@ -1,9 +1,7 @@
 ---
-title: THE GITA — I
+title: 1292 THE GITA — I
 
 ---
-
-
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Notes of Lectures and
 Classes](notes_of_lectures_and_classes_contents.htm) /
@@ -85,5 +83,3 @@ name."
 time. Nature will then be nothing to you."
 
 [→](the_gita_iii.htm)
-
-

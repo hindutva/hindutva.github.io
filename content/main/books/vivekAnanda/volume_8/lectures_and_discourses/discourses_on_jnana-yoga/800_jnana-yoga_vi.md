@@ -1,11 +1,7 @@
 ---
-title: JNANA YOGA - VI
+title: 800 JNANA YOGA - VI
 
 ---
-
-
-
-
   
 
 ## JNANA YOGA - VI
@@ -112,5 +108,3 @@ will clear. For what to hope when one is the all of existence? The
 secret of Jnana is to give up all and be sufficient unto ourselves. Say
 "not", and you become "not"; say "is", and you become "is". Worship the
 Self within, naught else exists. All that binds us is Māyā-delusion.
-
-

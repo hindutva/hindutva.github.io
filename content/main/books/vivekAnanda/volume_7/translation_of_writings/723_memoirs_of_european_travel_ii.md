@@ -1,11 +1,7 @@
 ---
-title: MEMOIRS OF EUROPEAN TRAVEL
+title: 723 MEMOIRS OF EUROPEAN TRAVEL
 
 ---
-
-
-
-
   
 
 ## MEMOIRS OF EUROPEAN TRAVEL
@@ -784,5 +780,3 @@ chillies, which was merely a bad habit of warm climate people. But the
 habit of taking chillies, which we observed to begin with Hungary and
 which reached its climax in Rumania and Bulgaria etc., appeared to me to
 beat even your South Indians.
-
-

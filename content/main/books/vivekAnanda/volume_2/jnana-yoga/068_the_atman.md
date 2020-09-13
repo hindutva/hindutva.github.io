@@ -1,11 +1,7 @@
 ---
-title: THE ATMAN
+title: 068 THE ATMAN
 
 ---
-
-
-
-
   
 
 CHAPTER XIII
@@ -476,5 +472,3 @@ and put him on a higher platform, but do not injure and do not destroy.
 All will come to truth in the long run. "When all the desires of the
 heart will be vanquished, then this very mortal will become immortal" —
 then the very man will become God.
-
-

@@ -1,11 +1,7 @@
 ---
-title: ON KARMA-YOGA
+title: 370 ON KARMA-YOGA
 
 ---
-
-
-
-
   
 
 ## ON KARMA-YOGA
@@ -116,5 +112,3 @@ to do will grumble at everything. Always grumbling, he will lead a
 miserable life, and everything will be a failure. But that man who does
 his duty as he goes, putting, his shoulder to the wheel, will see the
 light, and higher and higher duties will fall to his share.
-
-

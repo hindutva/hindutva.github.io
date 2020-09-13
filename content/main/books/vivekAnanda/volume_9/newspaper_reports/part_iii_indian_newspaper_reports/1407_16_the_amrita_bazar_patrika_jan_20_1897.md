@@ -1,9 +1,7 @@
 ---
-title: VIVEKANANDA IN THE WEST
+title: 1407 VIVEKANANDA IN THE WEST
 
 ---
-
-
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
 9](../../volume_9_contents.htm) / [Newspaper
@@ -46,5 +44,3 @@ of his religion, his religion is a myth.
 . . . . . .
 
 [→](17_the_indian_mirror_feb_24_1898.htm)
-
-

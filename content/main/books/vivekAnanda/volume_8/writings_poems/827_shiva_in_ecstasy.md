@@ -1,11 +1,7 @@
 ---
-title: SHIVA IN ECSTASY
+title: 827 SHIVA IN ECSTASY
 
 ---
-
-
-
-
   
 
 ## SHIVA IN ECSTASY
@@ -20,5 +16,3 @@ The waters of the Ganga are roaring among his matted
         locks.  
 The great trident is vomiting fire, and the moon on his  
         forehead is fiercely flaming.
-
-

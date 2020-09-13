@@ -1,11 +1,7 @@
 ---
-title: XXVII
+title: 768 XXVII
 
 ---
-
-
-
-
   
 
   
@@ -50,5 +46,3 @@ animosity that will tell. That will tell, nothing else.
 Yours,
 
 VIVEKANANDA.
-
-

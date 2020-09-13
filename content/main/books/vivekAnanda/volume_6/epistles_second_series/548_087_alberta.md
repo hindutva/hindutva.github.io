@@ -1,11 +1,7 @@
 ---
-title: LXXXVII
+title: 548 LXXXVII
 
 ---
-
-
-
-
   
 
   
@@ -55,5 +51,3 @@ that the Raja is penniless!!
 Yours with love and blessings,
 
 VIVEKANANDA.
-
-

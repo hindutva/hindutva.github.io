@@ -1,11 +1,7 @@
 ---
-title: THE SAGES OF INDIA
+title: 137 THE SAGES OF INDIA
 
 ---
-
-
-
-
   
 
 ## THE SAGES OF INDIA
@@ -634,5 +630,3 @@ all mine, and on me is the responsibility.
 1.  [^](#txt1)Later research has shown that although Shri Ramakrishna
     was almost illiterate in the Western sense, he could read and write
     Bengali.
-
-

@@ -1,11 +1,7 @@
 ---
-title: V
+title: 240 V
 
 ---
-
-
-
-
   
 
   
@@ -186,5 +182,3 @@ reading, send it to the Maharaja (of Khetri). I have sent him my
 photograph in America.
 
 V
-
-

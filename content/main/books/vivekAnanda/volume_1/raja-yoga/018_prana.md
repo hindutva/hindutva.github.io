@@ -1,11 +1,7 @@
 ---
-title: PRANA
+title: 018 PRANA
 
 ---
-
-
-
-
   
 
 CHAPTER III
@@ -406,5 +402,3 @@ control the physical manifestations of the Prana by physical means is
 called physical science, and that part which tries to control the
 manifestations of the Prana as mental force by mental means is called
 Raja-Yoga.
-
-

@@ -1,11 +1,7 @@
 ---
-title: THE NEED OF SYMBOLS
+title: 174 THE NEED OF SYMBOLS
 
 ---
-
-
-
-
   
 
 ## THE NEED OF SYMBOLS
@@ -214,5 +210,3 @@ too vulgar a thing for you to think of going to heaven. It is just the
 same as thinking, I will become a millionaire and lord it over people.
 There are many of these heavens, but through them you cannot gain the
 right to enter the gates of religion and love.
-
-

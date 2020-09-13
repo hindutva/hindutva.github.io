@@ -1,11 +1,7 @@
 ---
-title: REPLY TO THE ADDRESS OF WELCOME AT PARAMAKUDI
+title: 130 REPLY TO THE ADDRESS OF WELCOME AT PARAMAKUDI
 
 ---
-
-
-
-
   
 
 ## REPLY TO THE ADDRESS OF WELCOME AT PARAMAKUDI
@@ -234,5 +230,3 @@ if he wants a Personal God to love, he can find here the noblest ideas
 of a Personal God such as were never attained anywhere else in the
 world. If a man wants to be a rationalist and satisfy his reason, it is
 also here that he can find the most rational ideas of the Impersonal.
-
-

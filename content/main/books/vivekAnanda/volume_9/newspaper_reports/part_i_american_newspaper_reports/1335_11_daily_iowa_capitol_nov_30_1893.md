@@ -1,9 +1,7 @@
 ---
-title: ON AMERICAN WOMEN
+title: 1335 ON AMERICAN WOMEN
 
 ---
-
-
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
 9](../../volume_9_contents.htm) / [Newspaper
@@ -21,5 +19,3 @@ renowned Hindu is a brilliant man about 30 years old. He says American
 women are lovely, but American men are entirely too practical.
 
 [→](12_iowa_state_register_dec_1_1893.htm)
-
-

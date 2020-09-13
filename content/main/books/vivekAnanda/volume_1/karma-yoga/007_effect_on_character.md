@@ -1,11 +1,7 @@
 ---
-title: KARMA IN ITS EFFECT ON CHARACTER
+title: 007 KARMA IN ITS EFFECT ON CHARACTER
 
 ---
-
-
-
-
   
 
 CHAPTER I
@@ -256,5 +252,3 @@ struggle through the paths of life, there will come a time when we shall
 become perfectly unselfish; and the moment we attain to that, all our
 powers will be concentrated, and the knowledge which is ours will be
 manifest.
-
-

@@ -1,11 +1,7 @@
 ---
-title: NOTES OF CLASS TALKS
+title: 832 NOTES OF CLASS TALKS
 
 ---
-
-
-
-
   
 
 ## NOTES OF CLASS TALKS
@@ -106,5 +102,3 @@ dangerous for the present state to remain in eternity, then the thief
 would always remain a thief, and the blackguard, a blackguard. If a baby
 died, it would have to remain a baby. The real individuality is that
 which never changes, and will never change; and that is God within us.
-
-

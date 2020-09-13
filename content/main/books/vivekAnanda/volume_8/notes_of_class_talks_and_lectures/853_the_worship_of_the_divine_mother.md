@@ -1,11 +1,7 @@
 ---
-title: THE WORSHIP OF THE DIVINE MOTHER
+title: 853 THE WORSHIP OF THE DIVINE MOTHER
 
 ---
-
-
-
-
   
 
 ## THE WORSHIP OF THE DIVINE MOTHER
@@ -66,5 +62,3 @@ Her child. See Her in all, good and bad alike. Then alone will come
 "Sameness" and Bliss Eternal that is Mother Herself when we realise Her
 thus. Until then, misery will pursue us. Only resting in Mother are we
 safe.
-
-

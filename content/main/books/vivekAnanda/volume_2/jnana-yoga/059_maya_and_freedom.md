@@ -1,11 +1,7 @@
 ---
-title: MAYA AND FREEDOM
+title: 059 MAYA AND FREEDOM
 
 ---
-
-
-
-
   
 
 CHAPTER V
@@ -354,5 +350,3 @@ become our playground, and even dangers and difficulties, even all
 sufferings, will become deified and show us their real nature, will show
 us that behind everything, as the substance of everything, He is
 standing, and that He is the one real Self.
-
-

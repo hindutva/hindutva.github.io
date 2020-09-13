@@ -1,13 +1,9 @@
 ---
-title: 'RECORDED BY MISS S. E. WALDO
+title: '660 RECORDED BY MISS S. E. WALDO
 
   (A DISCIPLE)'
 
 ---
-
-
-
-
   
 
 ## RECORDED BY MISS S. E. WALDO (A DISCIPLE)
@@ -125,5 +121,3 @@ says, "God will show His real nature to me" and accepts all.
         That he is chastised at all !"
 
                                                         — *Persian Poem*
-
-

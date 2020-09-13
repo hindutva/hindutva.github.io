@@ -1,11 +1,7 @@
 ---
-title: XCV
+title: 556 XCV
 
 ---
-
-
-
-
   
 
   
@@ -33,5 +29,3 @@ My love to all in Boston.
 Yours with kind regards,
 
 VIVEKANANDA.
-
-

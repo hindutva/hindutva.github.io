@@ -1,11 +1,7 @@
 ---
-title: CIII
+title: 564 CIII
 
 ---
-
-
-
-
   
 
   
@@ -30,5 +26,3 @@ deep English character.
 Yours with best wishes,
 
 VIVEKANANDA.
-
-

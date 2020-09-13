@@ -1,9 +1,7 @@
 ---
-title: MOHAMMED'S MESSAGE TO THE WORLD
+title: 1289 MOHAMMED'S MESSAGE TO THE WORLD
 
 ---
-
-
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Notes of Lectures and
 Classes](notes_of_lectures_and_classes_contents.htm) /
@@ -92,5 +90,3 @@ Works](../../volume_1/lectures_and_discourses/mohammed.htm) *, Vol. I,
 for the remainder of the lecture.\]*
 
 [→](class_lessons_in_meditation.htm)
-
-

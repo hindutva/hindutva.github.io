@@ -1,11 +1,7 @@
 ---
-title: XXV
+title: 766 XXV
 
 ---
-
-
-
-
   
 
   
@@ -143,5 +139,3 @@ on, work, work, work, this is only the beginning.
 Yours ever,
 
 VIVEKANANDA.
-
-

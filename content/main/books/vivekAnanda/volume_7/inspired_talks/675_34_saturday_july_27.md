@@ -1,13 +1,9 @@
 ---
-title: 'RECORDED BY MISS S. E. WALDO
+title: '675 RECORDED BY MISS S. E. WALDO
 
   (A DISCIPLE)'
 
 ---
-
-
-
-
   
 
 ## RECORDED BY MISS S. E. WALDO (A DISCIPLE)
@@ -96,5 +92,3 @@ is that they seek power. Here are about sixty millions of people who are
 good and moral and hold no property, and they are what they are because
 from their birth they are taught that they are above law, above
 punishment. They feel themselves to be "twice-born", to be sons of God.
-
-

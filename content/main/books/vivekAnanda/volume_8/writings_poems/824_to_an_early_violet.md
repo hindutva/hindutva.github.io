@@ -1,11 +1,7 @@
 ---
-title: TO AN EARLY VIOLET
+title: 824 TO AN EARLY VIOLET
 
 ---
-
-
-
-
   
 
 ## TO AN EARLY VIOLET
@@ -26,5 +22,3 @@ Change not thy nature, gentle bloom,
         Thou violet, sweet and pure,  
 But ever pour thy sweet perfume  
         Unasked, unstinted, sure!
-
-

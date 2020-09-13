@@ -1,11 +1,7 @@
 ---
-title: THE EDUCATION THAT INDIA NEEDS
+title: 225 THE EDUCATION THAT INDIA NEEDS
 
 ---
-
-
-
-
   
 
   
@@ -206,5 +202,3 @@ national freedom. Japan is an example of what good and nourishing food
 can do.
 
 May the All-powerful Vishveshvari inspire your heart!
-
-

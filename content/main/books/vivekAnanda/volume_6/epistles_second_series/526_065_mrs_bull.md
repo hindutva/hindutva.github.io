@@ -1,11 +1,7 @@
 ---
-title: LXV
+title: 526 LXV
 
 ---
-
-
-
-
   
 
   
@@ -35,5 +31,3 @@ English rule in India means.
 Ever gratefully your son,
 
 VIVEKANANDA.
-
-

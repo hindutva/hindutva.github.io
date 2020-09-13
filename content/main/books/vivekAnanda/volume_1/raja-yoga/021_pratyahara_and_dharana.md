@@ -1,11 +1,7 @@
 ---
-title: PRATYAHARA AND DHARANA
+title: 021 PRATYAHARA AND DHARANA
 
 ---
-
-
-
-
   
 
 CHAPTER VI
@@ -237,5 +233,3 @@ and forget all about it. To succeed, you must have tremendous
 perseverance, tremendous will. "I will drink the ocean," says the
 persevering soul, "at my will mountains will crumble up." Have that sort
 of energy, that sort of will, work hard, and you will reach the goal.
-
-

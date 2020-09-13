@@ -1,11 +1,7 @@
 ---
-title: THE STORY OF PRAHLADA
+title: 181 THE STORY OF PRAHLADA
 
 ---
-
-
-
-
   
 
 ## THE STORY OF PRAHLADA
@@ -144,5 +140,3 @@ after the dissolution of thy body, thou shalt attain Me." Thus blessing
 Prahlada, the Lord Vishnu disappeared. Then the gods headed by Brahma
 installed Prahlada on the throne of the Daityas and returned to their
 respective spheres.
-
-

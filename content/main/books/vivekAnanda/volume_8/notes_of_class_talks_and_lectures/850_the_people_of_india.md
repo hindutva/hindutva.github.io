@@ -1,11 +1,7 @@
 ---
-title: THE PEOPLE OF INDIA
+title: 850 THE PEOPLE OF INDIA
 
 ---
-
-
-
-
   
 
 ## THE PEOPLE OF INDIA
@@ -77,5 +73,3 @@ before marriage, might be pitied if a marriage were the only real object
 in life, but, according to the Hindu way of thinking, marriage is rather
 a duty than a privilege, and the denial of the right of child widows to
 marry is no particular hardship.
-
-

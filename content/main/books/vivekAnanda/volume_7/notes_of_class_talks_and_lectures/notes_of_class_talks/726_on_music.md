@@ -1,11 +1,7 @@
 ---
-title: ON MUSIC
+title: 726 ON MUSIC
 
 ---
-
-
-
-
   
 
 ## ON MUSIC
@@ -16,5 +12,3 @@ Māthura and Viraha and other like compositions that there is real music
 There is more music in common people's songs, and they should be
 collected together. The science of Dhrupad etc., applied to the music of
 Kirtana will produce the perfect music.
-
-

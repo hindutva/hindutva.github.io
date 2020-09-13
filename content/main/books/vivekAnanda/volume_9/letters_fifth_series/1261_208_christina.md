@@ -1,9 +1,7 @@
 ---
-title: CCVIII
+title: 1261 CCVIII
 
 ---
-
-
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
@@ -75,5 +73,3 @@ VIVEKANANDA.
 [→](209_christine.htm)  
 [Addressee→](209_christine.htm)  
 [Chronology→](209_christine.htm)
-
-

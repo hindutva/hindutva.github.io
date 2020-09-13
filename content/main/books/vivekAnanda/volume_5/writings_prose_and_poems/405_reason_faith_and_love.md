@@ -1,11 +1,7 @@
 ---
-title: REASON, FAITH AND LOVE
+title: 405 REASON, FAITH AND LOVE
 
 ---
-
-
-
-
   
 
 ## REASON, FAITH AND LOVE
@@ -80,5 +76,3 @@ aspirations of the human Soul is God.
 
 Love is struggle of a human Soul to find its complement its stable
 equilibrium its infinite rest.
-
-

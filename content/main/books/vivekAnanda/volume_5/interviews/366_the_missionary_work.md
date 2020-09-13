@@ -1,12 +1,8 @@
 ---
-title: "THE MISSIONARY WORK OF THE FIRST HINDU\nSANNYASIN TO THE WEST \nAND\nHIS PLAN\n\
-  OF REGENERATION OF INDIA"
+title: "366 THE MISSIONARY WORK OF THE FIRST HINDU\nSANNYASIN TO THE WEST \nAND\n\
+  HIS PLAN\nOF REGENERATION OF INDIA"
 
 ---
-
-
-
-
   
 
 ## THE MISSIONARY WORK OF THE FIRST HINDU SANNYASIN TO THE WEST AND HIS PLAN OF REGENERATION OF INDIA
@@ -234,5 +230,3 @@ ago, when he first met him at New York. He gave up his journalism and
 devotes himself to attending the Swami and taking down his lectures in
 shorthand. He is in every sense a true "disciple", saying that he hopes
 to be with the Swami till his death.
-
-

@@ -1,11 +1,7 @@
 ---
-title: XXXVIII
+title: 779 XXXVIII
 
 ---
-
-
-
-
   
 
   
@@ -83,5 +79,3 @@ earth.
 Ever your well-wisher,
 
 VIVEKANANDA.
-
-

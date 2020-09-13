@@ -1,11 +1,7 @@
 ---
-title: LXXIX
+title: 540 LXXIX
 
 ---
-
-
-
-
   
 
   
@@ -30,5 +26,3 @@ these three I want, and if I get only half a dozen here, my work will go
 on. I have a great chance of such a few. 
 
 VIVEKANANDA.
-
-

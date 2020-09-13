@@ -1,11 +1,7 @@
 ---
-title: LXXVIII
+title: 934 LXXVIII
 
 ---
-
-
-
-
   
 
   
@@ -32,5 +28,3 @@ of the Aryans have been taken clean off my mind. The Swiss is a Tartar
 Yours ever affectionately,
 
 VIVEKANANDA.
-
-

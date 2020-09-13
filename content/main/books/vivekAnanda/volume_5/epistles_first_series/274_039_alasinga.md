@@ -1,11 +1,7 @@
 ---
-title: XXXIX
+title: 274 XXXIX
 
 ---
-
-
-
-
   
 
   
@@ -142,5 +138,3 @@ VIVEKANANDA.
 
 PS. Nobody will come to help you if you put yourself forward as a
 leader. . . . Kill self first if you want to succeed.
-
-

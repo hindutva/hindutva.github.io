@@ -1,11 +1,7 @@
 ---
-title: ON ART IN INDIA
+title: 188 ON ART IN INDIA
 
 ---
-
-
-
-
   
 
 ## ON ART IN INDIA
@@ -45,5 +41,3 @@ quarter notes, ages ago. India led in music, also in drama and
 sculpture. Whatever is done now is merely an attempt at imitation.
 Everything now in India hinges on the question of how little a man
 requires to live upon.
-
-

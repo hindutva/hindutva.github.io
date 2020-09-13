@@ -1,11 +1,7 @@
 ---
-title: KRISHNA
+title: 042 KRISHNA
 
 ---
-
-
-
-
   
 
 ## KRISHNA
@@ -264,5 +260,3 @@ manifestations of God, these teachers of mankind are leaders, are Gurus.
 Therefore, salutations unto you, whose footstool is worshipped by
 angels! Salutations unto you leaders of the human race! Salutations unto
 you great teachers! You leaders have our salutations for ever and ever!
-
-

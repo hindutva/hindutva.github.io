@@ -1,9 +1,7 @@
 ---
-title: A HINDOO MONK
+title: 1346 A HINDOO MONK
 
 ---
-
-
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
 9](../../volume_9_contents.htm) / [Newspaper
@@ -35,5 +33,3 @@ neither do they burn witches at the stake. The speaker lectures in
 Saginaw tonight.
 
 [→](23_saginaw_evening_news_mar_21_1894.htm)
-
-

@@ -1,11 +1,7 @@
 ---
-title: THE EVILS OF ADHIKARIVADA
+title: 381 THE EVILS OF ADHIKARIVADA
 
 ---
-
-
-
-
   
 
 ## THE EVILS OF ADHIKARIVADA
@@ -81,5 +77,3 @@ you will say to them if you can strictly serve truth for fourteen years
 continually, without swerving from it. Thus you will confer the greatest
 blessing on the masses, unshackle their bondages, and uplift the whole
 nation.
-
-

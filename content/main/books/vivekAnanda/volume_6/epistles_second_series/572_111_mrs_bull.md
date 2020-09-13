@@ -1,11 +1,7 @@
 ---
-title: CXI
+title: 572 CXI
 
 ---
-
-
-
-
   
 
   
@@ -33,5 +29,3 @@ but appreciated.
 Yours affly.,
 
 VIVEKANANDA.
-
-

@@ -1,11 +1,7 @@
 ---
-title: LIII
+title: 514 LIII
 
 ---
-
-
-
-
   
 
   
@@ -27,5 +23,3 @@ even the humblest.
 Yours, with blessings,
 
 VIVEKANANDA.
-
-

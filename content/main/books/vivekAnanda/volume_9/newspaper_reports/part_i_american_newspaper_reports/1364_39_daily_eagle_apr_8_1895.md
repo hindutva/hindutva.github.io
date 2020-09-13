@@ -1,9 +1,7 @@
 ---
-title: LET INDIA ALONE
+title: 1364 LET INDIA ALONE
 
 ---
-
-
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
 9](../../volume_9_contents.htm) / [Newspaper
@@ -35,5 +33,3 @@ originated with the mechanics' guilds. What India needed was to be let
 alone, and it would come out all right.
 
 [→](40_ny_world_dec_8_1895.htm)
-
-

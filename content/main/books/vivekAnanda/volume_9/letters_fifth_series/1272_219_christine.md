@@ -1,9 +1,7 @@
 ---
-title: CCXIX
+title: 1272 CCXIX
 
 ---
-
-
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
@@ -42,5 +40,3 @@ VIVEKANANDA.
 [→](220_mother.htm)  
 [Addressee→](222_christine.htm)  
 [Chronology→](220_mother.htm)
-
-

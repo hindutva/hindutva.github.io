@@ -1,11 +1,7 @@
 ---
-title: LXXXVIII
+title: 549 LXXXVIII
 
 ---
-
-
-
-
   
 
   
@@ -48,5 +44,3 @@ enjoying good health both physically and mentally,
 I am yours, in the Lord,
 
 VIVEKANANDA.
-
-

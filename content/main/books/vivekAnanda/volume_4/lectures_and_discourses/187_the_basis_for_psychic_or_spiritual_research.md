@@ -1,11 +1,7 @@
 ---
-title: THE BASIS FOR PSYCHIC OR SPIRITUAL RESEARCH
+title: 187 THE BASIS FOR PSYCHIC OR SPIRITUAL RESEARCH
 
 ---
-
-
-
-
   
 
 ## THE BASIS FOR PSYCHIC OR SPIRITUAL RESEARCH
@@ -124,5 +120,3 @@ may not be correct. but in many cases also we forget to consider whether
 we are fit to receive the demonstration or not, whether we have
 permitted our bodies and our minds to become fit subjects for their
 discovery.
-
-

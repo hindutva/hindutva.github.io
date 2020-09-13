@@ -1,11 +1,7 @@
 ---
-title: ON JNANA-YOGA
+title: 434 ON JNANA-YOGA
 
 ---
-
-
-
-
   
 
 ## ON JNANA-YOGA
@@ -35,5 +31,3 @@ I am Existence, Knowledge, Bliss.
 
 I am the essence and nectar of knowledge. Through eternity I change not.
 I am calm, resplendent, and unchanging.
-
-

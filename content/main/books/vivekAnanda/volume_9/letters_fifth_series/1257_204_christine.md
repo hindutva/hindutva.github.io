@@ -1,9 +1,7 @@
 ---
-title: CCIV
+title: 1257 CCIV
 
 ---
-
-
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
@@ -57,5 +55,3 @@ V.
 [→](205_christina.htm)  
 [Addressee→](205_christina.htm)  
 [Chronology→](205_christina.htm)
-
-

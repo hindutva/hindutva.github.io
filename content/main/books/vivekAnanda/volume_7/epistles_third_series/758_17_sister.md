@@ -1,11 +1,7 @@
 ---
-title: XVII
+title: 758 XVII
 
 ---
-
-
-
-
   
 
   
@@ -77,5 +73,3 @@ of America and stir it up if I can.
 Your loving brother,
 
 VIVEKANANDA.
-
-

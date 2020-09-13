@@ -1,11 +1,7 @@
 ---
-title: XCV
+title: 951 XCV
 
 ---
-
-
-
-
   
 
   
@@ -55,5 +51,3 @@ With all love,
 
 Yours in the Truth,  
 VIVEKANANDA.
-
-

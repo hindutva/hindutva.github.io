@@ -1,9 +1,7 @@
 ---
-title: CLXXXII
+title: 1235 CLXXXII
 
 ---
-
-
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
@@ -35,5 +33,3 @@ VIVEKANANDA.
 [→](183_christine.htm)  
 [Addressee→](../../volume_6/epistles_second_series/161_nivedita.htm)  
 [Chronology→](183_christine.htm)
-
-

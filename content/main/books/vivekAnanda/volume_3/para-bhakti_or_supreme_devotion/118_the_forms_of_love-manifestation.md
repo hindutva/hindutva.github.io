@@ -1,11 +1,7 @@
 ---
-title: THE FORMS OF LOVE — MANIFESTATION
+title: 118 THE FORMS OF LOVE — MANIFESTATION
 
 ---
-
-
-
-
   
 
 CHAPTER IV
@@ -62,5 +58,3 @@ earthly love, the lover thinks that everything belonging to his beloved
 is sacred and so dear to him. He loves even a piece of cloth belonging
 to the darling of his heart In the same way, when a person loves the
 Lord, the whole universe becomes dear to him, because it is all His.
-
-

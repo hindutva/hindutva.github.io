@@ -1,11 +1,7 @@
 ---
-title: LV
+title: 516 LV
 
 ---
-
-
-
-
   
 
   
@@ -60,5 +56,3 @@ is the highest religion.
 Ever yours, with blessings,
 
 VIVEKANANDA.
-
-

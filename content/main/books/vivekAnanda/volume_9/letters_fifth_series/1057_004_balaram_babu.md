@@ -1,9 +1,7 @@
 ---
-title: IV
+title: 1057 IV
 
 ---
-
-
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
@@ -23,5 +21,3 @@ NARENDRA
 [→](005_tulsiram.htm)  
 [Addressee→](../../volume_7/epistles_third_series/06_sir.htm)  
 [Chronology→](../../volume_6/epistles_second_series/027_akhandananda.htm)
-
-

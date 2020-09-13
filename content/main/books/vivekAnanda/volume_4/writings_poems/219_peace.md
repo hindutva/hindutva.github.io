@@ -1,11 +1,7 @@
 ---
-title: PEACE
+title: 219 PEACE
 
 ---
-
-
-
-
   
 
 ## PEACE
@@ -47,5 +43,3 @@ To it the tear-drop goes,
 To spread the smiling form  
 It is the Goal of Life,  
 And Peace — its only home!
-
-

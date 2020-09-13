@@ -1,11 +1,7 @@
 ---
-title: VI
+title: 398 VI
 
 ---
-
-
-
-
   
 
 ## VI
@@ -75,5 +71,3 @@ Indra-worship is a Vedic ritual. Throughout the Gita he is not
 favourable to Vedic ritual.
 
 This is the period of his love to Gopis. He was eleven years of age.
-
-

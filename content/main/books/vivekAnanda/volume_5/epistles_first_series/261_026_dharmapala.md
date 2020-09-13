@@ -1,11 +1,7 @@
 ---
-title: XXVI
+title: 261 XXVI
 
 ---
-
-
-
-
   
 
 
@@ -50,5 +46,3 @@ world.
 Yours ever in brotherly love,
 
 VIVEKANANDA.
-
-

@@ -1,13 +1,9 @@
 ---
-title: 'RECORDED BY MISS S. E. WALDO
+title: '679 RECORDED BY MISS S. E. WALDO
 
   (A DISCIPLE)'
 
 ---
-
-
-
-
   
 
 ## RECORDED BY MISS S. E. WALDO (A DISCIPLE)

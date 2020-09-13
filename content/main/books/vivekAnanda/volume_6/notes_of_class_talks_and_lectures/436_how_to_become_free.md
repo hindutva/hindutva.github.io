@@ -1,11 +1,7 @@
 ---
-title: HOW TO BECOME FREE
+title: 436 HOW TO BECOME FREE
 
 ---
-
-
-
-
   
 
 ## HOW TO BECOME FREE
@@ -58,5 +54,3 @@ Therefore proclaim your freedom and be what you are — ever free, ever
 blessed.
 
 Time, space, and causation we call Maya.
-
-

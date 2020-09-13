@@ -1,9 +1,7 @@
 ---
-title: FOREWORD
+title: 1309 FOREWORD
 
 ---
-
-
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Excerpts from Sister
 Nivedita's Book](excerpts_from_sister_niveditas_book_contents.htm) /
@@ -75,5 +73,3 @@ the long nights even the wind in the palm trees seems to cry: "Mahadeva!
 Mahadeva! Mahadeva!"
 
 [→](chapter_i.htm)
-
-

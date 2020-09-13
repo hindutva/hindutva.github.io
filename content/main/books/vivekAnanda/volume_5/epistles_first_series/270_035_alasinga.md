@@ -1,11 +1,7 @@
 ---
-title: XXXV
+title: 270 XXXV
 
 ---
-
-
-
-
   
 
   
@@ -38,5 +34,3 @@ Send some Kushāsanas (small sitting-mats) if you can.
 Yours ever with blessings,
 
 VIVEKANANDA.
-
-

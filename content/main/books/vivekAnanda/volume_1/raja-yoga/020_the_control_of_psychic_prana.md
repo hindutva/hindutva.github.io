@@ -1,11 +1,7 @@
 ---
-title: THE CONTROL OF PSYCHIC PRANA
+title: 020 THE CONTROL OF PSYCHIC PRANA
 
 ---
-
-
-
-
   
 
 CHAPTER V
@@ -150,5 +146,3 @@ chastity in thought, word, and deed; without it the practice of
 Raja-Yoga is dangerous, and may lead to insanity. If people practice
 Raja-Yoga and at the same time lead an impure life, how can they expect
 to become Yogis?
-
-

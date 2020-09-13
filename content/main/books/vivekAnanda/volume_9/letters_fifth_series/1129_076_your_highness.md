@@ -1,9 +1,7 @@
 ---
-title: LXXVI
+title: 1129 LXXVI
 
 ---
-
-
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
@@ -35,5 +33,3 @@ VIVEKANANDA
 
 [→](077_sir.htm)  
 [Chronology→](077_sir.htm)
-
-

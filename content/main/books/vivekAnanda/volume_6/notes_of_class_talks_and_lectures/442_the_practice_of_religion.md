@@ -1,11 +1,7 @@
 ---
-title: THE PRACTICE OF RELIGION
+title: 442 THE PRACTICE OF RELIGION
 
 ---
-
-
-
-
   
 
 ## THE PRACTICE OF RELIGION
@@ -50,5 +46,3 @@ Household work is enough for women.
 Do not make the lamp burn fast; let it burn slowly.
 
 Proper diet means simple diet, not highly spiced.
-
-

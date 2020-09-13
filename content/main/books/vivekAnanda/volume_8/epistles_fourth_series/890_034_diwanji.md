@@ -1,11 +1,7 @@
 ---
-title: XXXIV
+title: 890 XXXIV
 
 ---
-
-
-
-
   
 
   
@@ -102,5 +98,3 @@ May He help you and yours ever and ever!
 With prayers and blessings,
 
 VIVEKANANDA.
-
-

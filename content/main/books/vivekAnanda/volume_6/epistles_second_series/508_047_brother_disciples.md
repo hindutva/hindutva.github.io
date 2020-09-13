@@ -1,11 +1,7 @@
 ---
-title: XLVII
+title: 508 XLVII
 
 ---
-
-
-
-
   
 
   
@@ -303,5 +299,3 @@ VIVEKANANDA.
 3.  [^](#txt3)The King of the Asuras and son of the saintly Prahlāda. He
     went to Brahma for Self-knowledge, but misunderstanding His teaching
     turned a materialist. (Chhāndogya Upa., VIII).
-
-

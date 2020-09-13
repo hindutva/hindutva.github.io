@@ -1,11 +1,7 @@
 ---
-title: XX
+title: 876 XX
 
 ---
-
-
-
-
   
 
   
@@ -150,5 +146,3 @@ Lord and your motherland so well.
 Ever yours in gratitude,
 
 VIVEKANANDA.
-
-

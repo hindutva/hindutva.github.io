@@ -1,9 +1,7 @@
 ---
-title: CXXXII
+title: 1185 CXXXII
 
 ---
-
-
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
@@ -64,5 +62,3 @@ V.
 [→](133_raja.htm)  
 [Addressee→](138_christina.htm)  
 [Chronology→](../../volume_5/epistles_first_series/090_joe.htm)
-
-

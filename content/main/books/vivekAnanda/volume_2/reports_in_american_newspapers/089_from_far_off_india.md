@@ -1,11 +1,7 @@
 ---
-title: FROM FAR OFF INDIA
+title: 089 FROM FAR OFF INDIA
 
 ---
-
-
-
-
   
 
 ## FROM FAR OFF INDIA
@@ -56,5 +52,3 @@ He instanced the condition of the Negro in the South, who is not allowed
 in hotels nor to ride in the same cars with white men, and is a being to
 whom no decent man will speak. He said that he had been in the South,
 and spoke from his knowledge and observation.
-
-

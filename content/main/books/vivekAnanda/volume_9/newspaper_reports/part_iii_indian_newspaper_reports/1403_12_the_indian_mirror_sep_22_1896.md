@@ -1,9 +1,7 @@
 ---
-title: ON THE SWISS ALPS
+title: 1403 ON THE SWISS ALPS
 
 ---
-
-
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
 9](../../volume_9_contents.htm) / [Newspaper
@@ -27,5 +25,3 @@ will go back to England. To India, most likely, as he says, he is
 returning by the next winter. He intends to reside in the Himalayas.
 
 [→](13_maha-bodhi_society_nov_1896.htm)
-
-

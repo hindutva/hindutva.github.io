@@ -1,11 +1,7 @@
 ---
-title: XXXVIII
+title: 894 XXXVIII
 
 ---
-
-
-
-
   
 
   
@@ -40,5 +36,3 @@ With love for all,
 
 Ever your aff. bro.,  
 VIVEKANANDA.
-
-

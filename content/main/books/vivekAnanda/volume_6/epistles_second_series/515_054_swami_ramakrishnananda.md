@@ -1,13 +1,9 @@
 ---
-title: 'LIV
+title: '515 LIV
 
   1'
 
 ---
-
-
-
-
   
 
   
@@ -194,5 +190,3 @@ VIVEKANANDA.
     August, 1963  
     Editor  
     Volume 6 Page 200
-
-

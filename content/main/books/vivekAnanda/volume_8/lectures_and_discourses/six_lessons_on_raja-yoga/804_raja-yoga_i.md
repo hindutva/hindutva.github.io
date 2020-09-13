@@ -1,13 +1,9 @@
 ---
-title: 'RAJA YOGA
+title: '804 RAJA YOGA
 
   FIRST LESSON'
 
 ---
-
-
-
-
   
 
 ## RAJA YOGA FIRST LESSON
@@ -196,5 +192,3 @@ powers is the first great aim in Yoga practices. The second is
 concentrating them in full force upon any subject.
 
 You cannot be a Yogi if you talk much.
-
-

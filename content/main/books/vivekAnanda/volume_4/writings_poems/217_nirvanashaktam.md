@@ -1,11 +1,7 @@
 ---
-title: NIRVANASHATKAM, OR SIX STANZAS ON NIRVANA
+title: 217 NIRVANASHATKAM, OR SIX STANZAS ON NIRVANA
 
 ---
-
-
-
-
   
 
 ## NIRVANASHATKAM, OR SIX STANZAS ON NIRVANA
@@ -54,5 +50,3 @@ I am without form, without limit, beyond space, beyond time;
 I am in everything; I am the basis of the universe; everywhere am I.  
 I am Existence Absolute, Knowledge Absolute, Bliss Absolute —  
 I am He, I am He. (Shivoham, Shivoham).
-
-

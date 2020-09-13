@@ -1,11 +1,7 @@
 ---
-title: LAW AND FREEDOM
+title: 389 LAW AND FREEDOM
 
 ---
-
-
-
-
   
 
 ## LAW AND FREEDOM
@@ -158,5 +154,3 @@ possible for us to do everything just now. It is only a question of
 time. If that is so, add power, and so diminish time. Remember the case
 of the professor who learnt the secret of the development of marble and
 who made marble in twelve years, while it took nature centuries.
-
-

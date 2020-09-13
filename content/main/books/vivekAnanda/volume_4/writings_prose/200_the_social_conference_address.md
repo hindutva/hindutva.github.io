@@ -1,11 +1,7 @@
 ---
-title: THE SOCIAL CONFERENCE ADDRESS
+title: 200 THE SOCIAL CONFERENCE ADDRESS
 
 ---
-
-
-
-
   
 
 ## THE SOCIAL CONFERENCE ADDRESS
@@ -176,5 +172,3 @@ Catholic monk?
 India! Do not forget, child, that there are in this society problems
 that neither you nor your Western Guru can yet grasp the meaning of —
 much less solve!
-
-

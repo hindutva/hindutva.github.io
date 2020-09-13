@@ -1,11 +1,7 @@
 ---
-title: THE HINDOO RELIGION
+title: 161 THE HINDOO RELIGION
 
 ---
-
-
-
-
   
 
 ## THE HINDOO RELIGION
@@ -86,5 +82,3 @@ They seek to eject and trample those who do not believe as they do.
     failed to follow Swamiji's argument regarding conversion, he
     captured enough of it to enable the reader who is familiar with
     Swamiji's thought to comprehend his meaning.
-
-

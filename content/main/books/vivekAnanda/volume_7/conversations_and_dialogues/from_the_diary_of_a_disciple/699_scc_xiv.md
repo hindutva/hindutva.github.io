@@ -1,11 +1,7 @@
 ---
-title: 'CONVERSATIONS AND DIALOGUES '
+title: '699 CONVERSATIONS AND DIALOGUES '
 
 ---
-
-
-
-
   
 
 ## CONVERSATIONS AND DIALOGUES
@@ -171,5 +167,3 @@ Swamiji: Then look for a boat. It is getting dark.
 
 When the boat came, the disciple and Nag Mahashaya saluted Swamiji and
 started for Calcutta.
-
-

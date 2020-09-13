@@ -1,11 +1,7 @@
 ---
-title: THE RAMAYANA
+title: 177 THE RAMAYANA
 
 ---
-
-
-
-
   
 
 ## THE RAMAYANA
@@ -452,5 +448,3 @@ and Godspeed to you!" My message in life is to ask the East and West not
 to quarrel over different ideals, but to show them that the goal is the
 same in both cases, however opposite it may appear. As we wend our way
 through this mazy vale of life, let us bid each other Godspeed.
-
-

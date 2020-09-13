@@ -1,11 +1,7 @@
 ---
-title: LXI
+title: 522 LXI
 
 ---
-
-
-
-
   
 
   
@@ -64,5 +60,3 @@ My love to Mrs. Thursby and Mrs. Adams.
 Ever yours in grateful affection,
 
 VIVEKANANDA.
-
-

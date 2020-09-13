@@ -1,11 +1,7 @@
 ---
-title: CXXVIII
+title: 589 CXXVIII
 
 ---
-
-
-
-
   
 
   
@@ -58,5 +54,3 @@ zenana lady?
 
 Yours with all love,  
 VIVEKANANDA.
-
-

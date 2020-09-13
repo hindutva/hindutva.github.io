@@ -1,11 +1,7 @@
 ---
-title: THE ISHTA
+title: 176 THE ISHTA
 
 ---
-
-
-
-
   
 
 ## THE ISHTA
@@ -289,5 +285,3 @@ physically, mentally, morally or spiritually. The Lord alone is true.
 Everything else is untrue; everything else should be rejected for the
 salve of the Lord. Vanity of vanities, all is vanity. Serve the Lord and
 Him alone.
-
-

@@ -1,11 +1,7 @@
 ---
-title: LV
+title: 290 LV
 
 ---
-
-
-
-
   
 
   
@@ -54,5 +50,3 @@ With love to you and all our friends there,
 
 Yours,  
 VIVEKANANDA.
-
-

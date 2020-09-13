@@ -1,11 +1,7 @@
 ---
-title: AN INTERESTING CORRESPONDENCE
+title: 820 AN INTERESTING CORRESPONDENCE
 
 ---
-
-
-
-
   
 
 ## AN INTERESTING CORRESPONDENCE
@@ -234,5 +230,3 @@ These lines to thee, Sister Mary,
        Free will I offer, take  
 Tit for tat" — a monkey chat,  
        For monk alone can make.
-
-

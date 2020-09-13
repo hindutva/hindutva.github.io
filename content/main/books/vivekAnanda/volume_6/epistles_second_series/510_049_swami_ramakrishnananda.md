@@ -1,11 +1,7 @@
 ---
-title: IL
+title: 510 IL
 
 ---
-
-
-
-
   
 
   
@@ -52,5 +48,3 @@ give some food for the brain instead. . . .
 Yours affectionately,
 
 VIVEKANANDA.
-
-

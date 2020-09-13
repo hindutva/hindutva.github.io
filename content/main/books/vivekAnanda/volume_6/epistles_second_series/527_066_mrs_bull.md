@@ -1,11 +1,7 @@
 ---
-title: LXVI
+title: 527 LXVI
 
 ---
-
-
-
-
   
 
   
@@ -35,5 +31,3 @@ Association on Immortality.
 Yours,
 
 VIVEKANANDA.
-
-

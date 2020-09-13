@@ -1,9 +1,7 @@
 ---
-title: RELIGION NOT THE CRYING NEED OF INDIA
+title: 1327 RELIGION NOT THE CRYING NEED OF INDIA
 
 ---
-
-
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
 9](../../volume_9_contents.htm) / [Newspaper
@@ -100,5 +98,3 @@ understood why the newspapers had well called this parliament an
 approach to the millennium. . . .
 
 [→](04_ny_critic_nov_11_1893.htm)
-
-

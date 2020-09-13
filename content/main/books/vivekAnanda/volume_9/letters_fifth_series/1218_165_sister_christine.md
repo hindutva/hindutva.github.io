@@ -1,9 +1,7 @@
 ---
-title: CLXV
+title: 1218 CLXV
 
 ---
-
-
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
@@ -37,5 +35,3 @@ VIVEKANANDA.
 [→](166_margot.htm)  
 [Addressee→](169_christina.htm)  
 [Chronology→](../../volume_8/epistles_fourth_series/174_joe.htm)
-
-

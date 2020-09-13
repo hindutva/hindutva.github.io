@@ -1,11 +1,7 @@
 ---
-title: BHAKTI
+title: 147 BHAKTI
 
 ---
-
-
-
-
   
 
 ## BHAKTI
@@ -237,5 +233,3 @@ animals, everywhere and in everything. It was expressed in material
 forces as gravitation and so on. It was everywhere, in every atom,
 manifesting everywhere. It was that infinite love, the only motive power
 of this universe, visible everywhere, and this was God Himself.\]
-
-

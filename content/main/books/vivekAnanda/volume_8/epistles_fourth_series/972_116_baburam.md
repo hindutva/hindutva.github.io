@@ -1,11 +1,7 @@
 ---
-title: CXVI
+title: 972 CXVI
 
 ---
-
-
-
-
   
 
 
@@ -41,5 +37,3 @@ VIVEKANANDA.
 PS. My love to all.
 
 V.
-
-

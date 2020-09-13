@@ -1,11 +1,7 @@
 ---
-title: THE GOAL
+title: 438 THE GOAL
 
 ---
-
-
-
-
   
 
 ## THE GOAL
@@ -29,5 +25,3 @@ creating the universe. If He has a purpose, it must be a means to an
 end, and this would mean that He could not have the end without the
 means. The questions, why and wherefore, can only be asked of something
 which depends upon something else.
-
-

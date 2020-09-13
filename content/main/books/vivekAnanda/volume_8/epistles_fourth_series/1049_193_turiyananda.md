@@ -1,11 +1,7 @@
 ---
-title: CXCIII
+title: 1049 CXCIII
 
 ---
-
-
-
-
   
 
   
@@ -46,5 +42,3 @@ My love to you. But I have nothing more to advise as regards work.
 
 Yours in service,  
 VIVEKANANDA.
-
-

@@ -1,11 +1,7 @@
 ---
-title: LI
+title: 792 LI
 
 ---
-
-
-
-
   
 
   
@@ -46,5 +42,3 @@ VIVEKANANDA.
 PS. I am so glad to learn that Mrs. Leggett has already recovered.
 
 V.
-
-

@@ -1,11 +1,7 @@
 ---
-title: WOMEN OF INDIA
+title: 810 WOMEN OF INDIA
 
 ---
-
-
-
-
   
 
 ## WOMEN OF INDIA
@@ -595,5 +591,3 @@ ideal is mortal, if your ideal is of this earth, so shalt thou be. If
 your ideal is matter, matter shalt thou be. Behold! Our ideal is the
 Spirit. That alone exists, nothing else exists; and like Him, we live
 for ever."
-
-

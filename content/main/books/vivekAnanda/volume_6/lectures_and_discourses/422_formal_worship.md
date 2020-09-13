@@ -1,11 +1,7 @@
 ---
-title: FORMAL WORSHIP
+title: 422 FORMAL WORSHIP
 
 ---
-
-
-
-
   
 
 ## FORMAL WORSHIP
@@ -344,5 +340,3 @@ even learning. I do not want salvation. If it be Thy will, let me go
 into twenty million hells. I only want one thing: Be Thou my love!"
 
 (*Vedanta and the West*, Nov.-Dec. 1955)
-
-

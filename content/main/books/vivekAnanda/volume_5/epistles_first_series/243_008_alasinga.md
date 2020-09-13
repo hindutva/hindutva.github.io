@@ -1,11 +1,7 @@
 ---
-title: VIII
+title: 243 VIII
 
 ---
-
-
-
-
   
 
   
@@ -90,5 +86,3 @@ Convey my greetings to all our friends — for whom I am always praying.
 Yours with blessings,
 
 VIVEKANANDA.
-
-

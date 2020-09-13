@@ -1,9 +1,7 @@
 ---
-title: CXLV
+title: 1198 CXLV
 
 ---
-
-
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
@@ -42,5 +40,3 @@ VIVEKANANDA.
 [→](146_mother_church.htm)  
 [Addressee→](148_christina.htm)  
 [Chronology→](../../volume_8/epistles_fourth_series/143_mary.htm)
-
-

@@ -1,11 +1,7 @@
 ---
-title: ADDRESS OF WELCOME AT ALMORA AND REPLY
+title: 143 ADDRESS OF WELCOME AT ALMORA AND REPLY
 
 ---
-
-
-
-
   
 
 ## ADDRESS OF WELCOME AT ALMORA AND REPLY
@@ -161,5 +157,3 @@ not only kindness shown to me in person, but as to one who represents
 our religion. May it never leave our hearts! May we always remain as
 pure as we are at the present moment, and as enthusiastic for
 spirituality as we are just now!
-
-

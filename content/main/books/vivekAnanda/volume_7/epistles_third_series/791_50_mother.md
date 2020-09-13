@@ -1,11 +1,7 @@
 ---
-title: L
+title: 791 L
 
 ---
-
-
-
-
   
 
   
@@ -43,5 +39,3 @@ follow you, is the constant prayer of
 Your son,
 
 VIVEKANANDA.
-
-

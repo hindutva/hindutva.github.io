@@ -1,13 +1,9 @@
 ---
-title: 'RAJA YOGA
+title: '809 RAJA YOGA
 
   SIXTH LESSON'
 
 ---
-
-
-
-
   
 
 ## RAJA YOGA SIXTH LESSON
@@ -37,5 +33,3 @@ four other lotuses, stages on the way:
 We must awaken the Kundalini, then slowly raise it from one lotus to
 another till the brain is reached. Each stage corresponds to a new layer
 of the mind.
-
-

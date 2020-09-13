@@ -1,11 +1,7 @@
 ---
-title: THE WOMEN OF INDIA
+title: 169 THE WOMEN OF INDIA
 
 ---
-
-
-
-
   
 
 ## THE WOMEN OF INDIA
@@ -166,5 +162,3 @@ The United States, says Kananda, has inspired him with hopes for great
 possibilities in the future, but our destiny, as that of the world,
 rests not in the lawmakers of today, but in the women. Mr. Kananda's
 words: "The salvation of your country depends upon its women."
-
-

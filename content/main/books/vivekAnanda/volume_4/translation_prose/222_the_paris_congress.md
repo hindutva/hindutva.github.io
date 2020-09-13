@@ -1,11 +1,7 @@
 ---
-title: THE PARIS CONGRESS OF THE HISTORY OF RELIGIONS
+title: 222 THE PARIS CONGRESS OF THE HISTORY OF RELIGIONS
 
 ---
-
-
-
-
   
 
 ## THE PARIS CONGRESS OF THE HISTORY OF RELIGIONS
@@ -256,5 +252,3 @@ not a part of the Mahabharata.
 
 The substance of the lecture will be printed in French in the General
 Report of the Congress.
-
-

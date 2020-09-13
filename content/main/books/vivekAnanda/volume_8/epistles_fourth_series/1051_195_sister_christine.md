@@ -1,11 +1,7 @@
 ---
-title: CXCV
+title: 1051 CXCV
 
 ---
-
-
-
-
   
 
   
@@ -95,5 +91,3 @@ leaving for the United States by next week. We shall notify the Post
 Office to forward our letters to our further destinations.
 
 V.
-
-

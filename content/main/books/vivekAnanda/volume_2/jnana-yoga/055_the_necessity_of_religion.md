@@ -1,11 +1,7 @@
 ---
-title: THE NECESSITY OF RELIGION
+title: 055 THE NECESSITY OF RELIGION
 
 ---
-
-
-
-
   
 
 CHAPTER I
@@ -386,5 +382,3 @@ the end, the knowledge which is confined within the domain of time and
 space will meet and become one with that which is beyond them both,
 where the mind and senses cannot reach — the Absolute, the Infinite, the
 One without a second.
-
-

@@ -1,11 +1,7 @@
 ---
-title: CONVERSATIONS AND DIALOGUES
+title: 694 CONVERSATIONS AND DIALOGUES
 
 ---
-
-
-
-
   
 
 ## CONVERSATIONS AND DIALOGUES
@@ -353,5 +349,3 @@ While going upstairs, he remarked to the disciple, "नायमात्मा 
     thou not hear me, sirrah? Art thou a shoemaker?" "O Master," cried
     the bewildered shoemaker, "I am discovered. I cannot stay any
     longer." Saying this he immediately took to his heels.
-
-

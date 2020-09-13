@@ -1,11 +1,7 @@
 ---
-title: LXXXIV
+title: 545 LXXXIV
 
 ---
-
-
-
-
   
 
   
@@ -27,5 +23,3 @@ noise but to go quietly. . .
 Yours with best wishes,
 
 VIVEKANANDA.
-
-

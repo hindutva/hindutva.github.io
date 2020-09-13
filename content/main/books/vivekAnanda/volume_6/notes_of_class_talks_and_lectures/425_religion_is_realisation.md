@@ -1,11 +1,7 @@
 ---
-title: RELIGION IS REALISATION
+title: 425 RELIGION IS REALISATION
 
 ---
-
-
-
-
   
 
 ## RELIGION IS REALISATION
@@ -23,5 +19,3 @@ see the Light. Drink deep of the nectar of the knowledge of God. The man
 who realises. "I am He", though clad in rags, is happy. Go forth into
 the Eternal and come back with eternal energy. The slave goes out to
 search for truth; he comes back free.
-
-

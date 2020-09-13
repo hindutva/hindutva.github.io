@@ -1,11 +1,7 @@
 ---
-title: INTRODUCTION
+title: 024 INTRODUCTION
 
 ---
-
-
-
-
   
 
 PATANJALI'S YOGA APHORISMS
@@ -157,5 +153,3 @@ present state is to be found. This is the value of the study of
 something that will take us beyond the world. "Thou art our father, and
 wilt take us to the other shore of this ocean of ignorance." That is the
 science of religion, nothing else.
-
-

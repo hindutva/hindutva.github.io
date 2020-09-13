@@ -1,11 +1,7 @@
 ---
-title: JNANA YOGA - III
+title: 797 JNANA YOGA - III
 
 ---
-
-
-
-
   
 
 ## JNANA YOGA - III
@@ -123,5 +119,3 @@ soul. The more one has been purified and prepared by Yoga and
 meditation, the clearer are these flashes of realisation. This was dis
 covered 4,000 years ago, but has not yet become the property of the
 race; it is still the property of some individuals only.
-
-

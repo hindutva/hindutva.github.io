@@ -1,11 +1,7 @@
 ---
-title: LXII
+title: 523 LXII
 
 ---
-
-
-
-
   
 
   
@@ -68,5 +64,3 @@ down by evil? He will never leave me, I am sure, mother.
 Your ever obedient son,
 
 VIVEKANANDA.
-
-

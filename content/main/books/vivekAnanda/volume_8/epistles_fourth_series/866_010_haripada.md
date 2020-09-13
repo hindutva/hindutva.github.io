@@ -1,11 +1,7 @@
 ---
-title: X
+title: 866 X
 
 ---
-
-
-
-
   
 
   
@@ -36,5 +32,3 @@ Yours affectionately,
 
 SACHCHIDANANDA.  
 (Swamiji used to call himself such in those days.)
-
-

@@ -1,11 +1,7 @@
 ---
-title: IX
+title: 638 IX
 
 ---
-
-
-
-
   
 
 ## IX
@@ -297,5 +293,3 @@ greater than all others in spiritual competence?
 
 Saying this, Girish Babu took leave of us all to go elsewhere on some
 business.
-
-

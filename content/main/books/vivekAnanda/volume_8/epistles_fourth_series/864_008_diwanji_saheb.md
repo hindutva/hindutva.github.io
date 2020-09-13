@@ -1,11 +1,7 @@
 ---
-title: VIII
+title: 864 VIII
 
 ---
-
-
-
-
   
 
   
@@ -39,5 +35,3 @@ circumstances. Hoping and relying on your kind nature, I remain,
 
 Yours faithfully,  
 VIVEKANANDA.
-
-

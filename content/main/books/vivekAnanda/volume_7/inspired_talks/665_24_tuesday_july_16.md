@@ -1,13 +1,9 @@
 ---
-title: 'RECORDED BY MISS S. E. WALDO
+title: '665 RECORDED BY MISS S. E. WALDO
 
   (A DISCIPLE)'
 
 ---
-
-
-
-
   
 
 ## RECORDED BY MISS S. E. WALDO (A DISCIPLE)
@@ -81,5 +77,3 @@ Work or worship is to bring you back to your own nature. It is an entire
 illusion that the Self is the body; so even while living here in the
 body, we can be free. The body has nothing in common with the Self.
 Illusion is taking the real for the unreal — not "nothing at all".
-
-

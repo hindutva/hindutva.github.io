@@ -1,11 +1,7 @@
 ---
-title: CXXXIII
+title: 594 CXXXIII
 
 ---
-
-
-
-
   
 
   
@@ -59,5 +55,3 @@ if you meet anything better, that will be unexpected.
 
 Ever yours etc.,  
 VIVEKANANDA.
-
-

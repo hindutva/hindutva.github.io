@@ -1,11 +1,7 @@
 ---
-title: CVII
+title: 568 CVII
 
 ---
-
-
-
-
   
 
   
@@ -67,5 +63,3 @@ everyone to be free — free as the air. If New York needs Vedanta, or
 Boston, or any other place in the U.S., it must receive them and keep
 them and provide for them. As for me, I am as good as retired. I have
 played my part in the world.
-
-

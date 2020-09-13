@@ -1,11 +1,7 @@
 ---
-title: ON INDIAN WOMEN — THEIR PAST, PRESENT AND FUTURE
+title: 368 ON INDIAN WOMEN — THEIR PAST, PRESENT AND FUTURE
 
 ---
-
-
-
-
   
 
 ## ON INDIAN WOMEN — THEIR PAST, PRESENT AND FUTURE
@@ -161,5 +157,3 @@ exactly what I say to the men. Believe in India and in our Indian faith.
 Be strong and hopeful and unashamed, and remember that with something to
 take, Hindus have immeasurably more to give than any other people in the
 world."
-
-

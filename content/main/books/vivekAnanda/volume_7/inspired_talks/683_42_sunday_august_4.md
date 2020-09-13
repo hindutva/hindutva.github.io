@@ -1,13 +1,9 @@
 ---
-title: 'RECORDED BY MISS S. E. WALDO
+title: '683 RECORDED BY MISS S. E. WALDO
 
   (A DISCIPLE)'
 
 ---
-
-
-
-
   
 
 ## RECORDED BY MISS S. E. WALDO (A DISCIPLE)
@@ -149,5 +145,3 @@ not push anyone down.
 The knowing ones must have pity on the ignorant. One who knows is
 willing to give up his body even for an ant, because he knows that the
 body is nothing.
-
-

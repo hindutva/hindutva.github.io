@@ -1,9 +1,7 @@
 ---
-title: THE PARLIAMENT OF RELIGIONS
+title: 1393 THE PARLIAMENT OF RELIGIONS
 
 ---
-
-
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
 9](../../volume_9_contents.htm) / [Newspaper
@@ -36,5 +34,3 @@ receive him and listen to him, and as we have done our own inspired
 *Rishis* (teachers). . . .
 
 [→](03_the_indian_mirror_dec_7_1893.htm)
-
-

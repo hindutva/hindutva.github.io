@@ -1,11 +1,7 @@
 ---
-title: unpublishedthesundayherald 06301895
+title: 1429 unpublishedthesundayherald 06301895
 
 ---
-
-
-
-
   
 
 ### (*The Sunday Herald* June 30, 1895)
@@ -20,5 +16,3 @@ of the many learned men from the far East.
 After the close of the Parliament the Swami remained in this country
 lecturing through the West and later in the East. He is an able exponent
 of Hindoo philosophy and has attracted many to listen to his teachings.
-
-

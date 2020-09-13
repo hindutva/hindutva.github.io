@@ -1,11 +1,7 @@
 ---
-title: III
+title: 632 III
 
 ---
-
-
-
-
   
 
 ## III
@@ -170,5 +166,3 @@ why, we have our Lord Jesus for all that!"
 
 After thus spending some three or four delightful hours, the disciple
 came back to Calcutta that day along with the other visitors.
-
-

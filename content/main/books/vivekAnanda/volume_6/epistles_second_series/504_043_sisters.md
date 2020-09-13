@@ -1,11 +1,7 @@
 ---
-title: XLIII
+title: 504 XLIII
 
 ---
-
-
-
-
   
 
   
@@ -82,5 +78,3 @@ VIVEKANANDA.
     air, are hatched during the steep fall towards the ground, and the
     young ones fly upwards before they touch the earth. Shri Ramakrishna
     used to compare the eternally liberated souls to these young birds.
-
-

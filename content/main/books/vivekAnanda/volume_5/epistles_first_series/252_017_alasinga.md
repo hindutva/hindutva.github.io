@@ -1,11 +1,7 @@
 ---
-title: XVII
+title: 252 XVII
 
 ---
-
-
-
-
   
 
   
@@ -48,5 +44,3 @@ me thoroughly. I long to go back to the Himalayan quiet.
 Ever yours affectionately,
 
 VIVEKANANDA.
-
-

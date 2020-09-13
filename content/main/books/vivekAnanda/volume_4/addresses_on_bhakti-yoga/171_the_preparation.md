@@ -1,11 +1,7 @@
 ---
-title: THE PREPARATION
+title: 171 THE PREPARATION
 
 ---
-
-
-
-
   
 
 ## THE PREPARATION
@@ -277,5 +273,3 @@ Never let it run into excesses, because every excess will be followed by
 a reaction.
 
 These, according to Ramanuja, are the preparations for Bhakti.
-
-

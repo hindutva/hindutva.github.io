@@ -1,11 +1,7 @@
 ---
-title: REASON AND RELIGION
+title: 035 REASON AND RELIGION
 
 ---
-
-
-
-
   
 
 ## REASON AND RELIGION
@@ -501,5 +497,3 @@ have given up her secret to us. Nothing more remains to be known. Thus
 we find the truth for which all religions search, that all this
 knowledge of material sciences is but secondary. That is the only true
 knowledge which makes us one with this Universal God of the Universe.
-
-

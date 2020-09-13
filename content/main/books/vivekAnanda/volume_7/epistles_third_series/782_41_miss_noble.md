@@ -1,11 +1,7 @@
 ---
-title: XLI
+title: 782 XLI
 
 ---
-
-
-
-
   
 
   
@@ -61,5 +57,3 @@ With everlasting love and blessings,
 Yours,
 
 VIVEKANANDA.
-
-

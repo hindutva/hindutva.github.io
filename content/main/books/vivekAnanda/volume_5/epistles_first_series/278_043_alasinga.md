@@ -1,11 +1,7 @@
 ---
-title: XLIII
+title: 278 XLIII
 
 ---
-
-
-
-
   
 
   
@@ -68,5 +64,3 @@ not be cowards.
 Ever yours with love,
 
 VIVEKANANDA.
-
-

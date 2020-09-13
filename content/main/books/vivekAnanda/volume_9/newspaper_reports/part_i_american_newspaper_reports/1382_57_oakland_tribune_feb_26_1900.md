@@ -1,9 +1,7 @@
 ---
-title: VEDANTISM, AND WHAT IT IS AND WHAT IT IS NOT
+title: 1382 VEDANTISM, AND WHAT IT IS AND WHAT IT IS NOT
 
 ---
-
-
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
 9](../../volume_9_contents.htm) / [Newspaper
@@ -67,5 +65,3 @@ downtrodden. Vedantism is the only religion that can be taught without
 lies, without stretching the texts, without compromise.  
 
 [→](58_the_alameda_encinal_apr_5_1900.htm)
-
-

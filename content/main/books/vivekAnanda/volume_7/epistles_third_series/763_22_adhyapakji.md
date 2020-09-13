@@ -1,11 +1,7 @@
 ---
-title: XXII
+title: 763 XXII
 
 ---
-
-
-
-
   
 
   
@@ -43,5 +39,3 @@ PS. The East India stamps are for your children if they like.
     remained that, beleaguered on all sides, he thought that Mrs. Bagley
     had lost faith in him, and this must surely have hurt him deeply. —
     Ed.
-
-

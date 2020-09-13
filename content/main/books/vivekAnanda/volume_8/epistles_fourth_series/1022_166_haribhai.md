@@ -1,11 +1,7 @@
 ---
-title: CLXVI
+title: 1022 CLXVI
 
 ---
-
-
-
-
   
 
   
@@ -32,5 +28,3 @@ are you doing?
 
 Yours affectionately,  
 VIVEKANANDA.
-
-

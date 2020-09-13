@@ -1,11 +1,7 @@
 ---
-title: IX
+title: 750 IX
 
 ---
-
-
-
-
   
 
   
@@ -139,5 +135,3 @@ In the rushing stream of life.
 "Om tat Sat om." (Tat Sat means that only real existence. \[Swamiji's
 note\].) Thou art my God.  
 My love, I am thine, I am thine.
-
-

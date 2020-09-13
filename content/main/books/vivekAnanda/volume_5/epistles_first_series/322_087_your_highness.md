@@ -1,11 +1,7 @@
 ---
-title: LXXXVII
+title: 322 LXXXVII
 
 ---
-
-
-
-
   
 
   
@@ -36,5 +32,3 @@ gain in life. Blessed is he who gets it.
 Ever yours in the Lord,
 
 VIVEKANANDA.
-
-

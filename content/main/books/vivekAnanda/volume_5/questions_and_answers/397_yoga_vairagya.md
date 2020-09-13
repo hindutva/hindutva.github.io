@@ -1,11 +1,7 @@
 ---
-title: V
+title: 397 V
 
 ---
-
-
-
-
   
 
 ## V
@@ -50,5 +46,3 @@ His relation with the Gopis?
 respect to the person loved, is assuredly inferior to the expression of
 divine majesty. If it were not so, all lovers of the flesh would have
 obtained freedom.
-
-

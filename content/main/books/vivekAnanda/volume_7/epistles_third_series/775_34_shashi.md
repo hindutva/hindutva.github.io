@@ -1,11 +1,7 @@
 ---
-title: XXXIV
+title: 775 XXXIV
 
 ---
-
-
-
-
   
 
   
@@ -33,5 +29,3 @@ will come afterwards — a thing far, far removed.
 Yours affectionately,
 
 VIVEKANANDA.
-
-

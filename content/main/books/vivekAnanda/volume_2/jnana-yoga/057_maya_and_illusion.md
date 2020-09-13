@@ -1,11 +1,7 @@
 ---
-title: MAYA AND ILLUSION
+title: 057 MAYA AND ILLUSION
 
 ---
-
-
-
-
   
 
 CHAPTER III
@@ -515,5 +511,3 @@ beginning. The idea grows and grows until the Vedantist finds that He
 who, he thought, was standing outside, is he himself and is in reality
 within. He is the one who is free, but who through limitation thought he
 was bound.
-
-

@@ -1,11 +1,7 @@
 ---
-title: I
+title: 630 I
 
 ---
-
-
-
-
   
 
 ## I
@@ -286,5 +282,3 @@ Darjipara.
     investigations in Assyrian mythology prove the existence of a
     tradition in Assyrian history about such a king, called Berosus in
     certain ancient genealogies.
-
-

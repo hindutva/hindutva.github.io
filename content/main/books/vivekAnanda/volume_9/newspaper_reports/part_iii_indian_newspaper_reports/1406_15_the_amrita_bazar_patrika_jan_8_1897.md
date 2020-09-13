@@ -1,9 +1,7 @@
 ---
-title: THE MAJLIS IN CAMBRIDGE
+title: 1406 THE MAJLIS IN CAMBRIDGE
 
 ---
-
-
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
 9](../../volume_9_contents.htm) / [Newspaper
@@ -44,5 +42,3 @@ Sinhji"](14_the_indian_mirror_dec_16_1896.htm), p.541.)
 . . . . . .
 
 [→](16_the_amrita_bazar_patrika_jan_20_1897.htm)
-
-

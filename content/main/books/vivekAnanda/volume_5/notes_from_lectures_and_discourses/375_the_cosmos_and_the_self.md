@@ -1,11 +1,7 @@
 ---
-title: THE COSMOS AND THE SELF
+title: 375 THE COSMOS AND THE SELF
 
 ---
-
-
-
-
   
 
 ## THE COSMOS AND THE SELF
@@ -83,5 +79,3 @@ is a part, as it were, of this Unit. As manifested beings we appear
 separate, but as a reality we are one. The more we think ourselves
 separate from this Whole, the more miserable we become. So, Advaita is
 the basis of ethics.
-
-

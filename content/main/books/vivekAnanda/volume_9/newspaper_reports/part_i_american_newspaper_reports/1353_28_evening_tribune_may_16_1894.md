@@ -1,9 +1,7 @@
 ---
-title: LECTURE BY HINDOO MONK
+title: 1353 LECTURE BY HINDOO MONK
 
 ---
-
-
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
 9](../../volume_9_contents.htm) / [Newspaper

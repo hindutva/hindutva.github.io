@@ -1,11 +1,7 @@
 ---
-title: CXXXI
+title: 592 CXXXI
 
 ---
-
-
-
-
   
 
   
@@ -47,5 +43,3 @@ may take heart and work. Victory to the Guru!
 Yours affly.,
 
 VIVEKANANDA.
-
-

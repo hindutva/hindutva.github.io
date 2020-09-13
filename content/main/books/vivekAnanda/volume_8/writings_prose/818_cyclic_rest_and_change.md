@@ -1,11 +1,7 @@
 ---
-title: CYCLIC REST AND CHANGE
+title: 818 CYCLIC REST AND CHANGE
 
 ---
-
-
-
-
   
 
 ## CYCLIC REST AND CHANGE
@@ -85,5 +81,3 @@ the highest idea which man can have. All the attributes attributed to
 God are true in the same sense as are the attributes of nature. Yet we
 must never forget that the Personal God is the very Absolute seen
 through Maya.
-
-

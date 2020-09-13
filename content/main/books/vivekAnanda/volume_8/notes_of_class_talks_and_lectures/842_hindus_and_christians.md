@@ -1,11 +1,7 @@
 ---
-title: HINDUS AND CHRISTIANS
+title: 842 HINDUS AND CHRISTIANS
 
 ---
-
-
-
-
   
 
 ## HINDUS AND CHRISTIANS
@@ -154,5 +150,3 @@ for a moment. Real permanence is in Him. If you can join these two, this
 wonderful prosperity with the ideal of Christ, it is well. But if you
 cannot, better go back to him and give this up. Better be ready to live
 in rags with Christ than to live in palaces without him.
-
-

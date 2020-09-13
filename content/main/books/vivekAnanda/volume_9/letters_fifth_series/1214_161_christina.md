@@ -1,9 +1,7 @@
 ---
-title: CLXI
+title: 1214 CLXI
 
 ---
-
-
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
@@ -73,5 +71,3 @@ VIVEKANANDA.
 [→](162_margo.htm)  
 [Addressee→](164_christina.htm)  
 [Chronology→](../../volume_8/epistles_fourth_series/154_dhira_mata.htm)
-
-

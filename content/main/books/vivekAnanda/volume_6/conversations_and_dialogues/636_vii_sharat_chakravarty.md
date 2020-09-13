@@ -1,11 +1,7 @@
 ---
-title: VII
+title: 636 VII
 
 ---
-
-
-
-
   
 
 ## VII
@@ -139,5 +135,3 @@ renunciation and renunciation — let this be the one motto of your lives.
 "सर्वं वस्तु भयान्वितं भुवि नृणां वैराग्यमेवाभयम् — For men, all things
 on earth are infected with fear, Vairāgya (renunciation) alone
 constitutes fearlessness" (*Vairāgya-Shatakam*).
-
-

@@ -1,11 +1,7 @@
 ---
-title: THE PSYCHIC PRANA
+title: 019 THE PSYCHIC PRANA
 
 ---
-
-
-
-
   
 
 CHAPTER IV
@@ -183,5 +179,3 @@ the world to be the real power coiled up in every being, the mother of
 eternal happiness, if we but know how to approach her. And Rāja-Yoga is
 the science of religion, the rationale of all worship, all prayers,
 forms, ceremonies, and miracles.
-
-

@@ -1,9 +1,7 @@
 ---
-title: CCVI
+title: 1259 CCVI
 
 ---
-
-
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
@@ -53,5 +51,3 @@ VIVEKANANDA.
 [→](207_margo.htm)  
 [Addressee→](208_christina.htm)  
 [Chronology→](../../volume_5/epistles_first_series/113_joe.htm)
-
-

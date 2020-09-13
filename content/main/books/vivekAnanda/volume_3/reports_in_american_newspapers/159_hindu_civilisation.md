@@ -1,11 +1,7 @@
 ---
-title: HINDU CIVILISATION
+title: 159 HINDU CIVILISATION
 
 ---
-
-
-
-
   
 
 ## HINDU CIVILISATION
@@ -44,5 +40,3 @@ than much that was said.
 (It is clear from the above report that the American Press, for one
 reason or another, did not always give Swamiji an enthusiastic
 reception.)
-
-

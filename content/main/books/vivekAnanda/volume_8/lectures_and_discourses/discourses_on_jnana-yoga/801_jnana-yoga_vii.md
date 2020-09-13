@@ -1,11 +1,7 @@
 ---
-title: JNANA YOGA - VII
+title: 801 JNANA YOGA - VII
 
 ---
-
-
-
-
   
 
 ## JNANA YOGA - VII
@@ -179,5 +175,3 @@ Semitic origin. The great Aryans, Buddha among the rest, have always put
 woman in an equal position with man. For them sex in religion did not
 exist. In the Vedas and Upanishads, women taught the highest truths and
 received the same veneration as men.
-
-

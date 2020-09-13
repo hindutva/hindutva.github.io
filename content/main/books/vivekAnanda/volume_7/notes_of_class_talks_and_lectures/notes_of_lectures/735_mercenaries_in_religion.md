@@ -1,11 +1,7 @@
 ---
-title: MERCINARIES IN RELIGION
+title: 735 MERCINARIES IN RELIGION
 
 ---
-
-
-
-
   
 
 ## MERCINARIES IN RELIGION
@@ -116,5 +112,3 @@ When the people of the West "wanted" God in that manner, then they would
 be welcome in India, because the missionaries would then come to them
 with God, not with the idea that India knows not God, but with love in
 their hearts and not dogma.
-
-

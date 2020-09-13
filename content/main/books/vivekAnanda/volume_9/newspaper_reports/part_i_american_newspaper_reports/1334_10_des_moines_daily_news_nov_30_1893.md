@@ -1,9 +1,7 @@
 ---
-title: A PRAYER MEETING
+title: 1334 A PRAYER MEETING
 
 ---
-
-
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
 9](../../volume_9_contents.htm) / [Newspaper
@@ -23,5 +21,3 @@ more impressive that the minister is honest, earnest and believes what
 he says.
 
 [→](11_daily_iowa_capitol_nov_30_1893.htm)
-
-

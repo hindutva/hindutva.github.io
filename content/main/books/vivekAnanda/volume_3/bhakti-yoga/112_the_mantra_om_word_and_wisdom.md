@@ -1,11 +1,7 @@
 ---
-title: 'THE MANTRA: OM: WORD AND WISDOM'
+title: '112 THE MANTRA: OM: WORD AND WISDOM'
 
 ---
-
-
-
-
   
 
 CHAPTER VII
@@ -99,5 +95,3 @@ represents the Akhanda, the undifferentiated Brahman, the others
 represent the Khanda or the differentiated views of the same Being; and
 they are all helpful to divine meditation and the acquisition of true
 knowledge.
-
-

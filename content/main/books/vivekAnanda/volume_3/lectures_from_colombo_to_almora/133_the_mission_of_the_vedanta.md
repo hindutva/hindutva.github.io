@@ -1,11 +1,7 @@
 ---
-title: THE MISSION OF THE VEDANTA
+title: 133 THE MISSION OF THE VEDANTA
 
 ---
-
-
-
-
   
 
 ## THE MISSION OF THE VEDANTA
@@ -729,5 +725,3 @@ your success, you will have this satisfaction that you have lived,
 worked, and died for a great cause. In the success of this cause,
 howsoever brought about, is centred the salvation of humanity here and
 hereafter.
-
-

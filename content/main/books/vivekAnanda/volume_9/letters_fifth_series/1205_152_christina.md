@@ -1,9 +1,7 @@
 ---
-title: CLII
+title: 1205 CLII
 
 ---
-
-
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
@@ -46,5 +44,3 @@ V.
 [→](153_mrs_bull.htm)  
 [Addressee→](154_christina.htm)  
 [Chronology→](153_mrs_bull.htm)
-
-

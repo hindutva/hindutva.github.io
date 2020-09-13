@@ -1,11 +1,7 @@
 ---
-title: THE GITA III
+title: 045 THE GITA III
 
 ---
-
-
-
-
   
 
 ## THE GITA III
@@ -417,5 +413,3 @@ sees another, where it is all One, there is none to be miserable, none
 to be unhappy. (Chhāndogya, VII. xxiii-xxiv, (adapted)) \[There is
 only\] the One without a second. Therefore be not afraid. Awake, arise,
 and stop not till the goal is reached!
-
-

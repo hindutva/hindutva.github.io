@@ -1,11 +1,7 @@
 ---
-title: PAPER ON HINDUISM
+title: 002 PAPER ON HINDUISM
 
 ---
-
-
-
-
   
 
 ## PAPER ON HINDUISM
@@ -484,5 +480,3 @@ flag of harmony.
       
     Swami Vivekananda in The West — New Discoveries, Marie Louise Burke
     (Vol 1, Page 143).
-
-

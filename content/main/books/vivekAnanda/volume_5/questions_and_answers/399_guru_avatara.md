@@ -1,11 +1,7 @@
 ---
-title: VII
+title: 399 VII
 
 ---
-
-
-
-
   
 
 ## VII
@@ -163,5 +159,3 @@ however advanced, can claim this unique position. I do not see anyone
 who realises Ramakrishna as God. We sometimes feel it hazily, that is
 all. To realise Him as God and yet be attached to the world is
 inconsistent.
-
-

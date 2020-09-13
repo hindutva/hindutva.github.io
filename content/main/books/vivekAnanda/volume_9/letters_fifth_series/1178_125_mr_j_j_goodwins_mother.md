@@ -1,9 +1,7 @@
 ---
-title: CXXV
+title: 1178 CXXV
 
 ---
-
-
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
@@ -30,5 +28,3 @@ born, as it were, to live only for others.
 
 [→](126_your_highness.htm)  
 [Chronology→](../../volume_8/epistles_fourth_series/129_sturdy.htm)
-
-

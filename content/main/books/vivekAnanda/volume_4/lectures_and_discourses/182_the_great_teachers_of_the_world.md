@@ -1,11 +1,7 @@
 ---
-title: THE GREAT TEACHERS OF THE WORLD
+title: 182 THE GREAT TEACHERS OF THE WORLD
 
 ---
-
-
-
-
   
 
 ## THE GREAT TEACHERS OF THE WORLD
@@ -451,5 +447,3 @@ going to attain ours now. Remember the words of Jesus: "The Kingdom of
 Heaven is at hand!" This very moment let everyone of us make a staunch
 resolution: "I will become a Prophet, I will become a messenger of
 Light, I will become a child of God, nay, I will become a God!"
-
-

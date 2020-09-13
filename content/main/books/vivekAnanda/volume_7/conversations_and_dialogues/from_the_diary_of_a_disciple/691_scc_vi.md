@@ -1,11 +1,7 @@
 ---
-title: CONVERSATIONS AND DIALOGUES
+title: 691 CONVERSATIONS AND DIALOGUES
 
 ---
-
-
-
-
   
 
 ## CONVERSATIONS AND DIALOGUES
@@ -184,5 +180,3 @@ know; taking this sacramental food from you, I have become immortal."
 Thereupon Swamiji said, "I bless you that from this day all your egoism
 of caste, colour, high birth, religious merit and demerit, and all, may
 vanish for ever!". . .
-
-

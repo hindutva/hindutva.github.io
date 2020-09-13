@@ -1,13 +1,9 @@
 ---
-title: 'RECORDED BY MISS S. E. WALDO
+title: '667 RECORDED BY MISS S. E. WALDO
 
   (A DISCIPLE)'
 
 ---
-
-
-
-
   
 
 ## RECORDED BY MISS S. E. WALDO (A DISCIPLE)
@@ -57,5 +53,3 @@ find the pole-star by locating it through the stars that are around it.
 \*    \*    \*
 
 The Bhagavad-Gita is the best authority on Vedanta.
-
-

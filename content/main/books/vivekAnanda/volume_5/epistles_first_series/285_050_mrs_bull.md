@@ -1,11 +1,7 @@
 ---
-title: L
+title: 285 L
 
 ---
-
-
-
-
   
 
   
@@ -46,5 +42,3 @@ all have to become men again in order to become God. . . .
 Yours etc.,
 
 VIVEKANANDA.
-
-

@@ -1,11 +1,7 @@
 ---
-title: XIV
+title: 870 XIV
 
 ---
-
-
-
-
   
 
   
@@ -52,5 +48,3 @@ lost in Him and Him alone. Amen!
 
 Yours affectionately,  
 VIVEKANANDA.
-
-

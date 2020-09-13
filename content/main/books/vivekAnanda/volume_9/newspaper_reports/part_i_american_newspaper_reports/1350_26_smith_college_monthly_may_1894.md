@@ -1,9 +1,7 @@
 ---
-title: "AT SMITH COLLEGE, NORTHAMPTON,\n MASSACHUSETTS"
+title: "1350 AT SMITH COLLEGE, NORTHAMPTON,\n MASSACHUSETTS"
 
 ---
-
-
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
 9](../../volume_9_contents.htm) / [Newspaper
@@ -19,5 +17,3 @@ well in the old Hindoo story, who, having lived for a long time in a
 small place, at last denied the existence of a larger space.
 
 [→](27_ny_daily_tribune_may_3_1894.htm)
-
-

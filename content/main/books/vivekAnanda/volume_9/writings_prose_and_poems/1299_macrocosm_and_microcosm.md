@@ -1,9 +1,7 @@
 ---
-title: MACROCOSM AND MICROCOSM
+title: 1299 MACROCOSM AND MICROCOSM
 
 ---
-
-
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Writings: Prose and
 Poems](writings_prose_and_poems_contents.htm) /
@@ -31,5 +29,3 @@ or feel is this combination of the Eternally Formed and the Eternally
 Formless.
 
 [→](footnotes.htm)
-
-

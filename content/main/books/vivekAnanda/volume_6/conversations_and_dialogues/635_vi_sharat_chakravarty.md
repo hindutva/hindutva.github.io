@@ -1,11 +1,7 @@
 ---
-title: VI
+title: 635 VI
 
 ---
-
-
-
-
   
 
 ## VI
@@ -287,5 +283,3 @@ virtues and defects of men and women there, their luxury and so on.
     Mother, the use of to word "here" by Shri Ramakrishna would often
     stand for the ordinary reference to self. By "here" is evidently
     meant the centre of the Mother's self-revelation.
-
-

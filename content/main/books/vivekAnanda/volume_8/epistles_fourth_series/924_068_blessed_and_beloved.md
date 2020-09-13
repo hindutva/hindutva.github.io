@@ -1,11 +1,7 @@
 ---
-title: LXVIII
+title: 924 LXVIII
 
 ---
-
-
-
-
   
 
   
@@ -66,5 +62,3 @@ alone. . . .
 Ever yours with love and blessings,
 
 VIVEKANANDA.
-
-

@@ -1,11 +1,7 @@
 ---
-title: SAYINGS AND UTTERANCES
+title: 404 SAYINGS AND UTTERANCES
 
 ---
-
-
-
-
   
 
 ## SAYINGS AND UTTERANCES
@@ -493,5 +489,3 @@ meanings of its different portions, and that the whole structure bears
 evidence to the predominant nature and ideal of the owner thereof. This
 sort of expressive architecture I have seen nowhere else except in
 Italy."
-
-

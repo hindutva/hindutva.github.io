@@ -1,11 +1,7 @@
 ---
-title: WORK AND ITS SECRET
+title: 051 WORK AND ITS SECRET
 
 ---
-
-
-
-
   
 
 ## WORK AND ITS SECRET
@@ -269,5 +265,3 @@ attending to others for a time. Let us perfect the means; the end will
 take care of itself. For the world can be good and pure, only if our
 lives are good and pure. It is an effect, and we are the means.
 Therefore, let us purify ourselves. Let us make ourselves perfect.
-
-

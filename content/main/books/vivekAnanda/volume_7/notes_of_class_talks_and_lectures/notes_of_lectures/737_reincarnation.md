@@ -1,11 +1,7 @@
 ---
-title: REINCARNATION
+title: 737 REINCARNATION
 
 ---
-
-
-
-
   
 
 ## REINCARNATION
@@ -91,5 +87,3 @@ applauded.
 
 Swami Vive Kananda will lecture again this afternoon at 4 o'clock at La
 Salette Academy on "The Manners and Customs of India."
-
-

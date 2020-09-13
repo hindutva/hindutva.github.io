@@ -1,11 +1,7 @@
 ---
-title: PRACTICAL VEDANTA
+title: 073 PRACTICAL VEDANTA
 
 ---
-
-
-
-
   
 
 ## PRACTICAL VEDANTA
@@ -391,5 +387,3 @@ chains are bursting asunder, and the day is sure to come when, with the
 full consciousness of his infinite power and wisdom, the giant will rise
 to his feet and stand erect. Let us all help to hasten that glorious
 consummation.
-
-

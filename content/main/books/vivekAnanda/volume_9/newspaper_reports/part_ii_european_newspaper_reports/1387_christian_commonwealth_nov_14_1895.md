@@ -1,9 +1,7 @@
 ---
-title: THE CHRISTIAN COMMONWEALTH
+title: 1387 THE CHRISTIAN COMMONWEALTH
 
 ---
-
-
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
 9](../../volume_9_contents.htm) / [Newspaper
@@ -27,5 +25,3 @@ purpose of evading punishments, but at the same time he sees the
 ultimate consequences of all actions. . . .
 
 [→](the_queen_nov_23_1895.htm)
-
-

@@ -1,11 +1,7 @@
 ---
-title: 'GOD: PERSONAL AND IMPERSONAL'
+title: '834 GOD: PERSONAL AND IMPERSONAL'
 
 ---
-
-
-
-
   
 
 ## GOD: PERSONAL AND IMPERSONAL
@@ -58,5 +54,3 @@ as his vision gets higher, as the Governor of the planet; still higher
 as the Governor of the universe, and the highest man sees Him as
 himself. It was the same God, and the different realisations were only
 degrees and differences of vision.
-
-

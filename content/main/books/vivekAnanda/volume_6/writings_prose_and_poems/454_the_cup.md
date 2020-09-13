@@ -1,11 +1,7 @@
 ---
-title: 'THE CUP '
+title: '454 THE CUP '
 
 ---
-
-
-
-
   
 
 ## THE CUP
@@ -28,5 +24,3 @@ But it is not meant for any other hand,
 And in My universe hath measured place,  
 Take it. I do not bid you understand.  
 I bid you close your eyes to see My face.
-
-

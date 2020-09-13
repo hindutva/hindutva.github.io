@@ -1,13 +1,9 @@
 ---
-title: 'RECORDED BY MISS S. E. WALDO
+title: '664 RECORDED BY MISS S. E. WALDO
 
   (A DISCIPLE)'
 
 ---
-
-
-
-
   
 
 ## RECORDED BY MISS S. E. WALDO (A DISCIPLE)
@@ -30,5 +26,3 @@ The Dravidians were a non-Aryan race of Central Asia who preceded the
 Aryans, and those of Southern India were the most civilised. Women with
 them stood higher than men. They subsequently divided, some going to
 Egypt, others to Babylonia, and the rest remaining in India.
-
-

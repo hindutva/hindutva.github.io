@@ -1,11 +1,7 @@
 ---
-title: XXXV
+title: 496 XXXV
 
 ---
-
-
-
-
   
 
   
@@ -24,5 +20,3 @@ DEAR GOVINDA SAHAY,
 Yours with love,
 
 VIVEKANANDA.
-
-

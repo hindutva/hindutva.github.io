@@ -1,11 +1,7 @@
 ---
-title: XVI
+title: 757 XVI
 
 ---
-
-
-
-
   
 
   
@@ -29,5 +25,3 @@ I am coming home by May 7th.
 Yours truly,
 
 VIVEKANANDA.
-
-

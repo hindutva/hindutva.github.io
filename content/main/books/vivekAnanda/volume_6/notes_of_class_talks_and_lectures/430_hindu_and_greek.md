@@ -1,11 +1,7 @@
 ---
-title: HINDU AND GREEK
+title: 430 HINDU AND GREEK
 
 ---
-
-
-
-
   
 
 ## HINDU AND GREEK
@@ -29,5 +25,3 @@ in Europe (where the Greek civilisation finds its continuation) the
 country comes first. To care only for spiritual liberty and not for
 social liberty is a defect, but the opposite is a still greater defect.
 Liberty of both soul and body is to be striven for.
-
-

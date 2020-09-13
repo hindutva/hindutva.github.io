@@ -1,11 +1,7 @@
 ---
-title: LXXVII
+title: 312 LXXVII
 
 ---
-
-
-
-
   
 
   
@@ -127,5 +123,3 @@ This is the constant prayer of
 VIVEKANANDA.
 
 Ever bound to thee in love.
-
-

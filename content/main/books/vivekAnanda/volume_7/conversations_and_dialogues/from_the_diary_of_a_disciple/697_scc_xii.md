@@ -1,11 +1,7 @@
 ---
-title: CONVERSATIONS AND DIALOGUES
+title: 697 CONVERSATIONS AND DIALOGUES
 
 ---
-
-
-
-
   
 
 ## CONVERSATIONS AND DIALOGUES
@@ -202,5 +198,3 @@ three Yugas (ages) ahead. Ever since the advent of Shri Ramakrishna the
 eastern horizon has been aglow with the dawning rays of the sun which in
 course of time will illumine the country with the splendour of the
 midday sun."
-
-

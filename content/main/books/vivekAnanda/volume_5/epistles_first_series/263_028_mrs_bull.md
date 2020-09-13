@@ -1,11 +1,7 @@
 ---
-title: XXVIII
+title: 263 XXVIII
 
 ---
-
-
-
-
   
 
   
@@ -51,5 +47,3 @@ VIVEKANANDA.
   
 PS. I saw Miss Couring at Brooklyn. She was as kind as ever. Give her my
 love if you write her soon.
-
-

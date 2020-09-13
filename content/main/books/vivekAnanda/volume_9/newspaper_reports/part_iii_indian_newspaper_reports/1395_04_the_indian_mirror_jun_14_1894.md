@@ -1,9 +1,7 @@
 ---
-title: ON CHRISTIAN CONVERSION
+title: 1395 ON CHRISTIAN CONVERSION
 
 ---
-
-
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
 9](../../volume_9_contents.htm) / [Newspaper
@@ -41,5 +39,3 @@ dare call me the same in India?
 . . . . .
 
 [→](05_the_indian_mirror_jul_20_1894.htm)
-
-

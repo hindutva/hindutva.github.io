@@ -1,11 +1,7 @@
 ---
-title: XXIII
+title: 764 XXIII
 
 ---
-
-
-
-
   
 
 
@@ -233,5 +229,3 @@ public man. Everybody is watching, particularly the clergy.
 Yours faithfully,
 
 VIVEKANANDA.
-
-

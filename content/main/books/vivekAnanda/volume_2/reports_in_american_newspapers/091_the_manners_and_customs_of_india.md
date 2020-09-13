@@ -1,11 +1,7 @@
 ---
-title: THE MANNERS AND CUSTOMS OF INDIA
+title: 091 THE MANNERS AND CUSTOMS OF INDIA
 
 ---
-
-
-
-
   
 
 ## THE MANNERS AND CUSTOMS OF INDIA
@@ -64,5 +60,3 @@ standard. That is nonsense.
 In reference to the matter of education, the speaker said that the
 educated men of India become professors, while the less educated become
 priests.
-
-

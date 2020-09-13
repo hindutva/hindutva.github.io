@@ -1,11 +1,7 @@
 ---
-title: VI
+title: 862 VI
 
 ---
-
-
-
-
   
 
   
@@ -35,5 +31,3 @@ VIVEKANANDA.
 
 PS. At Nadiad I met Mr. Manilal Nabhubhai. He is a very learned and
 pious gentleman, and I enjoyed his company much.
-
-

@@ -1,11 +1,7 @@
 ---
-title: THE POWERS OF THE MIND
+title: 052 THE POWERS OF THE MIND
 
 ---
-
-
-
-
   
 
 ## THE POWERS OF THE MIND
@@ -433,5 +429,3 @@ that, merely attending lectures will not do. That cannot be taught in
 lectures, for it is life; and life can only convey life. If there are
 any amongst you who are really determined to learn it, I shall be very
 glad to help them.
-
-

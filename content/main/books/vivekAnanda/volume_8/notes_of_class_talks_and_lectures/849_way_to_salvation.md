@@ -1,11 +1,7 @@
 ---
-title: WAY TO SALVATION
+title: 849 WAY TO SALVATION
 
 ---
-
-
-
-
   
 
 ## WAY TO SALVATION
@@ -63,5 +59,3 @@ way about your God? When you can give up money, friends, fathers and
 mothers, brothers and sisters, all that is in the world and only pray to
 God that He grant you something of His love, then you have found
 salvation.
-
-

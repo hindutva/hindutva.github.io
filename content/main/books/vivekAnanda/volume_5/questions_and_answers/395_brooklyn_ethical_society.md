@@ -1,11 +1,7 @@
 ---
-title: III
+title: 395 III
 
 ---
-
-
-
-
   
 
 ## III
@@ -95,5 +91,3 @@ man there would be no controlling him?
 
 *A*. — No! On the contrary, I think he is made far better through love
 and hope than through fear.
-
-

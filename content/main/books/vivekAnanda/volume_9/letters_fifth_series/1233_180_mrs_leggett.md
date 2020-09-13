@@ -1,9 +1,7 @@
 ---
-title: CLXXX
+title: 1233 CLXXX
 
 ---
-
-
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
@@ -20,5 +18,3 @@ VIVEKANANDA".\]
 [→](181_christine.htm)  
 [Addressee→](../../volume_6/epistles_second_series/163_mother.htm)  
 [Chronology→](../../volume_8/epistles_fourth_series/189_hari.htm)
-
-

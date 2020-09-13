@@ -1,11 +1,7 @@
 ---
-title: THE OPEN SECRET
+title: 077 THE OPEN SECRET
 
 ---
-
-
-
-
   
 
 ## THE OPEN SECRET
@@ -264,5 +260,3 @@ I am It." Think of it, dream of it, until it becomes bone of your bones
 and; flesh of your flesh, until all the hideous dreams of littleness, of
 weakness, of misery, and of evil, have entirely vanished, and no more
 then can the Truth be hidden from you even for a moment.
-
-

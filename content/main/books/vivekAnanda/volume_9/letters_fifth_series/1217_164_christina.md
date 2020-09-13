@@ -1,9 +1,7 @@
 ---
-title: CLXIV
+title: 1217 CLXIV
 
 ---
-
-
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
@@ -41,5 +39,3 @@ VIVEKANANDA.
 [→](165_sister_christine.htm)  
 [Addressee→](165_sister_christine.htm)  
 [Chronology→](../../volume_7/epistles_third_series/48_mother.htm)
-
-

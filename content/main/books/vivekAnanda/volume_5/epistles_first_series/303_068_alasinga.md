@@ -1,11 +1,7 @@
 ---
-title: LXVIII
+title: 303 LXVIII
 
 ---
-
-
-
-
   
 
   
@@ -112,5 +108,3 @@ the world!
 Yours ever with love,
 
 VIVEKANANDA.
-
-

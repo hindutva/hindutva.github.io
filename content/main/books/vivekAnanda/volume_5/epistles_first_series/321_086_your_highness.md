@@ -1,11 +1,7 @@
 ---
-title: LXXXVI
+title: 321 LXXXVI
 
 ---
-
-
-
-
   
 
   
@@ -33,5 +29,3 @@ With all love and everlasting blessings,
 Ever yours in the Lord,
 
 VIVEKANANDA.
-
-

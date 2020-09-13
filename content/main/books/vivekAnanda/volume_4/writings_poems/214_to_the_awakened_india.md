@@ -1,11 +1,7 @@
 ---
-title: TO THE AWAKENED INDIA
+title: 214 TO THE AWAKENED INDIA
 
 ---
-
-
-
-
   
 
 ## TO THE AWAKENED INDIA
@@ -74,5 +70,3 @@ Primal nothingness. Be bold, and face
 The Truth! Be one with it! Let visions cease,  
 Or, if you cannot, dream but truer dreams,  
 Which are Eternal Love and Service Free.
-
-

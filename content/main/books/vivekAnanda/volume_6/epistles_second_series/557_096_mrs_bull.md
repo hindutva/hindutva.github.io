@@ -1,11 +1,7 @@
 ---
-title: XCVI
+title: 557 XCVI
 
 ---
-
-
-
-
   
 
   
@@ -33,5 +29,3 @@ this.
 Yours with kind regards,
 
 VIVEKANANDA.
-
-

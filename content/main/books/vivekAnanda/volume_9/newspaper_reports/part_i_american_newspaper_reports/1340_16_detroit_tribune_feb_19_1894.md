@@ -1,9 +1,7 @@
 ---
-title: A GOD EVERY DAY1
+title: 1340 A GOD EVERY DAY1
 
 ---
-
-
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
 9](../../volume_9_contents.htm) / [Newspaper

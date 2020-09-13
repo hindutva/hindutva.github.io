@@ -1,11 +1,7 @@
 ---
-title: WORLD-WIDE UNITY
+title: 391 WORLD-WIDE UNITY
 
 ---
-
-
-
-
   
 
 ## WORLD-WIDE UNITY
@@ -24,5 +20,3 @@ In fact, Jesus Christ was willing to admit every good man to the family
 of God. It is not the man who believes a certain something, but the man
 who does the will of the Father in heaven, who is right. On this basis —
 being right and doing right — the whole world can unite.
-
-

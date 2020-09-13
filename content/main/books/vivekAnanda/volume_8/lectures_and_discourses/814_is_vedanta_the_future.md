@@ -1,11 +1,7 @@
 ---
-title: IS VEDANTA THE FUTURE RELIGION?
+title: 814 IS VEDANTA THE FUTURE RELIGION?
 
 ---
-
-
-
-
   
 
 ## IS VEDANTA THE FUTURE RELIGION?
@@ -630,5 +626,3 @@ still hypnotised into abject degradation. However, there are some strong
 souls who get over that illusion. The hour comes when great men shall
 arise and cast off these kindergartens of religion and shall make vivid
 and powerful the true religion, the worship of the spirit by the spirit.
-
-

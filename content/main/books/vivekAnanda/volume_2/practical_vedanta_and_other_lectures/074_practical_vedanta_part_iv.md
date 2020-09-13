@@ -1,11 +1,7 @@
 ---
-title: PRACTICAL VEDANTA
+title: 074 PRACTICAL VEDANTA
 
 ---
-
-
-
-
   
 
 ## PRACTICAL VEDANTA
@@ -554,5 +550,3 @@ when every man will be a worshipper, and the Reality in every man will
 be the object of worship.
 
 1.  [^](#txt1)![](practical_vedanta_part_iv.jpg)
-
-

@@ -1,11 +1,7 @@
 ---
-title: 'CONVERSATIONS AND DIALOGUES '
+title: '695 CONVERSATIONS AND DIALOGUES '
 
 ---
-
-
-
-
   
 
 ## CONVERSATIONS AND DIALOGUES
@@ -168,5 +164,3 @@ on others in everything. When the necessity of strengthening the
 physique is brought home to people, they will exert themselves of their
 own accord. It is to make them feel this need that education is
 necessary at the present moment.
-
-

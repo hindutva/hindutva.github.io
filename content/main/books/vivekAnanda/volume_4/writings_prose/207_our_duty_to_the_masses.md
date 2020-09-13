@@ -1,11 +1,7 @@
 ---
-title: OUR DUTY TO THE MASSES
+title: 207 OUR DUTY TO THE MASSES
 
 ---
-
-
-
-
   
 
 
@@ -105,5 +101,3 @@ That the Lord may make your noble heart feel intensely for the suffering
 millions of India, sunk in ignorance, is the prayer of —
 
 VIVEKANANDA.
-
-

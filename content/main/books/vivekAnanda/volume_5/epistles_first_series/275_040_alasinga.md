@@ -1,11 +1,7 @@
 ---
-title: XL
+title: 275 XL
 
 ---
-
-
-
-
   
 
   
@@ -36,5 +32,3 @@ secret of success in a good cause.
 Ever yours with blessings,
 
 VIVEKANANDA.
-
-

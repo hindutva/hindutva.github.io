@@ -1,11 +1,7 @@
 ---
-title: INDIA'S MESSAGE TO THE WORLD
+title: 201 INDIA'S MESSAGE TO THE WORLD
 
 ---
-
-
-
-
   
 
 ## INDIA'S MESSAGE TO THE WORLD
@@ -312,5 +308,3 @@ The problem assumes a twofold aspect, not only spiritualisation but
 assimilation of the various elements of which the nation is composed.
 The assimilation of different races into one has been the common task in
 the life of every nation.
-
-

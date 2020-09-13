@@ -1,11 +1,7 @@
 ---
-title: ON PROFESSOR MAX MÜLLER
+title: 197 ON PROFESSOR MAX MÜLLER
 
 ---
-
-
-
-
   
 
 ## ON PROFESSOR MAX MÜLLER
@@ -154,5 +150,3 @@ rooted in his heart."
 
 His life has been a blessing to the world; and may it be many, many
 years more, before he changes the present plane of his existence!
-
-

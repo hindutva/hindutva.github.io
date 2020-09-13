@@ -1,11 +1,7 @@
 ---
-title: XIII
+title: 754 XIII
 
 ---
-
-
-
-
   
 
   
@@ -48,5 +44,3 @@ friends in the east, kindly give them my deepest respects.
 Yours truly,
 
 VIVEKANANDA.
-
-

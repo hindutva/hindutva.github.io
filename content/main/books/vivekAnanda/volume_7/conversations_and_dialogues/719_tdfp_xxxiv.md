@@ -1,11 +1,7 @@
 ---
-title: 'CONVERSATIONS AND DIALOGUE '
+title: '719 CONVERSATIONS AND DIALOGUE '
 
 ---
-
-
-
-
   
 
 ## CONVERSATIONS AND DIALOGUE
@@ -169,5 +165,3 @@ world is his well. The Mohammedan sits in his well and thinks the whole
 world that. I have to thank you of America for the great attempt you are
 making to break down the barriers of this little world of ours, and hope
 that, in the future, the Lord will help you to accomplish that purpose."
-
-

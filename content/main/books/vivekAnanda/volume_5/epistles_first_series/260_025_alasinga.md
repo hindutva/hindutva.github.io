@@ -1,11 +1,7 @@
 ---
-title: XXV
+title: 260 XXV
 
 ---
-
-
-
-
   
 
   
@@ -95,5 +91,3 @@ been always the instruments of the Most High. The Lord bless you all.
 With all love,
 
 VIVEKANANDA.
-
-

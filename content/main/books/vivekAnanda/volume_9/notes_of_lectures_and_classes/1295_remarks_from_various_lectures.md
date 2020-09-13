@@ -1,9 +1,7 @@
 ---
-title: REMARKS FROM VARIOUS LECTURES
+title: 1295 REMARKS FROM VARIOUS LECTURES
 
 ---
-
-
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Notes of Lectures and
 Classes](notes_of_lectures_and_classes_contents.htm) /
@@ -36,5 +34,3 @@ Say to your soul in regard to vanities, weaknesses, etc., "This does not
 befit thee. This does not befit thee".
 
 [→](../writings_prose_and_poems/writings_prose_and_poems_contents.htm)
-
-

@@ -1,11 +1,7 @@
 ---
-title: ON THE VEDANTA PHILOSOPHY
+title: 388 ON THE VEDANTA PHILOSOPHY
 
 ---
-
-
-
-
   
 
 ## ON THE VEDANTA PHILOSOPHY
@@ -185,5 +181,3 @@ could be near a catamaran. So in the Vedantic ocean a real Yogi can be
 by the side of an idolater or even an atheist. What is more, in the
 Vedantic ocean, the Hindu, Mohammedan, Christian, and Parsee are all
 one, all children of the Almighty God.
-
-

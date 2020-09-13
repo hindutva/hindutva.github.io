@@ -1,11 +1,7 @@
 ---
-title: REPLY TO THE MADRAS ADDRESS
+title: 204 REPLY TO THE MADRAS ADDRESS
 
 ---
-
-
-
-
   
 
 ## REPLY TO THE MADRAS ADDRESS
@@ -734,5 +730,3 @@ VIVEKANANDA.
     on, till by several steps, he succeeds in leading her eyes to the
     right thing. This method of leading to a subtle object through easy
     and gradual steps is called Arundhati Nyaya.
-
-

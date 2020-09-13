@@ -1,11 +1,7 @@
 ---
-title: XLVII
+title: 788 XLVII
 
 ---
-
-
-
-
   
 
   
@@ -54,5 +50,3 @@ Ever with love,
 Your father,
 
 VIVEKANANDA.  
-
-

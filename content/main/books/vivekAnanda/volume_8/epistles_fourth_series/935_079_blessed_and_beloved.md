@@ -1,11 +1,7 @@
 ---
-title: LXXIX
+title: 935 LXXIX
 
 ---
-
-
-
-
   
 
   
@@ -47,5 +43,3 @@ about the plan you and Prof. Max Muller decide upon. "A great tree is to
 be taken refuge in, when it has both fruits and shade. If, however, we
 do not get the fruit, who prevents our enjoyment of the shade?" So ought
 great attempts to be made, is the moral.
-
-

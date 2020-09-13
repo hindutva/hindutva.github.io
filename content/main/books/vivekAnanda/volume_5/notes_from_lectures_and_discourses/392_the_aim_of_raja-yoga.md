@@ -1,11 +1,7 @@
 ---
-title: THE AIM OF RAJA-YOGA
+title: 392 THE AIM OF RAJA-YOGA
 
 ---
-
-
-
-
   
 
 ## THE AIM OF RAJA-YOGA
@@ -37,5 +33,3 @@ end to be attained is well worth all that it can cost us to reach it;
 being nothing less than the realisation of our absolute oneness with the
 Divine. Surely, with this end in view, and with the knowledge that we
 can certainly succeed, no price can be too great to pay.
-
-

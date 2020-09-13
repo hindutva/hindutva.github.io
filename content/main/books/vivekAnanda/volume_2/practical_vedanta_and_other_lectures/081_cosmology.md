@@ -1,11 +1,7 @@
 ---
-title: COSMOLOGY
+title: 081 COSMOLOGY
 
 ---
-
-
-
-
   
 
 ## COSMOLOGY
@@ -311,5 +307,3 @@ suggestion I project my mind; and it takes the form that I see. How do
 we all see the same things? Because we all have; similar parts of the
 cosmic mind. Those who have like minds will see like things, and those
 who have not will not see alike.
-
-

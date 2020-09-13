@@ -1,11 +1,7 @@
 ---
-title: LXVII
+title: 528 LXVII
 
 ---
-
-
-
-
   
 
   
@@ -30,5 +26,3 @@ ten days and go to the Thousand Island Park. I will meditate by the hour
 there and be all alone to myself. The very idea is ennobling.
 
 VIVEKANANDA.
-
-

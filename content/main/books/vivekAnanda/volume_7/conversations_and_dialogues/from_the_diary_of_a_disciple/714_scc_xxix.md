@@ -1,11 +1,7 @@
 ---
-title: 'CONVERSATIONS AND DIALOGUES '
+title: '714 CONVERSATIONS AND DIALOGUES '
 
 ---
-
-
-
-
   
 
 ## CONVERSATIONS AND DIALOGUES
@@ -154,5 +150,3 @@ Seven days after this, Swamiji passed away from mortal life. The
 disciple had no knowledge of the impending catastrophe. Getting the news
 on the second day of Swamiji's passing away, he came to the Math, and
 therefore he had not the good fortune to see his physical form again!
-
-

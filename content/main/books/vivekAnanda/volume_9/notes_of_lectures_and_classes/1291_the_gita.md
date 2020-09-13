@@ -1,9 +1,7 @@
 ---
-title: THE GITA
+title: 1291 THE GITA
 
 ---
-
-
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Notes of Lectures and
 Classes](notes_of_lectures_and_classes_contents.htm) /
@@ -83,5 +81,3 @@ stories are told of him, but I do not believe them."
 if he never did. There would have been one less god in the world."
 
 [→](the_gita_i.htm)
-
-

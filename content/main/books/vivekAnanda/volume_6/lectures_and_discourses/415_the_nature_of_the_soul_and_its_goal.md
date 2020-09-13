@@ -1,11 +1,7 @@
 ---
-title: THE NATURE OF THE SOUL AND ITS GOAL
+title: 415 THE NATURE OF THE SOUL AND ITS GOAL
 
 ---
-
-
-
-
   
 
 ## THE NATURE OF THE SOUL AND ITS GOAL
@@ -287,5 +283,3 @@ glory and majesty was its own Self, and it indeed was that reality. The
 soul then finds That which is true in everything. That which is in every
 atom, everywhere present, the essence of all things, the God of this
 universe — know that thou art He, know that thou art free.
-
-

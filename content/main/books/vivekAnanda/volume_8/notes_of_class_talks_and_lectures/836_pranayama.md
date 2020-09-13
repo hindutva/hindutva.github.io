@@ -1,11 +1,7 @@
 ---
-title: PRANAYAMA
+title: 836 PRANAYAMA
 
 ---
-
-
-
-
   
 
 ## PRANAYAMA
@@ -167,5 +163,3 @@ you go on practicing. The whole body will have to be rearranged as it
 were. New channels for thought will be made in the brain, nerves which
 have not acted in your whole life will begin to work, and a whole new
 series of changes will come in the body itself.
-
-

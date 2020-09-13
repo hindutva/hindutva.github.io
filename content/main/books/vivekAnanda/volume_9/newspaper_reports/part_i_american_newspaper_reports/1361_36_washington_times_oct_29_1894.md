@@ -1,9 +1,7 @@
 ---
-title: LOVE RELIGION'S ESSENCE
+title: 1361 LOVE RELIGION'S ESSENCE
 
 ---
-
-
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
 9](../../volume_9_contents.htm) / [Newspaper
@@ -137,5 +135,3 @@ alone that can conquer hatred. If there is power in hate there is
 infinitely more power in love.
 
 [→](37_washington_times_nov_2_1894.htm)
-
-

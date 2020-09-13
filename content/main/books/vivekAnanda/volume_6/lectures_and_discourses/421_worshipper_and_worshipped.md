@@ -1,11 +1,7 @@
 ---
-title: WORSHIPPER AND WORSHIPPED
+title: 421 WORSHIPPER AND WORSHIPPED
 
 ---
-
-
-
-
   
 
 ## WORSHIPPER AND WORSHIPPED
@@ -313,5 +309,3 @@ Omnipresent, the Omniscient, and so on. And above all, He is Love. How
 is \[the soul\] to attain this perfection? By worship. 
 
 (*Vedanta and the West*, July-Aug. 1955).
-
-

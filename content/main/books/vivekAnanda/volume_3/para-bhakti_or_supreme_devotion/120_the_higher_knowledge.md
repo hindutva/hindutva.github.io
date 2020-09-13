@@ -1,13 +1,9 @@
 ---
-title: 'THE HIGHER KNOWLEDGE AND THE HIGHER LOVE ARE ONE TO THE TRUE
+title: '120 THE HIGHER KNOWLEDGE AND THE HIGHER LOVE ARE ONE TO THE TRUE
 
   LOVER'
 
 ---
-
-
-
-
   
 
 CHAPTER VI
@@ -61,5 +57,3 @@ love to love is undeniably the highest and the most unselfish
 manifestation of love that may be seen in the world. Such love, working
 itself out on the plane of spirituality, necessarily leads to the
 attainment of Para-Bhakti.
-
-

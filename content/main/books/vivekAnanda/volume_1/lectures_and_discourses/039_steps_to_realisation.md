@@ -1,11 +1,7 @@
 ---
-title: STEPS TO REALISATION
+title: 039 STEPS TO REALISATION
 
 ---
-
-
-
-
   
 
 ## STEPS TO REALISATION
@@ -370,5 +366,3 @@ centre, which is God. The highest as well as the lowest life God ever
 projected, will come back to the Father of all lives. "From whom all
 beings are projected, in whom all live, and unto whom they all return;
 that is God."
-
-

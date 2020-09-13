@@ -1,11 +1,7 @@
 ---
-title: XXVI
+title: 767 XXVI
 
 ---
-
-
-
-
   
 
   
@@ -50,5 +46,3 @@ mind. . . .
 Ever yours in love,
 
 VIVEKANANDA.
-
-

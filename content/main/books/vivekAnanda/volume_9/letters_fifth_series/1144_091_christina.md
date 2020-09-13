@@ -1,9 +1,7 @@
 ---
-title: XCI
+title: 1144 XCI
 
 ---
-
-
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
@@ -40,5 +38,3 @@ VIVEKANANDA
 [→](092_mrs_bull.htm)  
 [Addressee→](098_blessed_and_beloved.htm)  
 [Chronology→](../../volume_7/epistles_third_series/32_dear.htm)
-
-

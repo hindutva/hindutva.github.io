@@ -1,11 +1,7 @@
 ---
-title: ADDRESS AT THE FINAL SESSION
+title: 006 ADDRESS AT THE FINAL SESSION
 
 ---
-
-
-
-
   
 
 ## ADDRESS AT THE FINAL SESSION
@@ -54,5 +50,3 @@ bottom of my heart, and point out to him that upon the banner of every
 religion will soon be written, in spite of resistance: "Help and not
 Fight," "Assimilation and not Destruction," "Harmony and Peace and not
 Dissension."
-
-

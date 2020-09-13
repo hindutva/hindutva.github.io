@@ -1,11 +1,7 @@
 ---
-title: I
+title: 393 I
 
 ---
-
-
-
-
   
 
 ## I
@@ -477,5 +473,3 @@ both consciousness and unconsciousness. The man who attains that state
 has all that we call knowledge. When he wants to realise that
 consciousness of knowledge, he has to go a step lower. Knowledge is a
 lower state; it is only in Maya that we can have knowledge.
-
-

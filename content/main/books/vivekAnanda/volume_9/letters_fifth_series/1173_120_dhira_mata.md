@@ -1,9 +1,7 @@
 ---
-title: CXX
+title: 1173 CXX
 
 ---
-
-
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) /[Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
@@ -66,5 +64,3 @@ VIVEKANANDA
 [→](121_jagmohan.htm)  
 [Addressee→](124_miss_macleod_mrs_bull.htm)  
 [Chronology→](121_jagmohan.htm)
-
-

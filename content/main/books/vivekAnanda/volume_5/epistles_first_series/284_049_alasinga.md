@@ -1,11 +1,7 @@
 ---
-title: IL
+title: 284 IL
 
 ---
-
-
-
-
   
 
   
@@ -49,5 +45,3 @@ bless you.
 Ever yours with blessings,
 
 VIVEKANANDA.
-
-

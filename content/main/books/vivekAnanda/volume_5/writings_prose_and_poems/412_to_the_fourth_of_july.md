@@ -1,11 +1,7 @@
 ---
-title: TO THE FOURTH OF JULY
+title: 412 TO THE FOURTH OF JULY
 
 ---
-
-
-
-
   
 
 ## TO THE FOURTH OF JULY
@@ -48,5 +44,3 @@ Till every land reflects thy light,
 Till men and women, with uplifted head,  
 Behold their shackles broken, and  
 Know, in springing joy, their life renewed!
-
-

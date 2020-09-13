@@ -1,9 +1,7 @@
 ---
-title: CLIV
+title: 1207 CLIV
 
 ---
-
-
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
@@ -37,5 +35,3 @@ VIVEKANANDA.
 [→](155_dhira_mata.htm)  
 [Addressee→](159_christina.htm)  
 [Chronology→](../../volume_7/epistles_third_series/44_sturdy.htm)
-
-

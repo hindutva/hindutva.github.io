@@ -1,11 +1,7 @@
 ---
-title: THE IDEAL OF A UNIVERSAL RELIGION
+title: 076 THE IDEAL OF A UNIVERSAL RELIGION
 
 ---
-
-
-
-
   
 
 ## THE IDEAL OF A UNIVERSAL RELIGION
@@ -652,5 +648,3 @@ Religion is realisation; not talk, nor doctrine, nor theories, however
 beautiful they may be. It is being and becoming, not hearing or
 acknowledging; it is the whole soul becoming changed into what it
 believes. That is religion.
-
-

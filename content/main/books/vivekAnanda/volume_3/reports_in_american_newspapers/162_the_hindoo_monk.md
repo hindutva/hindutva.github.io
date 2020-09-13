@@ -1,11 +1,7 @@
 ---
-title: THE HINDOO MONK
+title: 162 THE HINDOO MONK
 
 ---
-
-
-
-
   
 
 ## THE HINDOO MONK
@@ -62,5 +58,3 @@ Yesterday afternoon he lectured before a large and fashionable audience
 composed of the members of the Nineteenth Century Club in the rooms of
 the club in the Randolph Building. Tonight he will be heard at the
 Auditorium on "Hindooism".
-
-

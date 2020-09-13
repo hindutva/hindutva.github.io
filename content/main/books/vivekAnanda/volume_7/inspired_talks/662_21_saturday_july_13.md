@@ -1,13 +1,9 @@
 ---
-title: 'RECORDED BY MISS S. E. WALDO
+title: '662 RECORDED BY MISS S. E. WALDO
 
   (A DISCIPLE)'
 
 ---
-
-
-
-
   
 
 ## RECORDED BY MISS S. E. WALDO (A DISCIPLE)
@@ -64,5 +60,3 @@ you free. The full sponge can absorb no more.
 Even fighting in self-defence is wrong, though it is higher than
 fighting in aggression. There is no "righteous" indignation, because
 indignation comes from not recognising sameness in all things.
-
-

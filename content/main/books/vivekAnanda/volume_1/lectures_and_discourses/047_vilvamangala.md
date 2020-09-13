@@ -1,11 +1,7 @@
 ---
-title: VILVAMANGALA
+title: 047 VILVAMANGALA
 
 ---
-
-
-
-
   
 
 ## VILVAMANGALA
@@ -91,5 +87,3 @@ in the form of Krishna. Then, for once, he was sorry that he had lost
 his eyes, and that he could only have the internal vision. He wrote some
 beautiful poems of love. In all Sanskrit books, the writers first of all
 salute their Gurus. So he saluted that girl as his first Guru.
-
-

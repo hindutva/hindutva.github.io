@@ -1,11 +1,7 @@
 ---
-title: WHAT IS RELIGION?
+title: 032 WHAT IS RELIGION?
 
 ---
-
-
-
-
   
 
 ## WHAT IS RELIGION?
@@ -338,5 +334,3 @@ sin." "Thy will be done," what more is needed, why say it twice? What is
 good is good. No more shall we take it back. "Thy will be done on earth
 as it is in heaven, for Thine is the kingdom and the power and the glory
 for evermore."
-
-

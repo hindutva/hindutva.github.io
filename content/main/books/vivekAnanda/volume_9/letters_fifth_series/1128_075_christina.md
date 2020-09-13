@@ -1,9 +1,7 @@
 ---
-title: LXXV
+title: 1128 LXXV
 
 ---
-
-
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
@@ -36,5 +34,3 @@ VIVEKANANDA
 [→](076_your_highness.htm)  
 [Addressee→](078_christina.htm)  
 [Chronology→](076_your_highness.htm)
-
-

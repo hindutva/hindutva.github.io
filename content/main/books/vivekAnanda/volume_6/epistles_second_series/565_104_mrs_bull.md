@@ -1,11 +1,7 @@
 ---
-title: CIV
+title: 565 CIV
 
 ---
-
-
-
-
   
 
   
@@ -28,5 +24,3 @@ My love to all friends.
 Yours etc.,
 
 VIVEKANANDA.
-
-

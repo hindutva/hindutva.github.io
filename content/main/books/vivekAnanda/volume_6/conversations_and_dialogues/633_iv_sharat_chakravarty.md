@@ -1,11 +1,7 @@
 ---
-title: IV
+title: 633 IV
 
 ---
-
-
-
-
   
 
 ## IV
@@ -206,5 +202,3 @@ rivers falling into it"?
     too often supposed to have a ring of derision. But in the case of
     the disciple, it very easily and naturally grew to be a term of
     peculiar endearment. — Ed.
-
-

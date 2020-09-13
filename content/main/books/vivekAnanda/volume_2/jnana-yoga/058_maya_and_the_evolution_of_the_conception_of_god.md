@@ -1,11 +1,7 @@
 ---
-title: MAYA AND THE EVOLUTION OF THE CONCEPTION OF GOD
+title: 058 MAYA AND THE EVOLUTION OF THE CONCEPTION OF GOD
 
 ---
-
-
-
-
   
 
 CHAPTER IV
@@ -400,5 +396,3 @@ in this world of death he who finds that One Infinite Life, and in this
 world of insentience and ignorance he who finds that One Light and
 Knowledge, unto him belongs eternal peace. Unto none else, unto none
 else.
-
-

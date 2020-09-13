@@ -1,11 +1,7 @@
 ---
-title: CVI
+title: 962 CVI
 
 ---
-
-
-
-
   
 
   
@@ -32,5 +28,3 @@ Holister, and last, not the least, to Franky.
 Yours in the Lord,
 
 VIVEKANANDA.
-
-

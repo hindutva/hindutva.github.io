@@ -1,11 +1,7 @@
 ---
-title: XLIV
+title: 279 XLIV
 
 ---
-
-
-
-
   
 
 
@@ -49,5 +45,3 @@ torch to generations to come.
 Your son,
 
 VIVEKANANDA.
-
-

@@ -1,11 +1,7 @@
 ---
-title: THE PHILOSOPHY OF ISHVARA
+title: 107 THE PHILOSOPHY OF ISHVARA
 
 ---
-
-
-
-
   
 
 CHAPTER II
@@ -189,5 +185,3 @@ connoted by the word real, and Ishvara is as real as anything else in
 the universe; and after all, the word real means nothing more than what
 has now been pointed out. Such is our philosophical conception of
 Ishvara.
-
-

@@ -1,11 +1,7 @@
 ---
-title: CONVERSATIONS AND DIALOGUES
+title: 707 CONVERSATIONS AND DIALOGUES
 
 ---
-
-
-
-
   
 
 ## CONVERSATIONS AND DIALOGUES
@@ -77,5 +73,3 @@ temple authorities did not object in the least to my entering the
 temple, though they knew that I was a man who had returned from the
 West. On the contrary, they very cordially took me into the holy
 precincts and helped me to worship the Mother to my heart's content."
-
-

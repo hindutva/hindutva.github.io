@@ -1,11 +1,7 @@
 ---
-title: RELIGION NOT THE CRYING NEED OF INDIA
+title: 003 RELIGION NOT THE CRYING NEED OF INDIA
 
 ---
-
-
-
-
   
 
 ## RELIGION NOT THE CRYING NEED OF INDIA
@@ -27,5 +23,3 @@ that preached for money would lose caste and be spat upon by the people.
 I came here to seek aid for my impoverished people, and I fully realised
 how difficult it was to get help for heathens from Christians in a
 Christian land.
-
-

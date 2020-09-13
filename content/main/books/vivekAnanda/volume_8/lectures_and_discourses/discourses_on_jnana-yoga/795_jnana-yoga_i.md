@@ -1,11 +1,7 @@
 ---
-title: JNANA YOGA - I
+title: 795 JNANA YOGA - I
 
 ---
-
-
-
-
   
 
 ## JNANA YOGA - I
@@ -100,5 +96,3 @@ variations are in the One, but we must learn not to identify ourselves
 with what we do, and to hear nothing, see nothing, talk of nothing but
 the thing in hand. We must put in our whole soul and be intense. Day and
 night tell yourself, "I am He, I am He."
-
-

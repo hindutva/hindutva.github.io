@@ -1,13 +1,9 @@
 ---
-title: 'RECORDED BY MISS S. E. WALDO
+title: '659 RECORDED BY MISS S. E. WALDO
 
   (A DISCIPLE)'
 
 ---
-
-
-
-
   
 
 ## RECORDED BY MISS S. E. WALDO (A DISCIPLE)
@@ -100,5 +96,3 @@ to Brahman" — where alone love and truth are.
     chief. The literal meaning of the word is "Hashish-eater" and was
     applied to the order because of their habitual use of this special
     drug to fortify the murderers for their task.
-
-

@@ -1,11 +1,7 @@
 ---
-title: 'CONCENTRATION: ITS PRACTICE'
+title: '026 CONCENTRATION: ITS PRACTICE'
 
 ---
-
-
-
-
   
 
 PATANJALI'S YOGA APHORISMS
@@ -1096,5 +1092,3 @@ feeling and doing; the whole of the body comes under his control. Then
 alone one begins to feel joy in being born; then one can truthfully say,
 "Blessed am I that I was born." When that control of the organs is
 obtained, we feel how wonderful this body really is.
-
-

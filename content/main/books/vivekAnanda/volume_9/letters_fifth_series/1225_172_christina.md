@@ -1,9 +1,7 @@
 ---
-title: CLXXII
+title: 1225 CLXXII
 
 ---
-
-
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
@@ -43,5 +41,3 @@ VIVEKANANDA.
 [→](173_christina.htm)  
 [Addressee→](173_christina.htm)  
 [Chronology→](173_christina.htm)
-
-

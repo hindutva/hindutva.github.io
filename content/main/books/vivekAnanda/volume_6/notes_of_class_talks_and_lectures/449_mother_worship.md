@@ -1,11 +1,7 @@
 ---
-title: MOTHER-WORSHIP
+title: 449 MOTHER-WORSHIP
 
 ---
-
-
-
-
   
 
 ## MOTHER-WORSHIP
@@ -182,5 +178,3 @@ Pariah, and the dog. Until we love the universe with same-sightedness,
 with impartial, undying love, we are missing again and again. But then
 all will have vanished, and we shall see in all the same infinite
 eternal Mother.
-
-

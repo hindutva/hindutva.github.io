@@ -1,9 +1,7 @@
 ---
-title: SWAMI VIVEKANANDA IN AMERICA
+title: 1400 SWAMI VIVEKANANDA IN AMERICA
 
 ---
-
-
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
 9](../../volume_9_contents.htm) / [Newspaper
@@ -48,5 +46,3 @@ whether he intends to introduce its practices and ritual into \[t\]his
 country, he declares that he is preaching simply philosophy.
 
 [→](10_the_indian_mirror_jun_19_1896.htm)
-
-

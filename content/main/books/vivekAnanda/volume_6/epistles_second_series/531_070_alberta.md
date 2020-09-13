@@ -1,11 +1,7 @@
 ---
-title: LXX
+title: 531 LXX
 
 ---
-
-
-
-
   
 
   
@@ -52,5 +48,3 @@ With love and blessings for both of you,
 Ever your affectionate,
 
 SWAMI VIVEKANANDA.
-
-

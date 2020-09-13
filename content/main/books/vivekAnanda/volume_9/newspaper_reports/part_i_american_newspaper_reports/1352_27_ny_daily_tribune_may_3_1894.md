@@ -1,9 +1,7 @@
 ---
-title: A LECTURE ON INDIA AND REINCARNATION
+title: 1352 A LECTURE ON INDIA AND REINCARNATION
 
 ---
-
-
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
 9](../../volume_9_contents.htm) / [Newspaper
@@ -23,5 +21,3 @@ dwelt upon in detail.
 . . .
 
 [→](28_evening_tribune_may_16_1894.htm)
-
-

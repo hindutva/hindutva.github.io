@@ -1,11 +1,7 @@
 ---
-title: NARADA-BHAKTI-SUTRAS
+title: 450 NARADA-BHAKTI-SUTRAS
 
 ---
-
-
-
-
   
 
 ## NARADA-BHAKTI-SUTRAS
@@ -195,5 +191,3 @@ makes His worshippers feel Him.
 
 Thus following the ancient sages, we have dared to preach the doctrine
 of *Love*, without fearing the jeers of the world.
-
-

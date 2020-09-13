@@ -1,11 +1,7 @@
 ---
-title: CXII
+title: 347 CXII
 
 ---
-
-
-
-
   
 
   
@@ -40,5 +36,3 @@ Calcutta. It is raining here day and night last three days. Two of our
 cows have calved.
 
 V.
-
-

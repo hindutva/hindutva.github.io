@@ -1,13 +1,9 @@
 ---
-title: 'RECORDED BY MISS S. E. WALDO
+title: '670 RECORDED BY MISS S. E. WALDO
 
   (A DISCIPLE)'
 
 ---
-
-
-
-
   
 
 ## RECORDED BY MISS S. E. WALDO (A DISCIPLE)
@@ -77,5 +73,3 @@ has a Mantra. The Ishta is the ideal peculiar to the particular
 worshipper; the Mantra is the external word to express it. Constant
 repetition of the word helps to fix the ideal firmly in the mind. This
 method of worship prevails among religious devotees all over India.
-
-

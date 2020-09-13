@@ -1,11 +1,7 @@
 ---
-title: ON ART
+title: 725 ON ART
 
 ---
-
-
-
-
   
 
 ## ON ART
@@ -17,5 +13,3 @@ painted, it is easy enough; but to paint different things and yet to
 keep up the central interest is very difficult. Another difficult thing
 is stage-management, that is, combining different things in such a
 manner as to keep the central interest intact.
-
-

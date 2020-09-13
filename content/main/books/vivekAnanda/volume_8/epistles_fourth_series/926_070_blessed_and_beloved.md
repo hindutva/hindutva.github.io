@@ -1,11 +1,7 @@
 ---
-title: LXX
+title: 926 LXX
 
 ---
-
-
-
-
   
 
   
@@ -52,5 +48,3 @@ will be very helpful as he has been always.
 Yours with all blessings,
 
 VIVEKANANDA.
-
-

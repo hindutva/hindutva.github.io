@@ -1,9 +1,7 @@
 ---
-title: CXXIX
+title: 1182 CXXIX
 
 ---
-
-
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
@@ -62,5 +60,3 @@ VIVEKANANDA
 [→](130_margot.htm)  
 [Addressee→](../../volume_5/epistles_first_series/088_your_highness.htm)  
 [Chronology→](../../volume_5/epistles_first_series/088_your_highness.htm)
-
-

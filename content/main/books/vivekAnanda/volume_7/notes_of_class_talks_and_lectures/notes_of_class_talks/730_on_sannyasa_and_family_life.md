@@ -1,11 +1,7 @@
 ---
-title: ON SANNYÂSA AND FAMILY LIFE
+title: 730 ON SANNYÂSA AND FAMILY LIFE
 
 ---
-
-
-
-
   
 
 ## ON SANNYÂSA AND FAMILY LIFE
@@ -32,5 +28,3 @@ stanzas, said, "You should always repeat to yourselves these Shlokas.
 our own selves. 'आवृत्तिरसकृदुपदेशात् — Scriptural truth should be often
 repeated for such has been repeatedly enjoined' — In this Sutra of
 Vedanta, Vyasa lays stress on repetition."
-
-

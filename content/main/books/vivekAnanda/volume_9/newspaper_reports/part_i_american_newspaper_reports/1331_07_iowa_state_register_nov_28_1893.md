@@ -1,9 +1,7 @@
 ---
-title: A MESSAGE FROM INDIA
+title: 1331 A MESSAGE FROM INDIA
 
 ---
-
-
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
 9](../../volume_9_contents.htm) / [Newspaper
@@ -70,5 +68,3 @@ me,
 . . . . . .
 
 [→](08_daily_iowa_capitol_nov_29_1893.htm)
-
-

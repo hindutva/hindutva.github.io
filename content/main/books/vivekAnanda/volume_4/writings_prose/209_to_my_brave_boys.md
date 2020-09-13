@@ -1,11 +1,7 @@
 ---
-title: TO MY BRAVE BOYS
+title: 209 TO MY BRAVE BOYS
 
 ---
-
-
-
-
   
 
   
@@ -121,5 +117,3 @@ more. They are just learning the ideas of nation, public, etc. So I need
 not blame them.
 
 Blessings to you all!
-
-

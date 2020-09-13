@@ -1,11 +1,7 @@
 ---
-title: CX
+title: 571 CX
 
 ---
-
-
-
-
   
 
 
@@ -47,5 +43,3 @@ number of Hindus securing success in America — even one of my brethren.
 With all love and blessings,
 
 VIVEKANANDA.
-
-

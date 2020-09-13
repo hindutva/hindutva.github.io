@@ -1,11 +1,7 @@
 ---
-title: THE LOVE OF GOD - I
+title: 839 THE LOVE OF GOD - I
 
 ---
-
-
-
-
   
 
 ## THE LOVE OF GOD - I
@@ -36,5 +32,3 @@ his children?
 children. We see Him all around us and are impressed continually by the
 boundlessness of His love, and from that love we draw the inspiration
 for our well-being and well-doing."
-
-

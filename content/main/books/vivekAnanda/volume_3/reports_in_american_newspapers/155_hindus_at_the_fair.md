@@ -1,11 +1,7 @@
 ---
-title: HINDUS AT THE FAIR
+title: 155 HINDUS AT THE FAIR
 
 ---
-
-
-
-
   
 
 ## HINDUS AT THE FAIR
@@ -92,5 +88,3 @@ anything of those brothers in the Himalayas so firmly believed in by the
 Theosophists, he answered with the simple statement, "I have never met
 one of them," as much as to imply, "There may be such persons, but
 though I am at home in the Himalayas, I have yet to come across them."
-
-

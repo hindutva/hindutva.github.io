@@ -1,11 +1,7 @@
 ---
-title: THE DESTINY OF MAN
+title: 736 THE DESTINY OF MAN
 
 ---
-
-
-
-
   
 
 ## THE DESTINY OF MAN
@@ -108,5 +104,3 @@ answers: Ignorance and bigotry can never crush truth."
 
 The speaker continued in this strain of reasoning for nearly two hours,
 and concluded by saying: "Let us help, and not destroy."
-
-

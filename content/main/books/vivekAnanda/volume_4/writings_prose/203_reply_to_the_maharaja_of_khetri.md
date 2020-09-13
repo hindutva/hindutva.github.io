@@ -1,11 +1,7 @@
 ---
-title: REPLY TO THE ADDRESS OF THE MAHARAJA OF KHETRI
+title: 203 REPLY TO THE ADDRESS OF THE MAHARAJA OF KHETRI
 
 ---
-
-
-
-
   
 
  Chronology [»  
@@ -371,5 +367,3 @@ and that you may live long for the good of many, and for the spread of
 truth is the constant prayer of —
 
 VIVEKANANDA.
-
-

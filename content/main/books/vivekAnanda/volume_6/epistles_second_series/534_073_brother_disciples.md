@@ -1,11 +1,7 @@
 ---
-title: LXXIII
+title: 534 LXXIII
 
 ---
-
-
-
-
   
 
   
@@ -80,5 +76,3 @@ you can manage to start one, it will indeed be nice.
 Yours affectionately,
 
 VIVEKANANDA.
-
-

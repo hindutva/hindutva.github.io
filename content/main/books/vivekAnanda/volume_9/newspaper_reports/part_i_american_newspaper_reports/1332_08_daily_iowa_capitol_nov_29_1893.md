@@ -1,9 +1,7 @@
 ---
-title: REINCARNATION
+title: 1332 REINCARNATION
 
 ---
-
-
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
 9](../../volume_9_contents.htm) / [Newspaper
@@ -19,5 +17,3 @@ on Thanksgiving evening at the same place on the manners and customs of
 India.
 
 [→](09_iowa_state_register_nov_30_1893.htm)
-
-

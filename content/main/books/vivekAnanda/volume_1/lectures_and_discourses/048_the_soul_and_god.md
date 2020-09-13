@@ -1,11 +1,7 @@
 ---
-title: THE SOUL AND GOD
+title: 048 THE SOUL AND GOD
 
 ---
-
-
-
-
   
 
 ## THE SOUL AND GOD
@@ -456,5 +452,3 @@ Father, Father of the universe — he is created by me in my own mind...."
 Do you call yourselves philosophers? Show it! Think of this, talk \[of\]
 this, and \[help\] each other in this path, and give up all
 superstition!
-
-

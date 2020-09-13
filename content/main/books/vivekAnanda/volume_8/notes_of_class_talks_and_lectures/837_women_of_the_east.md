@@ -1,11 +1,7 @@
 ---
-title: WOMEN OF THE EAST
+title: 837 WOMEN OF THE EAST
 
 ---
-
-
-
-
   
 
 ## WOMEN OF THE EAST
@@ -65,5 +61,3 @@ more so than any other women in the world. If we can preserve these
 beautiful characteristics and at the same time develop the intellects of
 our women, the Hindu woman of the future will be the ideal woman of the
 world."
-
-

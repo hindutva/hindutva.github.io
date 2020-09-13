@@ -1,11 +1,7 @@
 ---
-title: THE REALITY AND SHADOW
+title: 435 THE REALITY AND SHADOW
 
 ---
-
-
-
-
   
 
 ## THE REALITY AND SHADOW
@@ -33,5 +29,3 @@ illusion.
 
 He who knows the Real sees in Maya not illusion, but reality. He who
 knows not the Real sees in Maya illusion and thinks it real.
-
-

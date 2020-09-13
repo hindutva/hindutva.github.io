@@ -1,11 +1,7 @@
 ---
-title: XVIII
+title: 253 XVIII
 
 ---
-
-
-
-
   
 
   
@@ -64,5 +60,3 @@ understanding the true principles of our religion and then applying them
 to society. This is the slow but sure work to be done.
 
 V.
-
-

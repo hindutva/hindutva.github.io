@@ -1,11 +1,7 @@
 ---
-title: THE COMMON BASES OF HINDUISM
+title: 146 THE COMMON BASES OF HINDUISM
 
 ---
-
-
-
-
   
 
 ## THE COMMON BASES OF HINDUISM
@@ -582,5 +578,3 @@ work for each other with real love, with intense love for truth, and may
 not the least desire for our own personal fame, our own personal
 prestige, our own personal advantage, enter into this great work of me
 spiritual regeneration of India!
-
-

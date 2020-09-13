@@ -1,11 +1,7 @@
 ---
-title: CHRIST, THE MESSENGER
+title: 184 CHRIST, THE MESSENGER
 
 ---
-
-
-
-
   
 
 ## CHRIST, THE MESSENGER
@@ -468,5 +464,3 @@ Our salutations go to all those Godlike men and women who are working to
 help humanity, whatever be their birth, colour, or race! Our salutations
 to those who are coming in the future — living Gods — to work
 unselfishly for our descendants.
-
-

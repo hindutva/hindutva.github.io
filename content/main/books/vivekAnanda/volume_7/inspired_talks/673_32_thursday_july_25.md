@@ -1,13 +1,9 @@
 ---
-title: 'RECORDED BY MISS S. E. WALDO
+title: '673 RECORDED BY MISS S. E. WALDO
 
   (A DISCIPLE)'
 
 ---
-
-
-
-
   
 
 ## RECORDED BY MISS S. E. WALDO (A DISCIPLE)
@@ -82,5 +78,3 @@ feel Him here and now. A Chicago professor says, "Take care of this
 world, God will take care of the next." What nonsense! If we can take
 care of this world, what need of a gratuitous Lord to take care of the
 other!
-
-

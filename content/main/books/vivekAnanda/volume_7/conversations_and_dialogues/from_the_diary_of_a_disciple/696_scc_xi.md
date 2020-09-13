@@ -1,11 +1,7 @@
 ---
-title: 'CONVERSATIONS AND DIALOGUES '
+title: '696 CONVERSATIONS AND DIALOGUES '
 
 ---
-
-
-
-
   
 
 ## CONVERSATIONS AND DIALOGUES
@@ -208,5 +204,3 @@ going back to the world?
 
 The disciple bent down his head, hearing Swamiji's words. Various
 thoughts crowded into his brain and kept him speechless.
-
-

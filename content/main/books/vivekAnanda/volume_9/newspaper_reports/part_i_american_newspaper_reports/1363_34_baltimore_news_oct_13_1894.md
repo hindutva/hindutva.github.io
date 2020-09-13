@@ -1,9 +1,7 @@
 ---
-title: PRIEST SWAMI IN TOWN
+title: 1363 PRIEST SWAMI IN TOWN
 
 ---
-
-
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
 9](../../volume_9_contents.htm) / [Newspaper
@@ -98,5 +96,3 @@ will remain in Baltimore and speak more at length a week from tomorrow
 night.
 
 [→](35_baltimore_sunday_herald_oct_14_1894.htm)
-
-

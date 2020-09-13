@@ -1,11 +1,7 @@
 ---
-title: THE CLAIMS OF RELIGION
+title: 190 THE CLAIMS OF RELIGION
 
 ---
-
-
-
-
   
 
 ## THE CLAIMS OF RELIGION
@@ -467,5 +463,3 @@ truths to which you have become attached by habit; do not believe merely
 on the authority of your teachers and elders. Have deliberation and
 analyse, and when the result agrees with reason and conduces to the good
 of one and all, accept it and live up to it."
-
-

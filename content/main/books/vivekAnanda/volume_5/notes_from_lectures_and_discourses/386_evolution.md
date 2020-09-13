@@ -1,11 +1,7 @@
 ---
-title: EVOLUTION
+title: 386 EVOLUTION
 
 ---
-
-
-
-
   
 
 ## EVOLUTION
@@ -71,5 +67,3 @@ competition and struggle; and yet we struggle. The struggle we create
 through our own ignorance, through impatience; we are in too great a
 hurry. The highest manifestation of strength is to keep ourselves calm
 and on our own feet.
-
-

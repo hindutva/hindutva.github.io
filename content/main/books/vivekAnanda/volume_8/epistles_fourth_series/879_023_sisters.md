@@ -1,11 +1,7 @@
 ---
-title: XXIII
+title: 879 XXIII
 
 ---
-
-
-
-
   
 
   
@@ -44,5 +40,3 @@ Blessed, blessed art Thou, Lord God of my soul!
 Yours affectionately,
 
 VIVEKANANDA.
-
-

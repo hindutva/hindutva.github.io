@@ -1,9 +1,7 @@
 ---
-title: KANANDA, THE PAGAN
+title: 1343 KANANDA, THE PAGAN
 
 ---
-
-
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
 9](../../volume_9_contents.htm) / [Newspaper
@@ -260,5 +258,3 @@ Vive Kananda's large audience listened very respectfully to his remarks
 last night, and once or twice applauded heartily.
 
 [→](20_detroit_tribune_mar_20_1894.htm)
-
-

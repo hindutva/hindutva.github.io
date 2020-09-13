@@ -1,11 +1,7 @@
 ---
-title: XXXVII
+title: 778 XXXVII
 
 ---
-
-
-
-
   
 
   
@@ -30,5 +26,3 @@ work and infinite blessings on all workers for good.
 Yours ever in the truth,
 
 VIVEKANANDA.
-
-

@@ -1,11 +1,7 @@
 ---
-title: RELIGION AND SCIENCE
+title: 424 RELIGION AND SCIENCE
 
 ---
-
-
-
-
   
 
 ## RELIGION AND SCIENCE
@@ -54,5 +50,3 @@ life has a current running through it, and this current will eventually
 take it to God. The end and aim of all religions is to realise God. The
 greatest of all training is to worship God alone. If each man chose his
 own ideal and stuck to it, all religious controversy would vanish.
-
-

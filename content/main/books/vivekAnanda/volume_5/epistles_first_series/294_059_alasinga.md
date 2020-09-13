@@ -1,11 +1,7 @@
 ---
-title: LIX
+title: 294 LIX
 
 ---
-
-
-
-
   
 
   
@@ -41,5 +37,3 @@ clear conscience when I retire from work and sit down in a cave.
 With love and blessings to all,
 
 VIVEKANANDA.
-
-

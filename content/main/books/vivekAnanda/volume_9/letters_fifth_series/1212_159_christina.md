@@ -1,9 +1,7 @@
 ---
-title: CLIX
+title: 1212 CLIX
 
 ---
-
-
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
@@ -65,5 +63,3 @@ VIVEKANANDA.
 [→](160_brahmananda.htm)  
 [Addressee→](161_christina.htm)  
 [Chronology→](../../volume_6/epistles_second_series/150_mrs_bull.htm)
-
-

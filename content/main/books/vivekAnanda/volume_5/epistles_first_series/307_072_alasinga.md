@@ -1,11 +1,7 @@
 ---
-title: LXXII
+title: 307 LXXII
 
 ---
-
-
-
-
   
 
   
@@ -69,5 +65,3 @@ alone. I am in good health; so is Abhedananda.
 With all love and blessings,
 
 VIVEKANANDA.
-
-

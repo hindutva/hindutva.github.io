@@ -1,11 +1,7 @@
 ---
-title: XXXVII
+title: 498 XXXVII
 
 ---
-
-
-
-
   
 
   
@@ -26,5 +22,3 @@ Try hard with your Sanskrit studies.
 Yours with love,
 
 V.
-
-

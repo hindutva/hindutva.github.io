@@ -1,11 +1,7 @@
 ---
-title: THE PREPARATORY RENUNCIATION
+title: 116 THE PREPARATORY RENUNCIATION
 
 ---
-
-
-
-
   
 
 CHAPTER I
@@ -103,5 +99,3 @@ becomes free. So in this renunciation auxiliary to devotion, there is no
 harshness, no dryness no struggle, nor repression nor suppression. The
 Bhakta has not to suppress any single one of his emotions, he only
 strives to intensify them and direct them to God.
-
-

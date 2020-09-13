@@ -1,11 +1,7 @@
 ---
-title: NOTES ON VEDANTA
+title: 429 NOTES ON VEDANTA
 
 ---
-
-
-
-
   
 
 ## NOTES ON VEDANTA
@@ -34,5 +30,3 @@ beginning than God Himself. Innumerable have been and will be its
 manifestations in its passage from one personality to another, subject
 to the great law of spiritual evolution, until it reaches perfection,
 when there is no more change.
-
-

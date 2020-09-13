@@ -1,9 +1,7 @@
 ---
-title: THE BRAHMAN MONK
+title: 1354 THE BRAHMAN MONK
 
 ---
-
-
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
 9](../../volume_9_contents.htm) / [Newspaper
@@ -121,5 +119,3 @@ residence where he has been entertained and has proven himself to be a
 most delightful guest.
 
 [→](30_boston_evening_transcript_aug_11_1894.htm)
-
-

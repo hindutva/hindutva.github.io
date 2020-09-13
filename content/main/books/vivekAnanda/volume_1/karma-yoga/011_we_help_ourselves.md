@@ -1,11 +1,7 @@
 ---
-title: WE HELP OURSELVES, NOT THE WORLD
+title: 011 WE HELP OURSELVES, NOT THE WORLD
 
 ---
-
-
-
-
   
 
 CHAPTER V
@@ -260,5 +256,3 @@ the sinner. It is easy to say so. If we can distinguish well between
 quality and substance, we may become perfect men. It is not easy to do
 this. And further, the calmer we are and the less disturbed our nerves,
 the more shall we love and the better will our work be.
-
-

@@ -1,11 +1,7 @@
 ---
-title: LXI
+title: 296 LXI
 
 ---
-
-
-
-
   
 
   
@@ -52,5 +48,3 @@ nation. Avoid that always. All blessings attend you and all success.
 Yours affectionately,
 
 VIVEKANANDA.
-
-

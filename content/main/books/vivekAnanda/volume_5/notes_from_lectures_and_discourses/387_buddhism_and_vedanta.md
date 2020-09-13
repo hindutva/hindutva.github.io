@@ -1,11 +1,7 @@
 ---
-title: BUDDHISM AND VEDANTA
+title: 387 BUDDHISM AND VEDANTA
 
 ---
-
-
-
-
   
 
 ## BUDDHISM AND VEDANTA
@@ -67,5 +63,3 @@ If we can stop all thought, then we know that we are beyond thought. We
 come to this by negation. When every phenomenon has been negatived,
 whatever remains, that is It. That cannot be expressed, cannot be
 manifested, because the manifestation will be, again, will.
-
-

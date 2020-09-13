@@ -1,11 +1,7 @@
 ---
-title: MIRACLES
+title: 359 MIRACLES
 
 ---
-
-
-
-
   
 
 ## MIRACLES
@@ -82,5 +78,3 @@ Speaking of the sect of Hathayoga, Vive Kananda said there was one
 thing, whether a coincidence or not, connected with the initiation of
 their disciples, which was suggestive of the one passage in the life of
 Christ. They make their disciples live alone for just forty days.
-
-

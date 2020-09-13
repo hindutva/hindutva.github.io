@@ -1,9 +1,7 @@
 ---
-title: GITA CLASS
+title: 1294 GITA CLASS
 
 ---
-
-
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Notes of Lectures and
 Classes](notes_of_lectures_and_classes_contents.htm) /
@@ -40,5 +38,3 @@ preached the highest ethics as a world path, whereas Krishna saw the
 right of the *whole*, in all its parts — to its own differing ideals.
 
 [→](remarks_from_various_lectures.htm)
-
-

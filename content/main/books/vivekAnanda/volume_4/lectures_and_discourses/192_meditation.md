@@ -1,11 +1,7 @@
 ---
-title: MEDITATION
+title: 192 MEDITATION
 
 ---
-
-
-
-
   
 
 ## MEDITATION
@@ -343,5 +339,3 @@ existence. Nothing else exists.
     coiled-up power at the base of the spine, in his thoughts is led to
     the highest centre of consciousness in the brain, where he meditates
     on his oneness with the supreme Spirit.
-
-

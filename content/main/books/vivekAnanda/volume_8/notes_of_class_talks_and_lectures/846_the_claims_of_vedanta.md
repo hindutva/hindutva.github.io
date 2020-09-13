@@ -1,11 +1,7 @@
 ---
-title: THE CLAIMS OF VEDANTA ON THE MODERN WORLD
+title: 846 THE CLAIMS OF VEDANTA ON THE MODERN WORLD
 
 ---
-
-
-
-
   
 
 ## THE CLAIMS OF VEDANTA ON THE MODERN WORLD
@@ -133,5 +129,3 @@ spirit. Do not cry out, "I am a worm, I am nobody!" As the poet says, "I
 am Existence, Knowledge, and Truth." No man can do any good in the world
 by crying out, "I am one of its evils." The more perfect, the less
 imperfections you see.
-
-

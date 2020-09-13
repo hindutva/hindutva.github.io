@@ -1,13 +1,9 @@
 ---
-title: 'RECORDED BY MISS S. E. WALDO
+title: '684 RECORDED BY MISS S. E. WALDO
 
   (A DISCIPLE)'
 
 ---
-
-
-
-
   
 
 ## RECORDED BY MISS S. E. WALDO (A DISCIPLE)
@@ -143,5 +139,3 @@ masses; but really there is nothing in the external.
 
 "As the spider throws her web out of herself and draws it in, even so
 this universe is thrown out and drawn in by God."
-
-

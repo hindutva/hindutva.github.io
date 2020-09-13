@@ -1,11 +1,7 @@
 ---
-title: CLXVI
+title: 627 CLXVI
 
 ---
-
-
-
-
   
 
   
@@ -32,5 +28,3 @@ like velvet; yet the air is cold and crisp and delightful.
 Yours etc.,
 
 VIVEKANANDA.
-
-

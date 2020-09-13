@@ -1,9 +1,7 @@
 ---
-title: THE CENTRAL IDEA OF THE VEDAS
+title: 1396 THE CENTRAL IDEA OF THE VEDAS
 
 ---
-
-
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
 9](../../volume_9_contents.htm) / [Newspaper
@@ -31,5 +29,3 @@ the central idea of the Vedas, nay, the root-idea of the Hindu religion
 in general. (Unidentified source.)
 
 [→](06_the_bengalee_may_18_1895.htm)
-
-

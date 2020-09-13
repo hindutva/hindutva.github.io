@@ -1,11 +1,7 @@
 ---
-title: 'THOU BLESSED DREAM '
+title: '821 THOU BLESSED DREAM '
 
 ---
-
-
-
-
   
 
 ## THOU BLESSED DREAM
@@ -29,5 +25,3 @@ No magic but in thee!
 Thy touch makes desert bloom to life.  
 Harsh thunder, sweetest song,  
 Fell death, the sweet release.
-
-

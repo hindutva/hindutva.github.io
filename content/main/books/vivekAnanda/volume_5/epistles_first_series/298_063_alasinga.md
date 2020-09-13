@@ -1,11 +1,7 @@
 ---
-title: LXIII
+title: 298 LXIII
 
 ---
-
-
-
-
   
 
   
@@ -53,5 +49,3 @@ VIVEKANANDA.
 PS. Do not be afraid, money and everything will come soon.
 
 V.
-
-

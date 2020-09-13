@@ -1,11 +1,7 @@
 ---
-title: MY MASTER
+title: 185 MY MASTER
 
 ---
-
-
-
-
   
 
 ## MY MASTER
@@ -1031,5 +1027,3 @@ have taught special religions which bear their names, but this great
 teacher of the nineteenth century made no claim for himself. He left
 every religion undisturbed because he had realised that in reality they
 are all part and parcel of the one eternal religion.
-
-

@@ -1,11 +1,7 @@
 ---
-title: I
+title: 1412 I
 
 ---
-
-
-
-
   
 
   
@@ -120,5 +116,3 @@ VIVEKANANDA
 C/o. M. Bhattacharya Esq.  
 Assistant Accountant General  
 Mt. St. Thome, Madras
-
-

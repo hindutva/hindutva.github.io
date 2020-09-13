@@ -1,11 +1,7 @@
 ---
-title: HUMAN REPRESENTATIONS OF THE DIVINE IDEAL OF LOVE
+title: 123 HUMAN REPRESENTATIONS OF THE DIVINE IDEAL OF LOVE
 
 ---
-
-
-
-
   
 
 CHAPTER IX
@@ -196,5 +192,3 @@ divine love and at the same time are able to attend to all the vanities
 of this world — are you sincere? "Where Rāma is, there is no room for
 any desire — where desire is, there is no room for Rama; these never
 coexist — like light and darkness they are never together."
-
-

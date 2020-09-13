@@ -1,11 +1,7 @@
 ---
-title: THE BHAKTA'S RENUNCIATION RESULTS FROM LOVE
+title: 117 THE BHAKTA'S RENUNCIATION RESULTS FROM LOVE
 
 ---
-
-
-
-
   
 
 CHAPTER II
@@ -121,5 +117,3 @@ brotherhood. They feel no resentment; their minds never react in the
 form of hatred or jealousy. The external, the sensuous, has vanished
 from them for ever. How can they be angry, when, through their love,
 they are always able to see the Reality behind the scenes?
-
-

@@ -1,11 +1,7 @@
 ---
-title: CONVERSATIONS AND DIALOGUES
+title: 708 CONVERSATIONS AND DIALOGUES
 
 ---
-
-
-
-
   
 
 ## CONVERSATIONS AND DIALOGUES
@@ -183,5 +179,3 @@ though they found me unwell."
 It is about half past two now, and there is a great gathering of people
 outside. Understanding the disciple's mind, Swamiji said, "Just go and
 have a look round — but come back soon."
-
-

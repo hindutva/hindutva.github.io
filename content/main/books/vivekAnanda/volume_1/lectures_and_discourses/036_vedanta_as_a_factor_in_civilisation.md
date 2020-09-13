@@ -1,11 +1,7 @@
 ---
-title: VEDANTA AS A FACTOR IN CIVILISATION
+title: 036 VEDANTA AS A FACTOR IN CIVILISATION
 
 ---
-
-
-
-
   
 
 ## VEDANTA AS A FACTOR IN CIVILISATION
@@ -113,5 +109,3 @@ the form to all perception. When I see a chair, it is not the real chair
 external to my eye which I perceive, but an external something plus the
 mental image formed. Thus even the materialist is driven to metaphysics
 in the last extremity.
-
-

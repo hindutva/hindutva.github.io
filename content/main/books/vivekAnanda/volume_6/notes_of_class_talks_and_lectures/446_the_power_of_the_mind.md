@@ -1,11 +1,7 @@
 ---
-title: THE POWER OF THE MIND
+title: 446 THE POWER OF THE MIND
 
 ---
-
-
-
-
   
 
 ## THE POWER OF THE MIND
@@ -86,5 +82,3 @@ Never quarrel about religion. All quarrels and disputations concerning
 religion simply show that spirituality is not present. Religious
 quarrels are always over the husks. When purity, when spirituality goes,
 leaving the soul dry, quarrels begin, and not before.
-
-

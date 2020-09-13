@@ -1,9 +1,7 @@
 ---
-title: volume 9/writings prose and poemsfacsimile
+title: 1303 volume 9/writings prose and poemsfacsimile
 
 ---
-
-
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Writings: Prose and
 Poems](writings_prose_and_poems_contents.htm) /
@@ -30,5 +28,3 @@ ULSTER CO., N. Y.
 BINNEWATER, ULSTER CO., N. Y.
 
 [→](an_untitled_poem.htm)
-
-

@@ -1,13 +1,9 @@
 ---
-title: 'THE RAMAKRISHNA HOME OF SERVICE
+title: '410 THE RAMAKRISHNA HOME OF SERVICE
 
   VARANASI: AN APPEAL'
 
 ---
-
-
-
-
   
 
 ## THE RAMAKRISHNA HOME OF SERVICE VARANASI: AN APPEAL
@@ -83,5 +79,3 @@ of elephants — says the old proverb.
 Ever yours in the Lord of the universe,
 
 VIVEKANANDA.
-
-

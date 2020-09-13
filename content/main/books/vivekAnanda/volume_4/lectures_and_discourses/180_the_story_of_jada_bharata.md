@@ -1,11 +1,7 @@
 ---
-title: THE STORY OF JADA BHARATA
+title: 180 THE STORY OF JADA BHARATA
 
 ---
-
-
-
-
   
 
 ## THE STORY OF JADA BHARATA
@@ -123,5 +119,3 @@ that thou wast a sage, when I asked thee to carry me." Bharata blessed
 him and departed. He then resumed the even tenor of his previous life.
 When Bharata left the body, he was freed for ever from the bondage of
 birth.
-
-

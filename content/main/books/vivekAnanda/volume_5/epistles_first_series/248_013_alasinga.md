@@ -1,11 +1,7 @@
 ---
-title: XIII
+title: 248 XIII
 
 ---
-
-
-
-
   
 
   
@@ -126,5 +122,3 @@ barks of puppies frighten you — no, not even the thunderbolts of heaven
 Ever yours affectionately,
 
 VIVEKANANDA.
-
-

@@ -1,11 +1,7 @@
 ---
-title: ON THE BOUNDS OF HINDUISM
+title: 369 ON THE BOUNDS OF HINDUISM
 
 ---
-
-
-
-
   
 
 ## ON THE BOUNDS OF HINDUISM
@@ -94,5 +90,3 @@ this great teacher of religion lifted his lantern and went back into the
 monastery, while I by the pathless paths of the Ganga, in and out
 amongst her crafts of many sizes, made the best of my way back to my
 Calcutta home.
-
-

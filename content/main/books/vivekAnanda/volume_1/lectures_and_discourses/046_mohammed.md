@@ -1,11 +1,7 @@
 ---
-title: MOHAMMED
+title: 046 MOHAMMED
 
 ---
-
-
-
-
   
 
 ## MOHAMMED
@@ -124,5 +120,3 @@ the wicked, for the establishment of spirituality." (Gita, IV. 7-8.)
 
 \[Such\] are the great messengers of light. They are our great teachers,
 our elder brothers. But we must go our own way!
-
-

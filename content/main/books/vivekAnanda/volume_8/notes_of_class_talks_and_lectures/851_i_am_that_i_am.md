@@ -1,11 +1,7 @@
 ---
-title: I AM THAT I AM
+title: 851 I AM THAT I AM
 
 ---
-
-
-
-
   
 
 ## I AM THAT I AM
@@ -182,5 +178,3 @@ grandeur. Then comes complete liberation. I attain to the clearest and
 fullest consciousness of myself — I know that I am the infinite spirit,
 the master of nature, not its slave. Beyond all differentiation and
 combination, beyond space, time and causation, I am that I am.
-
-

@@ -1,11 +1,7 @@
 ---
-title: '"AND LET SHYAMA DANCE THERE"'
+title: 233 "AND LET SHYAMA DANCE THERE"
 
 ---
-
-
-
-
   
 
 ## "AND LET SHYAMA DANCE THERE"
@@ -157,5 +153,3 @@ A burning-ground.
 8.  [^](#txt8)The wheel of constant birth and death, hence the world.
 9.  [^](#txt9)The cremation-ground.
 10. [^](#txt10)The Dark One, Kali.
-
-

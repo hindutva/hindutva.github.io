@@ -1,13 +1,9 @@
 ---
-title: 'ON QUESTIONING THE COMPETENCY
+title: '731 ON QUESTIONING THE COMPETENCY
 
   OF THE GURU'
 
 ---
-
-
-
-
   
 
 ## ON QUESTIONING THE COMPETENCY OF THE GURU
@@ -27,5 +23,3 @@ pledged your faith to a particular teacher, stick to him with all force.
 It is children who say that there is no morality in the Vedanta. Yes,
 they are right. Vedanta is above morality. Talk of high things, as you
 have become Sannyasins."
-
-

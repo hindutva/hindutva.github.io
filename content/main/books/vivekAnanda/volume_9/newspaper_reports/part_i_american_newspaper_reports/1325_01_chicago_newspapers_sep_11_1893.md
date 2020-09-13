@@ -1,9 +1,7 @@
 ---
-title: RESPONSE TO WELCOME
+title: 1325 RESPONSE TO WELCOME
 
 ---
-
-
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
 9](../../volume_9_contents.htm) / [Newspaper
@@ -64,5 +62,3 @@ feelings between brethren wending their way to the same goal, but
 through different ways.
 
 [→](02_chicago_record_sep_11_1893.htm)
-
-

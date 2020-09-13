@@ -1,11 +1,7 @@
 ---
-title: JNANA YOGA - II
+title: 796 JNANA YOGA - II
 
 ---
-
-
-
-
   
 
 ## JNANA YOGA - II
@@ -115,5 +111,3 @@ future; so we cannot rationally say that we care only for the present,
 as it has no existence apart from the past and the future. It is all one
 complete whole, the idea of time being merely a condition imposed upon
 us by the form of our understanding.
-
-

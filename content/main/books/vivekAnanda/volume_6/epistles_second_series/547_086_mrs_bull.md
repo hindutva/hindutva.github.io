@@ -1,11 +1,7 @@
 ---
-title: LXXXVI
+title: 547 LXXXVI
 
 ---
-
-
-
-
   
 
   
@@ -27,5 +23,3 @@ summer. . . .
 Yours with love,
 
 VIVEKANANDA.
-
-

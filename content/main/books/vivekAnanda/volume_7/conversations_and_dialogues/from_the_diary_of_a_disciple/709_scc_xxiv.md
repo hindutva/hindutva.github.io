@@ -1,11 +1,7 @@
 ---
-title: CONVERSATIONS AND DIALOGUES
+title: 709 CONVERSATIONS AND DIALOGUES
 
 ---
-
-
-
-
   
 
 ## CONVERSATIONS AND DIALOGUES
@@ -120,5 +116,3 @@ the real truth — God is present in every Jiva; there is no other God
 besides that. 'Who serves Jiva, serves God indeed'." After some pause
 Swamiji, addressing the disciple, said, "What I have told you today,
 inscribe in your heart. See that you do not forget it."
-
-

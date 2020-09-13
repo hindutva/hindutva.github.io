@@ -1,11 +1,7 @@
 ---
-title: SPIRITUAL REALISATION, THE AIM OF BHAKTI-YOGA
+title: 108 SPIRITUAL REALISATION, THE AIM OF BHAKTI-YOGA
 
 ---
-
-
-
-
   
 
 CHAPTER III
@@ -78,5 +74,3 @@ close your mouths, open the windows of your hearts to the clear light of
 truth, and sit like children at the feet of those who know what they are
 talking about — the sages of India. Let us then listen attentively to
 what they say.
-
-

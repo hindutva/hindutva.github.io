@@ -1,11 +1,7 @@
 ---
-title: THOUGHTS ON THE VEDAS AND THE UPANISHADS
+title: 431 THOUGHTS ON THE VEDAS AND THE UPANISHADS
 
 ---
-
-
-
-
   
 
 ## THOUGHTS ON THE VEDAS AND THE UPANISHADS
@@ -96,5 +92,3 @@ sacrifice, Om is the sacred name of that indescribable One. This word is
 the holiest of all words. He who knows the secret of this word receives
 that which he desires." Take refuge in this word. Whoso takes refuge in
 this word, to him the way opens.
-
-

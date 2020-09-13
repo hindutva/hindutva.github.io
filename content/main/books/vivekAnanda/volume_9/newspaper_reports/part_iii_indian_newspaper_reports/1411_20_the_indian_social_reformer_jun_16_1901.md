@@ -1,9 +1,7 @@
 ---
-title: HINDU WIDOWS
+title: 1411 HINDU WIDOWS
 
 ---
-
-
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
 9](../../volume_9_contents.htm) / [Newspaper
@@ -39,5 +37,3 @@ given, and the proceeds were forwarded to Babu Sasipada Banerjee, and
 duly acknowledged."
 
 [→](../../../unpublished/unpublished_contents.htm)
-
-

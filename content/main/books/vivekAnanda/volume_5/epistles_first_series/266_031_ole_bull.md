@@ -1,11 +1,7 @@
 ---
-title: XXXI
+title: 266 XXXI
 
 ---
-
-
-
-
   
 
   
@@ -70,5 +66,3 @@ peace and bliss. . . .
 
 Yours etc.,  
 VIVEKANANDA.
-
-

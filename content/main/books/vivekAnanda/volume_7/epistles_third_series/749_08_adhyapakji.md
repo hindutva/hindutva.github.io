@@ -1,11 +1,7 @@
 ---
-title: VIII
+title: 749 VIII
 
 ---
-
-
-
-
   
 
   
@@ -26,5 +22,3 @@ great soul) and Mrs. Wright is nonpareil.
 
 Yours affectionately,  
 VIVEKANANDA.
-
-

@@ -1,11 +1,7 @@
 ---
-title: THE FIRST STEPS
+title: 017 THE FIRST STEPS
 
 ---
-
-
-
-
   
 
 CHAPTER II
@@ -292,5 +288,3 @@ with the help of this body you will cross the ocean of life. Freedom is
 never to be reached by the weak. Throw away all weakness. Tell your body
 that it is strong, tell your mind that it is strong, and have unbounded
 faith and hope in yourself.
-
-

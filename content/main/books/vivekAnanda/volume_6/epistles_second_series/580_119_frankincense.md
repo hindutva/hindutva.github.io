@@ -1,11 +1,7 @@
 ---
-title: CXIX
+title: 580 CXIX
 
 ---
-
-
-
-
   
 
   
@@ -35,5 +31,3 @@ VIVEKANANDA.
 
 1.  [^](#txt1)Lit. Child Krishna. The Swami refers to the birth of a
     girl in place of an expected son.
-
-

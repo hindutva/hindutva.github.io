@@ -1,11 +1,7 @@
 ---
-title: CLIV
+title: 615 CLIV
 
 ---
-
-
-
-
   
 
   
@@ -127,5 +123,3 @@ Divine Mother guide your hands.
 Yours affectionately,
 
 VIVEKANANDA.
-
-

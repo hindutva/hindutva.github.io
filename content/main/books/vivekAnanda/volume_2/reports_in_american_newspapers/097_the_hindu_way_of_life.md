@@ -1,11 +1,7 @@
 ---
-title: THE HINDU VIEW OF LIFE
+title: 097 THE HINDU VIEW OF LIFE
 
 ---
-
-
-
-
   
 
 ## THE HINDU VIEW OF LIFE
@@ -141,5 +137,3 @@ speaker on any point on which they wished to have his views. Many of
 them availed themselves of this offer. (See *Complete Works*, Vol. V. in
 the Section, ["Questions and
 Answers"](../../volume_5/questions_and_answers/brooklyn_ethical_society.htm).)
-
-

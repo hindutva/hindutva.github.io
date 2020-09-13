@@ -1,11 +1,7 @@
 ---
-title: STRUGGLE FOR EXPANSION
+title: 815 STRUGGLE FOR EXPANSION
 
 ---
-
-
-
-
   
 
 ## STRUGGLE FOR EXPANSION
@@ -94,5 +90,3 @@ struggle to gain freedom is to avoid pain or to attain pleasure. The
 lowest grade of beings, who can have no such feeling, are also
 struggling for expansion; and according to many, man himself is the
 expansion of these very beings.
-
-

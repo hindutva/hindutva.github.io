@@ -1,11 +1,7 @@
 ---
-title: LXXXI
+title: 316 LXXXI
 
 ---
-
-
-
-
   
 
   
@@ -32,5 +28,3 @@ collect funds.
 Yours with blessings,
 
 VIVEKANANDA.
-
-

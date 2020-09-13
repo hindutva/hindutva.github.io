@@ -1,11 +1,7 @@
 ---
-title: XII
+title: 753 XII
 
 ---
-
-
-
-
   
 
   
@@ -48,5 +44,3 @@ My love and blessings to your children.
 Yours affectionately ever,
 
 VIVEKANANDA.
-
-

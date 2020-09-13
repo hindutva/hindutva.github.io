@@ -1,11 +1,7 @@
 ---
-title: XX
+title: 761 XX
 
 ---
-
-
-
-
   
 
   
@@ -69,5 +65,3 @@ I go to Chicago tomorrow or day after.
 
 Yours  
 V.
-
-

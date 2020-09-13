@@ -1,9 +1,7 @@
 ---
-title: CXCVIII
+title: 1251 CXCVIII
 
 ---
-
-
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
@@ -46,5 +44,3 @@ VIVEKANANDA
 [→](199_friend.htm)  
 [Addressee→](217_mrs_hansbrough.htm)  
 [Chronology→](../../volume_5/epistles_first_series/105_joe.htm)
-
-

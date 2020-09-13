@@ -1,13 +1,9 @@
 ---
-title: 'RECORDED BY MISS S. E. WALDO
+title: '676 RECORDED BY MISS S. E. WALDO
 
   (A DISCIPLE)'
 
 ---
-
-
-
-
   
 
 ## RECORDED BY MISS S. E. WALDO (A DISCIPLE)
@@ -74,5 +70,3 @@ yourself. You never were in bondage, you never were virtuous or sinful.
 Get rid of all these delusions and be at peace. Whom to worship? Who
 worships? All is the Atman. To speak, to think is superstition. Repeat
 over and over, "I am Atman", "I am Atman". Let everything else go.
-
-

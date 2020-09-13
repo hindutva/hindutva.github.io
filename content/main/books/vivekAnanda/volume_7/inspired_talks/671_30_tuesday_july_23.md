@@ -1,13 +1,9 @@
 ---
-title: 'RECORDED BY MISS S. E. WALDO
+title: '671 RECORDED BY MISS S. E. WALDO
 
   (A DISCIPLE)'
 
 ---
-
-
-
-
   
 
 ## RECORDED BY MISS S. E. WALDO (A DISCIPLE)
@@ -89,5 +85,3 @@ the rope", delusion cannot touch the Atman. When we lay hold of the rope
 — identify ourselves with Maya — she has power over us. Let go of it, be
 the Witness only, then you can admire the picture of the universe
 undisturbed.
-
-
