@@ -2907,6 +2907,7 @@ state we arrived in Bombay. The troubles which the English as well as the native
 consequence of this act of ours (if narrated) would fill a big volume. I do not, therefore, think it
 desirable to narrate them.
 
+## Capture
 ### WE WRITE ANOTHER LETTER
 As they (the English) suspected that the Brahmins alone were responsible for this affair, we
 hit upon a device to transfer their suspicion to the Muhammadans by sending a letter (to the
