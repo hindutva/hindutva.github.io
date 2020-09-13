@@ -64,6 +64,8 @@ Your most dutiful and devoted
 
 SERVANTS.
 
+## Reply
+
 The Swami’s reply was to the following effect:
 
 I cannot express the deep debt of gratitude which you have laid upon me
