@@ -209,7 +209,7 @@ there, but the mind, being otherwise occupied, does not react, so you
 are not aware of the presence of the mosquito. When a new impression
 comes, if the mind does not react, we shall not be conscious of it, but
 when the reaction comes we feel, we see, we hear, and so forth. With
-this reaction comes illumination, as the Sâmkhya philosophers call it.
+this reaction comes illumination, as the Sāmkhya philosophers call it.
 We see that the body cannot illuminate, because in the absence of
 attention no sensation is possible. Cases have been known where, under
 peculiar conditions, a man who had never learnt a particular language

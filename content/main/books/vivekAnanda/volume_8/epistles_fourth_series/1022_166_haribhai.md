@@ -23,7 +23,7 @@ SAN FRANCISCO,
 DEAR HARIBHAI,
 
 I have just received a bill of lading from Mrs. Banerji. She has sent
-some Dâl (pulses) and rice. I am sending the bill of lading to you. Give
+some Dāl (pulses) and rice. I am sending the bill of lading to you. Give
 it to Miss Waldo; she will bring all these things when they come.
 
 Next week I am leaving this place for Chicago; thence I go over to New

@@ -12,7 +12,7 @@ CHAPTER VII
 
 ## DHYANA AND SAMADHI
 
-We have taken a cursory view of the different steps in Râja-Yoga, except
+We have taken a cursory view of the different steps in Rāja-Yoga, except
 the finer ones, the training in concentration, which is the goal to
 which Raja-Yoga will lead us. We see, as human beings, that all our
 knowledge which is called rational is referred to consciousness. My
@@ -55,7 +55,7 @@ consciousness, and which also is not accompanied with the feeling of
 egoism. The feeling of egoism is only on the middle plane. When the mind
 is above or below that line, there is no feeling of "I", and yet the
 mind works. When the mind goes beyond this line of self-consciousness,
-it is called Samâdhi or superconsciousness. How, for instance, do we
+it is called Samādhi or superconsciousness. How, for instance, do we
 know that a man in Samadhi has not gone below consciousness, has not
 degenerated instead of going higher? In both cases the works are
 unaccompanied with egoism. The answer is, by the effects, by the results
@@ -229,7 +229,7 @@ belief in books.
 
 In order to reach the superconscious state in a scientific manner it is
 necessary to pass through the various steps of Raja-Yoga I have been
-teaching. After Pratyâhâra and Dhâranâ, we come to Dhyâna, meditation.
+teaching. After Pratyāhāra and Dhāranā, we come to Dhyāna, meditation.
 When the mind has been trained to remain fixed on a certain internal or
 external location, there comes to it the power of flowing in an unbroken
 current, as it were, towards that point. This state is called Dhyana.
@@ -259,7 +259,7 @@ that carries it to the mind; third, the reaction from the mind, along
 with which flashes the knowledge of the object which was the external
 cause of these different changes from the ethereal vibrations to the
 mental reactions. These three are called in Yoga, Shabda (sound), Artha
-(meaning), and Jnâna (knowledge). In the language of physics and
+(meaning), and Jnāna (knowledge). In the language of physics and
 physiology they are called the ethereal vibration, the motion in the
 nerve and brain, and the mental reaction. Now these, though distinct
 processes, have become mixed up in such a fashion as to become quite

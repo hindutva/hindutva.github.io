@@ -19,7 +19,7 @@ The theory of creation is that matter is subject to five conditions:
 ether, luminous ether, gaseous, liquid, and solid. They are all evoked
 out of one primal element, which is very finest ether.
 
-The name of the energy in the universe is Prâna, which is the force
+The name of the energy in the universe is Prāna, which is the force
 residing in these elements. Mind is the great instrument for using the
 Prana. Mind is material. Behind the mind is Âtman which takes hold of
 the Prana. Prana is the driving power of the world, and can be seen in
@@ -65,7 +65,7 @@ third, when it goes from us. Thought is like a bubble rising to the
 surface. When thought is joined to will, we call it power. That which
 strikes the sick person whom you are trying to help is not thought, but
 power. The self-man running through it all is called in Sanskrit
-Sutrâtmâ, the "Thread-self".
+Sutrātmā, the "Thread-self".
 
 The last and highest manifestation of Prana is love. The moment you have
 succeeded in manufacturing love out of Prana, you are free. It is the

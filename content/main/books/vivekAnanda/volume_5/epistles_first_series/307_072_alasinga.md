@@ -27,8 +27,8 @@ I intend to see a little of Ceylon, and shall then go to Madras. I am
 being accompanied by three English friends — Capt. and Mrs. Sevier and
 Mr. Goodwin. Mr. Sever and his wife are going to start a place near
 Almora in the Himalayas which I intend to make my Himalayan Centre, as
-well as a place for Western disciples to live as Brahmachârins and
-Sannyâsins. Goodwin is an unmarried young man who is going to travel and
+well as a place for Western disciples to live as Brahmachārins and
+Sannyāsins. Goodwin is an unmarried young man who is going to travel and
 live with me, he is like a Sannyasin.
 
 I am very desirous to reach Calcutta before the birth day festival of
@@ -44,7 +44,7 @@ we will invade not only India, but send over bands of preachers to every
 country in the world. That should be our first duty. Work on with a
 heart. 39 Victoria will be the London headquarters for some time to
 come, as the work will be carried on there. Sturdy had a big box of
-*Brahmavâdin* I did not know before. He is now canvassing subscribers
+*Brahmavādin* I did not know before. He is now canvassing subscribers
 for it.
 
 Now we have got one Indian magazine in English fixed. We can start some

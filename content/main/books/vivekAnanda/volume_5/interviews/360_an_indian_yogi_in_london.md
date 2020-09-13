@@ -35,7 +35,7 @@ mitre-shaped black cloth cap) and his calm but kindly features.
 
 On my inquiring as to the significance, if any, of his name, the Swami
 said: "Of the name by which I am now known (Swami Vivekananda), the
-first word is descriptive of a Sannyâsin, or one who formally renounces
+first word is descriptive of a Sannyāsin, or one who formally renounces
 the world, and the second is the title I assumed — as is customary with
 all Sannyasins — on my renunciation of the world, it signifies,
 literally, 'the bliss of discrimination'."

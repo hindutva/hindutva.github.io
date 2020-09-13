@@ -49,7 +49,7 @@ and Holiness are the exclusive possessions of any particular locality or
 body of men or system of doctrine and discipline, or to hold that any
 faith or philosophy will survive to the exclusion and destruction of all
 others. In your own happy language which brings out fully the sweet
-harmony in the heart of the Bhagavad-Gitâ, "The whole world of religions
+harmony in the heart of the Bhagavad-Gitā, "The whole world of religions
 is only a travelling, a coming up of different men and women through
 various conditions and circumstances to the same goal."
 
@@ -84,7 +84,7 @@ which has attended your unselfish efforts in Western lands, where it is
 the boast of the highest intellects that, "Not an inch of ground once
 conquered by science has ever been reconquered by religion" — although
 indeed science has hardly ever claimed to oppose true religion. This
-holy land of Âryâvarta has been singularly fortunate in having been able
+holy land of Âryāvarta has been singularly fortunate in having been able
 to secure so worthy a representative of her sages at the Parliament of
 Religions held at Chicago, and it is entirely due to your wisdom,
 enterprise, and enthusiasm that the Western world has come to understand
@@ -112,7 +112,7 @@ occasion:
 Man proposes and God disposes. It was proposed that the addresses and
 the replies should be carried in the English fashion. But here God
 disposes — I am speaking to a scattered audience from a chariot in the
-Gitâ fashion. Thankful we are, therefore, that it should have happened
+Gitā fashion. Thankful we are, therefore, that it should have happened
 so. It gives a zest to the speech, and strength to what I am going to
 tell you. I do not know whether my voice will reach all of you, but I
 will try my best. I never before had an opportunity of addressing a

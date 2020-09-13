@@ -28,9 +28,9 @@ comprehended, and yet which is always with us. There is behind even this
 sublimity another ideal following as its shadow, one more acceptable to
 mankind, one more of daily use, one that has to enter into every part of
 human life, which assumes proportion and volume later on, and is stated
-in full and determined language in the Purâna, and that is the ideal of
+in full and determined language in the Purāna, and that is the ideal of
 Bhakti. The germs of Bhakti are there already; the germs are even in the
-Samhitâ; the germs a little more developed are in the Upanishads; but
+Samhitā; the germs a little more developed are in the Upanishads; but
 they are worked out in their details in the Puranas.
 
 To understand Bhakti, therefore, we have got to understand these Puranas
@@ -61,12 +61,12 @@ every moment of whose life is dragging-down slavery. To them the Puranas
 come with the most beautiful message of Bhakti.
 
 For them the softness and the poetry are spread out, for them are told
-these wonderful and marvellous stories of a Dhruva and a Prahlâda, and
+these wonderful and marvellous stories of a Dhruva and a Prahlāda, and
 of a thousand saints, and these illustrations are to make it practical.
 Whether you believe in the scientific accuracy of the Puranas or not,
 there is not one among you whose life has not been influenced by the
 story of Prahlada, or that of Dhruva, or of any one of these great
-Paurânika saints. We have not only to acknowledge the power of the
+Paurānika saints. We have not only to acknowledge the power of the
 Puranas in our own day, but we ought to be grateful to them as they gave
 us in the past a more comprehensive and a better popular religion than
 what the degraded later-day Buddhism was leading us to. This easy and
@@ -86,7 +86,7 @@ his life another Purana. That will be all the difference.
 This is a necessity of the nature of man; for them only are there no
 Puranas who have gone beyond all human weakness and have become what is
 really wanted of a Paramahamsa, brave and bold souls, who have gone
-beyond the bandages of Mâyâ, the necessities even of nature — the
+beyond the bandages of Māyā, the necessities even of nature — the
 triumphant, the conquerors, the gods of the world. The ordinary man
 cannot do without a personal God to worship; if he does not worship a
 God in nature, he has to worship either a God in the shape of a wife, or
@@ -105,7 +105,7 @@ extravagances, in spite of this going into extremes, there is an
 essence, there is a true, firm core, a backbone, to the doctrine that is
 preached. I am not asking you to swallow without consideration any old
 stories, or any unscientific jargon. I am not calling upon you to
-believe in all sorts of Vâmâchâri explanations that, unfortunately, have
+believe in all sorts of Vāmāchāri explanations that, unfortunately, have
 crept into some of the Puranas, but what I mean is this, that there is
 an essence which ought not to be lost, a reason for the existence of the
 Puranas, and that is the teaching of Bhakti to make religion practical,
@@ -128,7 +128,7 @@ spiritual, but the way lies through matter and we cannot help it.
 Everything that is conducive to the attainment of this spirituality in
 the material world, therefore, is to be taken hold of and brought to the
 use of man to evolve the spiritual being. Having pointed out that the
-Shâstras start by giving the right to study the Vedas to everybody,
+Shāstras start by giving the right to study the Vedas to everybody,
 without distinction of sex, caste, or creed, he claimed that if making a
 material temple helps a man more to love God, welcome; if making an
 image of God helps a man in attaining to this ideal of love, Lord bless
@@ -158,7 +158,7 @@ be guided and directed by our own Gurus, and by the relation between the
 Guru and the Shishya. That explained the rule which Bhakti books laid
 down for what was called the Ishta, that was to say, that each man had
 to take up his own peculiar form of worship, his own way of going
-towards God, and that chosen ideal was his Ishta Devatâ. He was to
+towards God, and that chosen ideal was his Ishta Devatā. He was to
 regard other forms of worship with sympathy, but at the same time to
 practice his own form till he reached the goal and came to the centre
 where no more material helps were necessary for him. In this connection
@@ -200,7 +200,7 @@ The highest form of worship that had been laid down by the Bhakta was
 the worship of man. Really, if there were to be any sort of worship, he
 would suggest getting a poor man, or six, or twelve, as their
 circumstances would permit, every day to their homes, and serving them,
-thinking that they were Nârâyanas. He had seen charity in many countries
+thinking that they were Nārāyanas. He had seen charity in many countries
 and the reason it did not succeed was that it was not done with a good
 spirit. "Here, take this, and go away" — that was not charity, but the
 expression of the pride of the heart, to gain the applause of the world,

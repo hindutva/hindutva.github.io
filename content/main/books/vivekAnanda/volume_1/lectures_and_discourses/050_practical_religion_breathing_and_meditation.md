@@ -209,7 +209,7 @@ It is a natural tendency with them.
 Then active people. Their taste is for everything hot and pungent,
 strong alcohol....
 
-Sâttvika people are very thoughtful, quiet, and patient. They take food
+Sāttvika people are very thoughtful, quiet, and patient. They take food
 in small quantities, and never anything bad.
 
 I am always asked the question: "Shall I give up meat?" My Master said,

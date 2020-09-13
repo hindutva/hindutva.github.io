@@ -225,7 +225,7 @@ to depart? What curious inversion of thought!"
 "But, on the whole, Swami, you think it better to be comfortably dead
 than a living lion?" persisted the defender of populations.
 
-"Swâhâ, Swaha, so be it!" shouted the monk.
+"Swāhā, Swaha, so be it!" shouted the monk.
 
 "But how is it that under such philosophy men consent to live at all?"
 
@@ -449,7 +449,7 @@ ON KALI
 (*The Complete Works of Sister Nivedita*, Vol. I, p. 118.)
 
 *Sister Nivedita's reminiscence of a conversation with Swami Vivekananda
-at the time she was learning the Kâli worship:*
+at the time she was learning the Kāli worship:*
 
 SISTER NIVEDITA: Perhaps, Swamiji, Kali is the vision of Shiva! Is She?
 

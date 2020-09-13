@@ -59,7 +59,7 @@ many priests are required. The priestly function became a science by
 itself, owing to the elaboration of the ceremonials. Gradually the
 popular idea of veneration grew round these hymns and rituals. The gods
 disappeared and in their place were left the rituals. That was the
-curious development in India. The orthodox Hindu \[the Mimâmsaka\] does
+curious development in India. The orthodox Hindu \[the Mimāmsaka\] does
 not believe in gods, the unorthodox believe in them. If you ask the
 orthodox Hindu what the meaning is of these gods in the Vedas, \[he will
 not be able to give any satisfactory answer\]. The priests sing these
@@ -255,7 +255,7 @@ people who are blind and halt can be married. \[As a result\] you will
 find so much less deformity \[in India\] than in any other country in
 the world. Epileptics and insane \[people\] are very rare \[there\].
 That is owing to direct selection. The priests say, "Let them become
-Sannyâsins." On the other hand, the Upanishads say, "Oh no, \[the\]
+Sannyāsins." On the other hand, the Upanishads say, "Oh no, \[the\]
 earth's best and finest \[and\] freshest flowers should be laid upon the
 altar. The strong, the young, with sound intellect and sound body — they
 must struggle for the truth."

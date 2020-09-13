@@ -14,7 +14,7 @@ title: XXXV
 Last mail brought the very very sad news of the blow that has fallen on
 you.
 
-This is the world my brother — this illusion of Mâyâ — the Lord alone is
+This is the world my brother — this illusion of Māyā — the Lord alone is
 true. The forms are evanescent; but the spirit, being in the Lord and of
 the Lord, is immortal and omnipresent. All that we ever had are round us
 this minute, for the spirit can neither come nor go, it only changes its

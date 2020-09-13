@@ -14,7 +14,7 @@ title: OUR DUTY TO THE MASSES
 
 (Written from Chicago to H. H. the Maharaja of Mysore on June 23, 1894.)
 
-Shri Nârâyana bless you and yours. Through your Highness' kind help it
+Shri Nārāyana bless you and yours. Through your Highness' kind help it
 has been possible for me to come to this country. Since then I have
 become well known here, and the hospitable people of this country have
 supplied all my wants. It is a wonderful country, and this is a
@@ -78,7 +78,7 @@ in the fields, or otherwise try to make a living, than come to the
 school. Now if the mountain does not come to Mohammed, Mohammed must go
 to the mountain. If the poor boy cannot come to education, education
 must go to him. There are thousands of single-minded, self-sacrificing
-Sannyâsins in our own country, going from village to village, teaching
+Sannyāsins in our own country, going from village to village, teaching
 religion. If some of them can be organised as teachers of secular things
 also, they will go from place to place, from door to door, not only
 preaching, but teaching also. Suppose two of these men go to a village

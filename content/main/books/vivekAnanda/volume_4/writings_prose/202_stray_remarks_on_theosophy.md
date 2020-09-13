@@ -19,7 +19,7 @@ twenty-five years.
 Nobody has a right now to say that the Hindus are not liberal to a
 fault. A coterie of young Hindus has been found to welcome even this
 graft of American Spiritualism, with its panoply of taps and raps and
-hitting back and forth with Mahâtmic pellets.
+hitting back and forth with Mahātmic pellets.
 
 The Theosophists claim to possess the original divine knowledge of the
 universe. We are glad to learn of it, and gladder still that they mean
@@ -48,7 +48,7 @@ least; foolish depreciation is surely vicious, but fulsome praise is
 equally loathsome.
 
 This Indian grafting of American Spiritualism — with only a few Sanskrit
-words taking the place of spiritualistic jargon — Mahâtmâ missiles
+words taking the place of spiritualistic jargon — Mahātmā missiles
 taking the place of ghostly raps and taps, and Mahatmic inspiration that
 of obsession by ghosts.
 
@@ -56,7 +56,7 @@ We cannot attribute a knowledge of all this to the writer of the
 articles in the *Advocate*, but he must not confound himself and his
 Theosophists with the great Hindu nation, the majority of whom have
 clearly seen through the Theosophical phenomena from the start and,
-following the great Swami Dayânanda Sarasvati who took away his
+following the great Swami Dayānanda Sarasvati who took away his
 patronage from Blavatskism the moment he found it out, have held
 themselves aloof.
 

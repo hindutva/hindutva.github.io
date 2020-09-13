@@ -19,8 +19,8 @@ In the beginning was the Word etc.
 
 The microcosm and the macrocosm are built on the same plan. Just as the
 individual soul is encased in the living body, so is the universal Soul
-in the Living Prakriti \[Nature\] — the objective universe. Shivâ \[i.e.
-Kâli\] is embracing Shiva: this is not a fancy. This covering of the one
+in the Living Prakriti \[Nature\] — the objective universe. Shivā \[i.e.
+Kāli\] is embracing Shiva: this is not a fancy. This covering of the one
 \[Soul\] by the other \[Nature\] is analogous to the relation between an
 idea and the word expressing it: they are one and the same; and it is
 only by a mental abstraction that one can distinguish them. Thought is

@@ -22,7 +22,7 @@ fight our way, as well as we can, and to make a path for ourselves
 through this infinite ocean of life; forward we go, having long ages
 behind us and an immense expanse beyond. So on we go, till death comes
 and takes us off the field — victorious or defeated, we do not know. And
-this is Mâyâ.
+this is Māyā.
 
 Hope is dominant in the heart of childhood. The whole world is a golden
 vision to the opening eyes of the child; he thinks his will is supreme.
@@ -81,7 +81,7 @@ slave, she cannot help it. She would a thousand times rather throw off
 the burden, but she cannot. So she covers it with a mass of flowers,
 which she calls wonderful love. And this is Maya.
 
-We are all like this in the world. A legend tells how once Nârada said
+We are all like this in the world. A legend tells how once Nārada said
 to Krishna, "Lord, show me Maya." A few days passed away, and Krishna
 asked Narada to make a trip with him towards a desert, and after walking
 for several miles, Krishna said, "Narada, I am thirsty; can you fetch

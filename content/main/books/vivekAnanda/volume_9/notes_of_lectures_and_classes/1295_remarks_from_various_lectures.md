@@ -11,7 +11,7 @@ Classes](notes_of_lectures_and_classes_contents.htm) /
 
 
 *\[Mr. Frank Rhodehamel's random lecture notes, most of which seem to
-pertain to chapter two of the Bhagavad-Gitâ\]*
+pertain to chapter two of the Bhagavad-Gitā\]*
 
 "Spirituality can never be attained until materiality is gone."
 

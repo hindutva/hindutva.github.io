@@ -12,13 +12,13 @@ CHAPTER II
 
 ## THE FIRST STEPS
 
-Râja-Yoga is divided into eight steps. The first is Yama — non-killing,
+Rāja-Yoga is divided into eight steps. The first is Yama — non-killing,
 truthfulness, non-stealing, continence, and non-receiving of any gifts.
 Next is Niyama — cleanliness, contentment, austerity, study, and
-self-surrender to God. Then comes Âsana, or posture; Prânâyâma, or
-control of Prâna; Pratyâhâra, or restraint of the senses from their
-objects; Dhâranâ, or fixing the mind on a spot; Dhyâna, or meditation;
-and Samâdhi, or superconsciousness. The Yama and Niyama, as we see, are
+self-surrender to God. Then comes Âsana, or posture; Prānāyāma, or
+control of Prāna; Pratyāhāra, or restraint of the senses from their
+objects; Dhāranā, or fixing the mind on a spot; Dhyāna, or meditation;
+and Samādhi, or superconsciousness. The Yama and Niyama, as we see, are
 moral trainings; without these as the basis no practice of Yoga will
 succeed. As these two become established, the Yogi will begin to realise
 the fruits of his practice; without these it will never bear fruit. A
@@ -72,9 +72,9 @@ After one has learned to have a firm erect seat, one has to perform,
 according to certain schools, a practice called the purifying of the
 nerves. This part has been rejected by some as not belonging to
 Raja-Yoga, but as so great an authority as the commentator
-Shankarâchârya advises it, I think fit that it should be mentioned, and
+Shankarāchārya advises it, I think fit that it should be mentioned, and
 I will quote his own directions from his commentary on the
-Shvetâshvatara Upanishad: "The mind whose dross has been cleared away by
+Shvetāshvatara Upanishad: "The mind whose dross has been cleared away by
 Pranayama, becomes fixed in Brahman; therefore Pranayama is declared.
 First the nerves are to be purified, then comes the power to practice
 Pranayama. Stopping the right nostril with the thumb, through the left

@@ -49,7 +49,7 @@ every human being, and eventually all will enjoy it."
 
 We must give a new direction to the "sun" and "moon" currents and open
 for them a new passage through the centre of the spinal cord. When we
-succeed in bringing the currents through this passage called "Sushumnâ",
+succeed in bringing the currents through this passage called "Sushumnā",
 up to the brain, we are for the time being separated entirely from the
 body.
 
@@ -86,7 +86,7 @@ All history teaches us that the great seers of all ages were either
 monks and ascetics or those who had given up married life; only the pure
 in life can see God.
 
-Just before making the Prânâyâma, endeavour to visualise the triangle.
+Just before making the Prānāyāma, endeavour to visualise the triangle.
 Close your eyes and picture it vividly in your imagination. See it
 surrounded by flames and with the serpent coiled in the middle. When you
 can clearly see the Kundalini, place it in imagination at the base of

@@ -151,7 +151,7 @@ body. He sits upon a throne. They light candles and sing songs just as
 they do in our temples.
 
 But in India they are sensible enough never to make \[their God a
-physical being\]. You never see in India a temple of Brahmâ. Why?
+physical being\]. You never see in India a temple of Brahmā. Why?
 Because the idea of the soul always existed. The Hebrew race never
 questioned about the soul. There is no soul idea in the Old Testament at
 all. The first is in the New Testament. The Persians, they became so
@@ -232,7 +232,7 @@ us, and makes a form of us. If you are not in space, space is in you.
 All the heavens and the world are in the person. ...
 
 So it must be with God. God is omnipresent. "Without hands \[he grasps\]
-everything; without feet he can move. ... " (Shvetâshvatara Upanishad,
+everything; without feet he can move. ... " (Shvetāshvatara Upanishad,
 III. 19.) He \[is\] the formless, the deathless, the eternal. The idea
 of God came. ... He is the Lord of souls, just as my soul is the
 \[lord\] of my body. If my soul left the body, the body would not be for
@@ -279,7 +279,7 @@ him." That is the awful thing in teaching. I do not know what I am going
 to get. I go all over the world. If I have to get fifteen for each one I
 have taught!...
 
-We have to come to this idea: "This My Mâyâ is divine." It is My
+We have to come to this idea: "This My Māyā is divine." It is My
 activity \[My\] divinity. "\[My Maya\] is hard to cross, but those that
 take refuge in me \[go beyond maya\]." (Gita, VII. 14.) But you find out
 that it is very difficult to cross this ocean \[of Maya by\] yourself.
@@ -446,7 +446,7 @@ true. I am the Infinite.
 All religious superstitions are vain imaginations. ... This society,
 that I see you before me, and \[that\] I am talking to you — this is all
 superstition; all must be given up. Just see what it takes to become a
-philosopher! This is the \[path\] of \[Jnâna-\] Yoga, the way through
+philosopher! This is the \[path\] of \[Jnāna-\] Yoga, the way through
 knowledge. The other \[paths\] are easy, slow, ... but this is pure
 strength of mind. No weakling \[can follow this path of knowledge. You
 must be able to say:\] "I am the Soul, the ever free; \[I\] never was

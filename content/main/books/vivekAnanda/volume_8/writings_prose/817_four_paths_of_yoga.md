@@ -26,7 +26,7 @@ Absolute. It is ever free, ever perfect; but the ignorance that has
 covered Its nature for a time is to be removed. Therefore the whole
 scope of all systems of Yoga (and each religion represents one) is to
 clear up this ignorance and allow the Âtman to restore its own nature.
-The chief helps in this liberation are Abhyâsa and Vairâgya. Vairagya is
+The chief helps in this liberation are Abhyāsa and Vairāgya. Vairagya is
 non-attachment to life, because it is the will to enjoy that brings all
 this bondage in its train; and Abhyasa is constant practice of any one
 of the Yogas.
@@ -50,7 +50,7 @@ selfishness, which is the root of all bondage. The watchword of the
 Karma-Yogi is "not I, but Thou", and no amount of self-sacrifice is too
 much for him. But he does this without any desire to go to heaven, or
 gain name or fame or any other benefit in this world. Although the
-explanation and rationale of this unselfish work is only in Jnâna-Yoga,
+explanation and rationale of this unselfish work is only in Jnāna-Yoga,
 yet the natural divinity of man makes him love all sacrifice simply for
 the good of others, without any ulterior motive, whatever his creed or
 opinion. Again, with many the bondage of wealth is very great; and
@@ -82,20 +82,20 @@ apex is that love loves for the sake of love itself. Even the idea of
 object vanishes. Love is the only form in which love is loved. This is
 the highest abstraction and the same as the Absolute.
 
-Next is *Râja-Yoga*. This Yoga fits in with every one of these Yogas. It
+Next is *Rāja-Yoga*. This Yoga fits in with every one of these Yogas. It
 fits inquirers of all classes with or without any belief, and it is the
 real instrument of religious inquiry. As each science has its particular
 method of investigation, so is this Raja-Yoga the method of religion.
 This science also is variously applied according to various
-constitutions. The chief parts are the Prânâyâma, concentration, and
+constitutions. The chief parts are the Prānāyāma, concentration, and
 meditation. For those who believe in God, a symbolical name, such as Om
 or other sacred words received from a Guru, will be very helpful. Om is
 the greatest, meaning the Absolute. Meditating on the meaning of these
 holy names while repeating them is the chief practice.
 
-Next is *Jnâna-Yoga*. This is divided into three parts. First: hearing
+Next is *Jnāna-Yoga*. This is divided into three parts. First: hearing
 the truth — that the Atman is the only reality and that everything else
-is Mâyâ (relativity). Second: reasoning upon this philosophy from all
+is Māyā (relativity). Second: reasoning upon this philosophy from all
 points of view. Third: giving up all further argumentation and realising
 the truth. This realisation comes from (1) being certain that Brahman is
 real and everything else is unreal; (2) giving up all desire for

@@ -123,7 +123,7 @@ against me may pass away; that he will be kind to me and recognise me
 when you allow me to depart." Yama granted this fully. The next boon was
 that he wanted to know about a certain sacrifice which took people to
 heaven. Now we have seen that the oldest idea which we got in the
-Samhitâ portion of the Vedas was only about heaven where they had bright
+Samhitā portion of the Vedas was only about heaven where they had bright
 bodies and lived with the fathers. Gradually other ideas came, but they
 were not satisfying; there was still need for something higher. Living
 in heaven would not be very different from life in this world. At best,

@@ -19,7 +19,7 @@ U. S. A.,
 DEAR ALASINGA,
 
 This morning I received your last letter and that first volume of the
-Bhâshya of Râmânujâcharya. A few days ago I received another letter from
+Bhāshya of Rāmānujācharya. A few days ago I received another letter from
 you. Also I received a letter from Mr. Mani Iyer. I am doing well and
 going on in the same old rate. You mention about the lectures of Mr.
 Lund. I do not know who he is or where he is. He may be some one
@@ -34,7 +34,7 @@ put out the fire. In the second place, every one of these orthodox
 lectures against India must have a good deal of abuse hurled against me.
 If you hear some of the filthy stories the orthodox men and women invent
 against me, you will be astonished. Now, do you mean to say that a
-Sannyâsin should go about defending himself against the brutal and
+Sannyāsin should go about defending himself against the brutal and
 cowardly attacks of these self-seeking men and women? I have some very
 influential friends here who, now and then, give them their quietus.
 Again, why should I waste my energies defending Hinduism if the Hindus
@@ -80,18 +80,18 @@ I do not hear much now about the Temple Universal that was to be built
 in America; yet I have a firm footing in New York, the very centre of
 American life, and so my work will go on. I am taking several of my
 disciples to a summer retreat to finish their training in Yoga and
-Bhakti and Jnâna, and then they will be able to help carry the work on.
+Bhakti and Jnāna, and then they will be able to help carry the work on.
 Now my boys, go to work.
 
 Within a month I shall be in a position to send some money for the
 paper. Do not go about begging from the Hindu beggars. I will do it all
 *myself* with my own brain and strong right hand. I do not want the help
 of any man here or in India. . . . Do not press too much the Ramakrishna
-Avatâra.
+Avatāra.
 
 Now I will tell you my discovery. All of religion is contained in the
 Vedanta, that is, in the three stages of the Vedanta philosophy, the
-Dvaita, Vishishtâdvaita and Advaita; one comes after the other. These
+Dvaita, Vishishtādvaita and Advaita; one comes after the other. These
 are the three stages of spiritual growth in man. Each one is necessary.
 This is the essential of religion: the Vedanta, applied to the various
 ethnic customs and creeds of India, is Hinduism. The first stage, i.e.
@@ -101,7 +101,7 @@ Advaita, as applied in its Yoga-perception form, is Buddhism etc. Now by
 religion is meant the Vedanta; the applications must vary according to
 the different needs, surroundings, and other circumstances of different
 nations. You will find that although the philosophy is the same, the
-Shâktas, Shaivas, etc. apply it each to their own special cult and
+Shāktas, Shaivas, etc. apply it each to their own special cult and
 *forms*. Now, in your journal write article after article on these three
 systems, showing their harmony as one following after the other, and at
 the same time keeping off the ceremonial forms altogether. That is,

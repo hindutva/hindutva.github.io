@@ -13,7 +13,7 @@ CHAPTER I
 ## THE PREPARATORY RENUNCIATION
 
 We have now finished the consideration of what may be called the
-preparatory Bhakti, and are entering on the study of the Parâ-Bhakti or
+preparatory Bhakti, and are entering on the study of the Parā-Bhakti or
 supreme devotion. We have to speak of a preparation to the practice of
 this Para-Bhakti. All such preparations are intended only for the
 purification of the soul. The repetition of names, the rituals, the
@@ -34,14 +34,14 @@ turns his face away from matter — then begins renunciation, then begins
 real spiritual growth. The Karma-Yogi's renunciation is in the shape of
 giving up all the fruits of his action; he is not attached to the
 results of his labour; he does not care for any reward here or
-hereafter. The Râja-Yogi knows that the whole of nature is intended for
+hereafter. The Rāja-Yogi knows that the whole of nature is intended for
 the soul to acquire experience, and that the result of all the
 experiences of the soul is for it to become aware of its eternal
 separateness from nature. The human soul has to understand and realise
 that it has been spirit, and not matter, through eternity, and that this
 conjunction of it with matter is and can be only for a time. The
 Raja-Yogi learns the lesson of renunciation through his own experience
-of nature. The Jnâna-Yogi has the harshest of all renunciations to go
+of nature. The Jnāna-Yogi has the harshest of all renunciations to go
 through, as he has to realise from the very first that the whole of this
 solid-looking nature is all an illusion. He has to understand that all
 that is any kind of manifestation of power in nature belongs to the

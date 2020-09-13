@@ -35,7 +35,7 @@ succeeded in bringing the largest number of Indian humanity under its
 sway.
 
 The superior race styled themselves the Âryas or nobles, and their
-method was the Varnâshramâchâra — the so-called caste.
+method was the Varnāshramāchāra — the so-called caste.
 
 Of course the men of the Aryan race reserved for themselves, consciously
 or unconsciously a good many privileges; yet the institution of caste
@@ -105,7 +105,7 @@ Naturally, a group having raised itself would try to preserve the
 privileges to itself. Hence, whenever it was possible to get the help of
 a king, the higher castes, especially the Brahmins, have tried to put
 down similar aspirations in lower castes, by the sword if practicable.
-But the question is: Did they succeed? Look closely into your Purânas
+But the question is: Did they succeed? Look closely into your Purānas
 and Upa-puranas, look especially into the local Khandas of the big
 Puranas, look round and see what is happening before your eyes, and you
 will find the answer.
@@ -144,7 +144,7 @@ is destined to lead Indian humanity to its goal.
 
 We earnestly entreat the Brahmins of the South not to forget the ideal
 of India — the production of a universe of Brahmins, pure as purity,
-good as God Himself: this was at the beginning, says the Mahâbhârata,
+good as God Himself: this was at the beginning, says the Mahābhārata,
 and so will it be in the end.
 
 Then anyone who claims to be a Brahmin should prove his pretensions,
@@ -175,8 +175,8 @@ In the midst of this ignorant clamour and hatred, we are delighted to
 find Pandit D. Savariroyan pursuing the only legitimate and the only
 sensible course. Instead of wasting precious vitality in foolish and
 meaningless quarrels, Pandit Savariroyan has undertaken in his articles
-on the "Admixture of the Aryan with Tamilian" in the *Siddhânta
-Deepikâ*, to clear away not only a lot of haze, created by a too
+on the "Admixture of the Aryan with Tamilian" in the *Siddhānta
+Deepikā*, to clear away not only a lot of haze, created by a too
 adventurous Western philology, but to pave the way to a better
 understanding of the caste problem in the South.
 
@@ -221,7 +221,7 @@ Tamilian elements found in the Sanskrit literature, philosophy, and
 religion. And who are more competent to do this work than those who
 learn the Tamilian idioms as their mother-tongue?
 
-As for us Vedântins and Sannyâsins, ore are proud of our
+As for us Vedāntins and Sannyāsins, ore are proud of our
 Sanskrit-speaking ancestors of the Vedas; proud of our Tamil-speaking
 ancestors whose civilization is the oldest yet known; we are proud of
 our Kolarian ancestors older than either of the above — who lived and

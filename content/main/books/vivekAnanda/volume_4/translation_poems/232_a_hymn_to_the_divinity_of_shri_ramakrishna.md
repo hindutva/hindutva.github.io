@@ -14,7 +14,7 @@ title: A HYMN TO THE DIVINITY OF SHRI RAMAKRISHNA
 
 We salute Thee!  
 Lord! Adored of the world,  
-Samsâra's bondage breaker, taintless Thou,  
+Samsāra's bondage breaker, taintless Thou,  
 Embodiment of blessed qualities,  
 Thou transcendest all Gunas: human form  
 Thus bearest.  
@@ -34,7 +34,7 @@ By Mridanga (A kind of drum) playing with music's grace,
 Fill the air, in evening worship to Thee.
 
 One glancing vision at Thine eyes divine  
-Cleared by the collyrium of Jnâna  
+Cleared by the collyrium of Jnāna  
 Defies delusion. O thou blotter-out  
 Of all the taints of sin, Intelligence  
 Pure, unmingled is Thy form. Of the world  
@@ -48,7 +48,7 @@ O Lord of the world, though Thy Yoga power
 Thou shinest as the Incarnation clear  
 Of this our time. O thou of strict restraint,  
 Only through Thine unstinted grace we see  
-The mind in Samâdhi completely merged;  
+The mind in Samādhi completely merged;  
 Mercy Incarnate! austere are Thy deeds.
 
 Thou dealest to the evil of Misery  
@@ -60,7 +60,7 @@ O best of men! O Saviour of the world!
 Devoid wert Thou of the idea of sex,  
 Thought of possession charmed Thee not. To Thee  
 Obnoxious was all pleasure. Give to us,  
-O greatest among Tyâgis, (Renouncers) love intense  
+O greatest among Tyāgis, (Renouncers) love intense  
 Unto Thy sacred feet; give, we implore!
 
 Fearless art Thou, and past all gloom of doubt;  

@@ -33,18 +33,18 @@ Second — Niyama. The bodily care, bathing daily, dietary, etc.
 Third — Âsana, posture. Hips, shoulders, and head must be held straight,
 leaving the spine free.
 
-Fourth — Prânâyâma, restraining the breath (in order to get control of
-the Prâna or vital force).
+Fourth — Prānāyāma, restraining the breath (in order to get control of
+the Prāna or vital force).
 
-Fifth — Pratyâhâra, turning the mind inward and restraining it from
+Fifth — Pratyāhāra, turning the mind inward and restraining it from
 going outward, revolving the matter in the mind in order to understand
 it.
 
-Sixth — Dhâranâ, concentration on one subject.
+Sixth — Dhāranā, concentration on one subject.
 
-Seventh — Dhyâna, meditation.
+Seventh — Dhyāna, meditation.
 
-Eighth — Samâdhi, illumination, the aim of all our efforts.
+Eighth — Samādhi, illumination, the aim of all our efforts.
 
 Yama and Niyama are for lifelong practice. As for the others, we do as
 the leech does, not leave one blade of grass before firmly grasping
@@ -82,12 +82,12 @@ Pranayama has three parts:
 
 There are two currents passing through the brain and circulating down
 the sides of the spine, crossing at the base and returning to the brain.
-One of these currents, called the "sun" (Pingalâ), starts from the left
+One of these currents, called the "sun" (Pingalā), starts from the left
 hemisphere of the brain, crosses at the base of the brain to the right
 side of the spine, and recrosses at the base of the spine, like one-half
 of the figure eight.
 
-The other current, the "moon" (Idâ), reverses this action and completes
+The other current, the "moon" (Idā), reverses this action and completes
 this figure eight. Of course, the lower part is much longer than the
 upper. These currents flow day and night and make deposits of the great
 life forces at different points, commonly known as "plexuses"; but we

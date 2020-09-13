@@ -190,7 +190,7 @@ weight of the body. ... The only thing to remember in the sitting
 posture: \[use\] any posture in which the spine is perfectly free of the
 weight of the body.
 
-Next \[Prânâyâma\] ... the breathing exercises. A great deal of stress
+Next \[Prānāyāma\] ... the breathing exercises. A great deal of stress
 is laid upon breathing. ... What I am telling you is not something
 gleaned from some sect in India. It is universally true. Just as in this
 country you teach your children certain prayers, \[in India\] they get
@@ -212,7 +212,7 @@ and God. But there are certain general methods which all these teachers
 preach. Breathing \[and\] meditating are universal. That is the worship
 in India.
 
-On the banks of the Gangâ, we will see men, women, and children all
+On the banks of the Gangā, we will see men, women, and children all
 \[practicing\] breathing and then meditating. Of course, they have other
 things to do. They cannot devote much time to this. But those who have
 taken this as the study of life, they practice various methods. There
@@ -220,7 +220,7 @@ are eighty-four different Âsanas (postures). Those that take it up under
 some person, they always feel the breath and the movements in all the
 different parts of the body. ...
 
-Next comes Dhâranâ \[concentration\]. ... Dharana is holding the mind in
+Next comes Dhāranā \[concentration\]. ... Dharana is holding the mind in
 certain spots.
 
 The Hindu boy or girl ... gets initiation. He gets from his Guru a word.

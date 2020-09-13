@@ -25,7 +25,7 @@ particular circumstances, times, and places. The eternal relations which
 deal with the nature of the soul, and of God, and the relations between
 souls and God are embodied in what we call the Shrutis, the Vedas. The
 next set of truths is what we call the Smritis, as embodied in the words
-of Manu. Yâjnavalkya, and other writers and also in the Purânas, down to
+of Manu. Yājnavalkya, and other writers and also in the Purānas, down to
 the Tantras. The second class of books and teachings is subordinate to
 the Shrutis, inasmuch as whenever any one of these contradicts anything
 in the Shrutis, the Shrutis must prevail. This is the law. The idea is
@@ -53,7 +53,7 @@ preaches an Impersonal Personal God. It preaches any amount of
 impersonal laws *plus* any amount of personality, but the very
 fountain-head of our religion is in the Shrutis, the Vedas, which are
 perfectly impersonal; the persons all come in the Smritis and Puranas —
-the great Avatâras, Incarnations of God, Prophets, and so forth. And
+the great Avatāras, Incarnations of God, Prophets, and so forth. And
 this ought also to be observed that except our religion every other
 religion in the world depends upon the life or lives of some personal
 founder or founders. Christianity is built upon the life of Jesus
@@ -80,7 +80,7 @@ guidance of people from time to time according to different times and
 places, according to different circumstances and environments; people
 had to be guided along the old, old path, and for this these great
 teachers came, these great sages. Nothing can bear out more clearly this
-position than the celebrated saying of Shri Krishna in the Gitâ:
+position than the celebrated saying of Shri Krishna in the Gitā:
 "Whenever virtue subsides and irreligion prevails, I create Myself for
 the protection of the good; for the destruction of all immorality I am
 coming from time to time." This is the idea in India.
@@ -141,7 +141,7 @@ Incarnations of God. There are also secondary characters. We find the
 word Rishi again and again mentioned in the Vedas, and it has become a
 common word at the present time. The Rishi is the great authority. We
 have to understand that idea. The definition is that the Rishi is the
-Mantra-drashtâ, the seer of thought. What is the proof of religion? —
+Mantra-drashtā, the seer of thought. What is the proof of religion? —
 this was asked in very ancient times. There is no proof in the senses
 was the declaration. यतो वाचो निवर्तन्ते अप्राप्य मनसा सह — "From whence
 words reflect back with thought without reaching the goal." न तत्र
@@ -180,7 +180,7 @@ The proof, therefore, of the Vedas is just the same as the proof of this
 table before me, Pratyaksha, direct perception. This I see with the
 senses, and the truths of spirituality we also see in a superconscious
 state of the human soul. This Rishi-state is not limited by time or
-place, by sex or race. Vâtsyâyana boldly declares that this Rishihood is
+place, by sex or race. Vātsyāyana boldly declares that this Rishihood is
 the common property of the descendants of the sage, of the Aryan, of the
 non-Aryan, of even the Mlechchha. This is the sageship of the Vedas, and
 constantly we ought to remember this ideal of religion in India, which I
@@ -232,14 +232,14 @@ Mantra-drashta — that is freedom, that is salvation.
 
 Coming down to later times, there have been great world-moving sages,
 great Incarnations of whom there have been many; and according to the
-*Bhâgavata*, they also are infinite in number, and those that are
-worshipped most in India are Râma and Krishna. Rama, the ancient idol of
+*Bhāgavata*, they also are infinite in number, and those that are
+worshipped most in India are Rāma and Krishna. Rama, the ancient idol of
 the heroic ages, the embodiment of truth, of morality, the ideal son,
 the ideal husband, the ideal father, and above all, the ideal king, this
-Rama has been presented before us by the great sage Vâlmiki. No language
+Rama has been presented before us by the great sage Vālmiki. No language
 can be purer, none chaster, none more beautiful and at the same time
 simpler than the language in which the great poet has depicted the life
-of Rama. And what to speak of Sitâ? You may exhaust the literature of
+of Rama. And what to speak of Sitā? You may exhaust the literature of
 the world that is past, and I may assure you that you will have to
 exhaust the literature of the world of the future, before finding
 another Sita. Sita is unique; that character was depicted once and for
@@ -248,7 +248,7 @@ Sita! She is the very type of the true Indian woman, for all the Indian
 ideals of a perfected woman have grown out of that one life of Sita; and
 here she stands these thousands of years, commanding the worship of
 every man, woman, and child throughout the length and breadth of the
-land of Âryâvarta. There she will always be, this glorious Sita, purer
+land of Âryāvarta. There she will always be, this glorious Sita, purer
 than purity itself, all patience, and all suffering. She who suffered
 that life of suffering without a murmur, she the ever-chaste and
 ever-pure wife, she the ideal of the people, the ideal of the gods, the
@@ -285,7 +285,7 @@ the same Krishna who played with the Gopis. Ah, that most marvellous
 passage of his life, the most difficult to understand, and which none
 ought to attempt to understand until he has become perfectly chaste and
 pure, that most marvellous expansion of love, allegorised and expressed
-in that beautiful play at Vrindâban, which none can understand but he
+in that beautiful play at Vrindāban, which none can understand but he
 who has become mad with love, drunk deep of the cup of love! Who can
 understand the throes of the lore of the Gopis — the very ideal of love,
 love that wants nothing, love that even does not care for heaven, love
@@ -332,7 +332,7 @@ something impure. To them I have only to say, first make yourselves
 pure; and you must remember that he who tells the history of the love of
 the Gopis is none else but Shuka Deva. The historian who records this
 marvellous love of the Gopis is one who was born pure, the eternally
-pure Shuka, the son of Vyâsa. So long as there its selfishness in the
+pure Shuka, the son of Vyāsa. So long as there its selfishness in the
 heart, so long is love of God impossible; it is nothing but shopkeeping:
 "I give you something; O Lord, you give me something in return"; and
 says the Lord, "If you do not do this, I will take good care of you when
@@ -395,7 +395,7 @@ much. Dr. So-and-so does not like it. Certainly then, the Gopis have to
 go! Without the sanction of Europeans how can Krishna live? He cannot!
 In the Mahabharata there is no mention of the Gopis except in one or two
 places, and those not very remarkable places. In the prayer of Draupadi
-there is mention of a Vrindaban life, and in the speech of Shishupâla
+there is mention of a Vrindaban life, and in the speech of Shishupāla
 there is again mention of this Vrindaban. All these are interpolations!
 What the Europeans do not want: must be thrown off. They are
 interpolations, the mention of the Gopis and of Krishna too! Well, with
@@ -456,7 +456,7 @@ religious grounds, but roost possibly on caste grounds — the fight
 between the two powerful factors in our community, the kings and the
 priests. And from the topmost crest of the wave that deluged India for
 nearly a thousand years, we see another glorious figure, and that was
-our Gautama Shâkyamuni. You all know about his teachings and preachings.
+our Gautama Shākyamuni. You all know about his teachings and preachings.
 We worship him as God incarnate, the greatest, the boldest preacher of
 morality that the world ever saw, the greatest Karma-Yogi; as disciple
 of himself, as it were, the same Krishna came to show how to make his
@@ -549,7 +549,7 @@ atheists. That was what Shankara showed, and all the Buddhists began to
 come back to the old religion. But then they had become accustomed to
 all these forms; what could be done?
 
-Then came the brilliant Râmânuja. Shankara, with his great intellect, I
+Then came the brilliant Rāmānuja. Shankara, with his great intellect, I
 am afraid, had not as great a heart. Ramanuja's heart was greater. He
 felt for the downtrodden, he sympathised with them. He took up the
 ceremonies, the accretions that had gathered, made them pure so far as

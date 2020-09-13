@@ -110,7 +110,7 @@ Now comes the question: Can religion really accomplish anything? It can.
 It brings to man eternal life. It has made man what he is, and will make
 of this human animal a god. That is what religion can do. Take religion
 from human society and what will remain? Nothing but a forest of brutes.
-Sense-happiness is not the goal of humanity. Wisdom (Jnâna) is the goal
+Sense-happiness is not the goal of humanity. Wisdom (Jnāna) is the goal
 of all life. We find that man enjoys his intellect more than an animal
 enjoys its senses; and we see that man enjoys his spiritual nature even
 more than his rational nature. So the highest wisdom must be this
@@ -151,7 +151,7 @@ Western countries. We regard religion and philosophy as but two aspects
 of one thing which must equally be grounded in reason and scientific
 truth.
 
-The system of the Sânkhya philosophy is one of the most ancient in
+The system of the Sānkhya philosophy is one of the most ancient in
 India, or in fact in the world. Its great exponent Kapila is the father
 of all Hindu psychology; and the ancient system that he taught is still
 the foundation of all accepted systems of philosophy in India today

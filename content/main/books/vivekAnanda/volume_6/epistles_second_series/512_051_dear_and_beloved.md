@@ -20,7 +20,7 @@ DEAR AND BELOVED, (Dr. Nanjunda Rao.)
 
 Your beautiful letter just came to hand. I am so glad that you have come
 to know Shri Ramakrishna. I am very glad at the strength of your
-Vairâgya. It is the one primary necessity in reaching God. I had always
+Vairāgya. It is the one primary necessity in reaching God. I had always
 great hopes for Madras, and still I have the firm belief that from
 Madras will come the spiritual wave that will deluge India. I can only
 say Godspeed to your good intentions; but here, my son, are the

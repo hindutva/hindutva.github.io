@@ -97,7 +97,7 @@ incessantly, raising the most abstruse subjects!" The disciple was
 abashed. But Swamiji said to Swami Brahmananda, "Keep your regulation of
 Ayurvedic treatment aside. These are my children; and if my body goes in
 teaching them, I don't care." After this, some light talk followed. Then
-arose the topic of the place of Bhâratchandra in Bengali literature.
+arose the topic of the place of Bhāratchandra in Bengali literature.
 From the beginning Swamiji began to ridicule Bharatchandra in various
 ways and satirised the life, manners, marriage-customs, and other usages
 of society at the time of Bharatchandra, who was an advocate of
@@ -107,7 +107,7 @@ acceptance in any cultured society except in Bengal, and he said, "Care
 should be taken that such books do not come into the hands of boys."
 Then raising the topic of Michael Madhusudan Dutt, he added, "That was a
 wonderful genius born in your province. There is not another epic in
-Bengali literature like the *Meghnâdbadh*, no mistake in that; and it is
+Bengali literature like the *Meghnādbadh*, no mistake in that; and it is
 difficult to come across a poem like that in the whole of modern
 European literature."
 
@@ -117,8 +117,8 @@ Swamiji: Well, if anybody in your country does anything new, you at once
 hoot him. First examine well what he is saying, but instead of that, the
 people of the country will chase after anything which is not quite after
 the old modes. For example, in order to bring to ridicule this
-*Meghnabadh Kâvya*, which is the gem of Bengali literature, the parody
-of *Chhuchhundaribadh Kâvya* (The Death of a Mole) was written. They may
+*Meghnabadh Kāvya*, which is the gem of Bengali literature, the parody
+of *Chhuchhundaribadh Kāvya* (The Death of a Mole) was written. They may
 caricature as much as they like, it does not matter. But the
 *Meghnadbadh Kavya* still stands unshaken in its reputation like the
 Himalayas while the opinions and writings of carping critics who are
@@ -138,7 +138,7 @@ Swamiji, he took the book and showed him how to read and asked him to
 read again. Then he asked him, "Now, can you say which portion of the
 Kavya is best?" The disciple failing to answer, Swamiji said, "That
 portion of the book which describes how Indrajit has been killed in
-battle and Mandodari, beside herself with grief, is dissuading Râvana
+battle and Mandodari, beside herself with grief, is dissuading Rāvana
 from the battle — but Ravana casting off forcibly from his mind the
 grief for his son is firmly resolved on battle like a great hero, and
 forgetting in a fury of rage and vengeance all about his wife and

@@ -33,7 +33,7 @@ set your mind at ease about that. In every attempt there will be one set
 of men who will applaud, and another who will pick holes. Go on doing
 your own work, what need have you to reply to any party? "सत्यमेव जयते
 नानृतं सत्येन पन्था विततो देवयानः — Truth alone triumphs, not falsehood.
-Through Truth lies Devayâna, the path of gods" (Mundaka, III. i. 6).
+Through Truth lies Devayāna, the path of gods" (Mundaka, III. i. 6).
 Everything will come about by degrees.
 
 Here in summer they go to the seaside: I also did the same. They have
@@ -97,7 +97,7 @@ breath knocked out of them. ...
 The Theosophists have not much power. But they, too, are dead set
 against the orthodox section.
 
-The Christian Science is exactly like our Kartâbhajâ[2](#fn2) sect: Say,
+The Christian Science is exactly like our Kartābhajā[2](#fn2) sect: Say,
 "I have no disease", and you are whole; and say, "I am He" — "So'ham" —
 and you are quits — be at large. This is a thoroughly materialistic
 country. The people of this Christian land will recognise religion if
@@ -158,7 +158,7 @@ this distinction of sex. Is there any sex-distinction in the Atman
 (Self)? Out with the differentiation between man and woman — all is
 Atman! Give up the identification with the body, and stand up! Say,
 "Asti, Asti" — "Everything is!" — cherish positive thoughts. By dwelling
-too much upon "Nâsti, Nâsti" — "It is not! It is not!" (negativism), the
+too much upon "Nāsti, Nāsti" — "It is not! It is not!" (negativism), the
 whole country is going to ruin! "So'ham, So'ham, Shivo'ham" — "I am He!
 I am He! I am Shiva!" What a botheration! In every soul is infinite
 strength; and should you turn yourselves into cats and dogs by
@@ -176,7 +176,7 @@ Bliss!" "निर्गच्छति जगज्जालात् पिञ
 the meshes of this world as a lion from its cage!" "नायमात्मा बलहीनेन
 लभ्यः — This Atman is not accessible to the weak". . . . Hurl yourselves
 on the world like an avalanche — let the world crack in twain under your
-weight! Hara! Hara! Mahâdeva! उद्धरेदात्मनात्मानम् — One must save the
+weight! Hara! Hara! Mahādeva! उद्धरेदात्मनात्मानम् — One must save the
 self by one's own self" — by personal prowess.
 
 . . . Will such a day come when this life will go for the sake of
@@ -253,7 +253,7 @@ with repeated salutations we invite the whole world to participate in
 drinking the nectar.
 
 "That nectar which has been obtained by churning the infinite ocean of
-the Vedas, into which Brahmâ, Vishnu, Shiva, and the other gods have
+the Vedas, into which Brahmā, Vishnu, Shiva, and the other gods have
 poured their strength, which is charged with the life-essence of the
 Avataras — Gods Incarnate on earth — Shri Ramakrishna holds that nectar
 in his person, in its fullest measure!"
@@ -283,7 +283,7 @@ Brush it aside! वीर्यमसि वीर्यं मयि धेह�
 मयि धेहि, सहोऽसि सही मयि धेहि — Thou art Energy, impart energy unto me.
 Thou art Strength, impart strength unto me. Thou art Spirituality,
 impart spirituality unto me. Thou art Fortitude, impart fortitude unto
-me!" The ceremony of steadying the seat (Âsana-pratishthâ) that you
+me!" The ceremony of steadying the seat (Âsana-pratishthā) that you
 perform every day when you sit down to worship the Lord —
 "आत्मानमच्छिद्रं भावयेत् — One must think of oneself as strong and
 invulnerable," and so forth — what does it all mean? Say, "Everything is
@@ -298,10 +298,10 @@ VIVEKANANDA.
 
 1.  [^](#txt1)The Orthodox Christians brand Hindus and people of other
     religions with this name and look upon them with scorn.
-2.  [^](#txt2)An offshoot of degenerate Vaishnavism, calling God "Kartâ"
+2.  [^](#txt2)An offshoot of degenerate Vaishnavism, calling God "Kartā"
     or Master, and noted for efficiency in faith-cure.
-3.  [^](#txt3)The King of the Asuras and son of the saintly Prahlâda. He
+3.  [^](#txt3)The King of the Asuras and son of the saintly Prahlāda. He
     went to Brahma for Self-knowledge, but misunderstanding His teaching
-    turned a materialist. (Chhândogya Upa., VIII).
+    turned a materialist. (Chhāndogya Upa., VIII).
 
 

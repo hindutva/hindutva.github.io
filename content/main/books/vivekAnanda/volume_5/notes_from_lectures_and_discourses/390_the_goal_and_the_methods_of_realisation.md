@@ -29,7 +29,7 @@ Both the goal and the methods employed for reaching it are called Yoga,
 a word derived from the same Sanskrit root as the English "yoke",
 meaning "to join", to join us to our reality, God. There are various
 such Yogas, or methods of union — but the chief ones are — Karma-Yoga,
-Bhakti-Yoga, Râja-Yoga, and Jnâna-Yoga.
+Bhakti-Yoga, Rāja-Yoga, and Jnāna-Yoga.
 
 Every man must develop according to his own nature. As every science has
 its methods, so has every religion. The methods of attaining the end of

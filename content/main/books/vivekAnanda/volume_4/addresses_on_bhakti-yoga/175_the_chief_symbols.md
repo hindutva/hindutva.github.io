@@ -10,7 +10,7 @@ title: THE CHIEF SYMBOLS
 
 ## THE CHIEF SYMBOLS
 
-There are two Sanskrit words, Pratika and Pratimâ. Pratika means coming
+There are two Sanskrit words, Pratika and Pratimā. Pratika means coming
 towards, nearing. In all countries you find various grades of worship.
 In this country, for instance, there are people who worship images of
 saints, there are people who worship certain forms and symbols. Then
@@ -26,14 +26,14 @@ lead us to salvation and freedom; it can only give us certain particular
 things for which we worship them. For instance, if a man worships his
 departed ancestors or departed friends, he may get certain powers or
 certain information from them. Any particular gift that is got from
-these objects of worship is called Vidyâ, particular knowledge; but
+these objects of worship is called Vidyā, particular knowledge; but
 freedom, the highest aim, comes only by worship of God Himself. Some
 Orientalists think, in expounding the Vedas, that even the Personal God
 Himself is a Pratika. The Personal God may be a Pratika, but the
 Pratikas are neither the Personal nor Impersonal God. They cannot be
 worshipped as God. So it would be a great mistake if people thought that
 by worshipping these different Pratikas, either as angels, or ancestors,
-or Mahâtmâs (holy men, saints), etc., or departed spirits, they could
+or Mahātmās (holy men, saints), etc., or departed spirits, they could
 ever reach to freedom. At best they can only reach to certain powers,
 but God alone can make us free. But because of that they are not to be
 condemned, their worship produces some result. The man who does not
@@ -102,13 +102,13 @@ a good policy, but bad morality. Think of the mass of incongruities that
 reformers, and what you call the liberal preachers, pour into society
 today. According to Christian Scientists, Jesus was a great healer;
 according to the Spiritualists, He was a great psychic; according to the
-Theosophists, He was a Mahâtmâ. All these have to be deduced from the
+Theosophists, He was a Mahātmā. All these have to be deduced from the
 same text. There is a text in the Vedas which says, "Existence (Sat)
 alone existed, O beloved, nothing else existed in the beginning". Many
 different meanings are given to the word Sat in this text. The Atomists
 say the word meant "atoms", and out of these atoms the world has been
 produced. The Naturalists say it meant "nature", and out of nature
-everything has come. The Shunyavâdins (maintainers of the Void) say it
+everything has come. The Shunyavādins (maintainers of the Void) say it
 meant "nothing", "zero", and out of nothing everything has been
 produced. The Theists say it meant "God", and the Advaitists say it was
 "Absolute Existence", and all refer to the same text as their authority.
@@ -224,7 +224,7 @@ God *in* the image is perfectly right. There is no danger there. This is
 the real worship of God. But the image-God is a mere Pratika.
 
 The next great thing to consider in Bhakti is the "word", the
-Nâmashakti, the power of the name. The whole universe is composed of
+Nāmashakti, the power of the name. The whole universe is composed of
 name and form. Whatever we see is either a compound of name and form, or
 simply name with form which is a mental image. So, after all, there is
 nothing that is not name and form. We all believe God to be without form
@@ -287,7 +287,7 @@ a particular person, a little universe in this universe, a body with a
 particular form; then behind that a name, John or Jane, and behind that
 again a thought; similarly there is this whole universe, and behind that
 is the name, what is called the "Word" in all religions, and behind that
-is God. The universal thought is Mahat, as the Sânkhyas call it,
+is God. The universal thought is Mahat, as the Sānkhyas call it,
 universal consciousness. What is that name? There must be some name. The
 world is homogeneous, and modern science shows beyond doubt that each
 atom is composed of the same material as the whole universe. If you know

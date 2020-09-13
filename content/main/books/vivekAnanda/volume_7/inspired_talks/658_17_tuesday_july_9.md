@@ -20,12 +20,12 @@ this human body is the best and the human mind the highest mind there
 is. When a man attains to the Atman state, he can take a body, making it
 to suit himself; he is above law. This is a statement and must be
 proved. Each one must prove it for himself; we may satisfy ourselves,
-but we cannot satisfy another. Râja-Yoga is the only science of religion
+but we cannot satisfy another. Rāja-Yoga is the only science of religion
 that can be demonstrated; and only what I myself have proved by
 experience, do I teach. The full ripeness of reason is intuition, but
 intuition cannot antagonise reason.
 
-Work purifies the heart and so leads to Vidyâ (wisdom). The Buddhists
+Work purifies the heart and so leads to Vidyā (wisdom). The Buddhists
 said, doing good to men and to animals were the only works; the Brahmins
 said that worship and all ceremonials were equally "work" and purified
 the mind. Shankara declares that "all works, good and bad, are against

@@ -13,9 +13,9 @@ title: IS THE SOUL IMMORTAL?
 (The Swamiji's contribution to the discussion of this question, carried
 on in the pages of *The New York Morning Advertiser*.)
 
-*"None has power to destroy the unchangeable."* — Bhagavad-Gitâ.
+*"None has power to destroy the unchangeable."* — Bhagavad-Gitā.
 
-In the great Sanskrit epic, the Mahâbhârata, the story is told how the
+In the great Sanskrit epic, the Mahābhārata, the story is told how the
 hero, Yudhishthira, when asked by Dharma to tell what was the most
 wonderful thing in the world, replied, that it was the persistent belief
 of man kind in their own deathlessness in spite of their witnessing

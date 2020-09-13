@@ -24,7 +24,7 @@ am going to Germany. I have an invitation from Prof. Deussen to visit
 him at Kiel. From thence I go back to England. Possibly I will return to
 India this winter.
 
-What I objected to in the design for the *Prabuddha Bhârata* was not
+What I objected to in the design for the *Prabuddha Bhārata* was not
 only its tawdriness, but the crowding in of a number of figures without
 any purpose. A design should be simple, symbolical, and condensed. I
 will try to make a design for *Prabuddha* *Bharata* in London and send
@@ -45,7 +45,7 @@ will succeed.
 When you have succeeded in this paper, start vernacular ones on the same
 lines in Tamil, Telugu, Canarese, etc. We must reach the masses. The
 Madrasis are good, energetic, and all that, but the land of
-Shankarâchârya has lost the spirit of renunciation, it seems.
+Shankarāchārya has lost the spirit of renunciation, it seems.
 
 My children must plunge into the breach, must renounce the world — then
 the firm foundation will be laid.

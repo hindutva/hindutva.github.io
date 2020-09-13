@@ -22,8 +22,8 @@ C/O GEORGE W. HALE, ESQ.,
 
 DEAR SISTERS, (Misses Mary and H. Hale.)
 
-The great Hindi poet, Tulasidâsa, in his benediction to his translation
-of the Râmâyana, says, "I bow down to both the wicked and holy; but
+The great Hindi poet, Tulasidāsa, in his benediction to his translation
+of the Rāmāyana, says, "I bow down to both the wicked and holy; but
 alas! for me, they are both equally torturers — the wicked begin to
 torture me as soon as they come in contact with me — the good, alas!
 take my life away when they leave me." I say amen to this. To me, for

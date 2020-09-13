@@ -37,7 +37,7 @@ in the long run. . . .
 I have no time even to die, as the Bengalis say. I work, work, work, and
 earn my own bread and help my country, and this all alone, and then get
 only criticism from friends and foes for all that! Well, you are but
-children, I shall have to bear everything. I have sent for a Sannyâsin
+children, I shall have to bear everything. I have sent for a Sannyāsin
 from Calcutta and shall leave him to work in London. I want one more for
 America — I want my *own man*. Guru-Bhakti is the foundation of all
 spiritual development.

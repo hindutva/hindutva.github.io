@@ -26,7 +26,7 @@ this, to consider what is meant by the word "law". By law is meant the
 tendency of a series to repeat itself. When we see one event followed by
 another, or sometimes happening simultaneously with another, we expect
 this sequence or co-existence to recur. Our old logicians and
-philosophers of the Nyâyâ school call this law by the name of Vyâpti.
+philosophers of the Nyāyā school call this law by the name of Vyāpti.
 According to them, all our ideas of law are due to association. A series
 of phenomena becomes associated with things in our mind in a sort of
 invariable order, so that whatever we perceive at any time is
@@ -35,7 +35,7 @@ according to our psychology, any one wave that is produced in the
 mind-stuff, Chitta, must always give rise to many similar waves. This is
 the psychological idea of association, and causation is only an aspect
 of this grand pervasive principle of association. This pervasiveness of
-association is what is, in Sanskrit, called Vyâpti. In the external
+association is what is, in Sanskrit, called Vyāpti. In the external
 world the idea of law is the same as in the internal — the expectation
 that a particular phenomenon will be followed by another, and that the
 series will repeat itself. Really speaking, therefore, law does not
@@ -50,7 +50,7 @@ the method of the whole series — constitute what we call law.
 The next question for consideration is what we mean by law being
 universal. Our universe is that portion of existence which is
 characterized by what the Sanskrit psychologists call
-Desha-kâla-nimitta, or what is known to European psychology as space,
+Desha-kāla-nimitta, or what is known to European psychology as space,
 time, and causation. This universe is only a part of infinite existence,
 thrown into a peculiar mould, composed of space, time, and causation. It
 necessarily follows that law is possible only within this conditioned
@@ -103,8 +103,8 @@ and nothing more. He has forgotten his infinite nature, and his whole
 idea is confined to these little joys, and sorrows, and heart-jealousies
 of the moment. He thinks that this finite thing is the infinite; and not
 only so, he will not let this foolishness go. He clings on desperately
-unto Trishnâ, and the thirst after life, what the Buddhists call Tanhâ
-and Tissâ. There may be millions of kinds of happiness, and beings, and
+unto Trishnā, and the thirst after life, what the Buddhists call Tanhā
+and Tissā. There may be millions of kinds of happiness, and beings, and
 laws, and progress, and causation, all acting outside the little
 universe that we know; and, after all, the whole of this comprises but
 one section of our infinite nature.
@@ -149,7 +149,7 @@ things, enjoying things and thus obtaining experience, and knowing the
 nature of things until the mind lets them all go at last and becomes
 unattached. The former way of obtaining non-attachment is by reasoning,
 and the latter way is through work and experience. The first is the path
-of Jnâna-Yoga, and is characterized by the refusal to do any work; the
+of Jnāna-Yoga, and is characterized by the refusal to do any work; the
 second is that of Karma-Yoga, in which there is no cessation from work.
 Every one must work in the universe. Only those who are perfectly
 satisfied with the Self, whose desires do not go beyond the Self, whose
@@ -232,7 +232,7 @@ and do not allow the mind to get into the ways of selfishness. Then you
 may go out into the world and work as much as you can. Mix everywhere,
 go where you please; you will never be contaminated with evil. There is
 the lotus leaf in the water; the water cannot touch and adhere to it; so
-will you be in the world. This is called "Vairâgya", dispassion or
+will you be in the world. This is called "Vairāgya", dispassion or
 non-attachment. I believe I have told you that without non-attachment
 there cannot be any kind of Yoga. Non-attachment is the basis of all the
 Yogas. The man who gives up living in houses, wearing fine clothes, and
@@ -346,7 +346,7 @@ Christs, and it is these latter that become known to us. The highest men
 do not seek to get any name or fame from their knowledge. They leave
 their ideas to the world; they put forth no claims for themselves and
 establish no schools or systems in their name. Their whole nature
-shrinks from such a thing. They are the pure Sâttvikas, who can never
+shrinks from such a thing. They are the pure Sāttvikas, who can never
 make any stir, but only melt down in love. I have seen one such Yogi who
 lives in a cave in India. He is one of the most wonderful men I have
 ever seen. He has so completely lost the sense of his own individuality

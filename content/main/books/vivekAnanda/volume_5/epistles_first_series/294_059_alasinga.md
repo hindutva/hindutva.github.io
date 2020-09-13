@@ -18,7 +18,7 @@ BOSTON,
 
 DEAR ALASINGA,
 
-. . . One of my new Sannyâsins is indeed a woman. . . . The others are
+. . . One of my new Sannyāsins is indeed a woman. . . . The others are
 men. I am going to make some more in England and take them over to India
 with me. These "white" faces will have more influence in India than the
 Hindus; moreover, they are vigorous, the Hindus are *dead*. The only

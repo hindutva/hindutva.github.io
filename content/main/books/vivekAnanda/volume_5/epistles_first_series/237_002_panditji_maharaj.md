@@ -26,7 +26,7 @@ worthy of the hire"; and a Fakir, especially, has no right to any praise
 whatsoever, for would you praise your servant for simply doing his duty?
 
 . . . My unbounded gratitude to Pandit Sundarlalji, and to my Professor
-(With whom he read the Mahâ-Bhâshya on Pânini.) for this kind
+(With whom he read the Mahā-Bhāshya on Pānini.) for this kind
 remembrance of me.
 
 Now I would tell you something else. The Hindu mind was ever deductive
@@ -38,7 +38,7 @@ Therefore independent thought we have almost none to speak of, and hence
 the dearth of those sciences which are the results of observation and
 generalization. And why was it thus? — From two causes: The tremendous
 heat of the climate forcing us to love rest and contemplation better
-than activity, and the Brâhmins as priests never undertaking journeys or
+than activity, and the Brāhmins as priests never undertaking journeys or
 voyages to distant lands. There were voyagers and people who travelled
 far; but they were almost always traders, i.e. people from whom
 priestcraft and their own sole love for gain had taken away all capacity
@@ -51,14 +51,14 @@ So you see, we must travel, we must go to foreign parts. We must see how
 the engine of society works in other countries, and keep free and open
 communication with what is going on in the minds of other nations, if we
 really want to be a nation again. And over and above all, we must cease
-to tyrannise. To what a ludicrous state are we brought! If a Bhângi
+to tyrannise. To what a ludicrous state are we brought! If a Bhāngi
 comes to anybody as a Bhangi, he would be shunned as the plague; but no
 sooner does he get a cupful of water poured upon his head with some
-mutterings of prayers by a Pâdri, and get a coat on his back, no matter
+mutterings of prayers by a Pādri, and get a coat on his back, no matter
 how threadbare, and come into the room of the most orthodox Hindu — I
 don't see the man who then dare refuse him a chair and a hearty shake of
 the hands! Irony can go no further. And come and see what they, the
-Pâdris, are doing here in the Dakshin (south). They are converting the
+Pādris, are doing here in the Dakshin (south). They are converting the
 lower classes by lakhs; and in Travancore, the most priestridden country
 in India — where every bit of land is owned by the Brahmins . . . nearly
 one-fourth has become Christian! And I cannot blame them; what part have

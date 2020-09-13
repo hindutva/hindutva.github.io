@@ -18,7 +18,7 @@ U.S.A.
 
 DEAR ALASINGA,
 
-Last week I wrote you about the *Brahmavâdin*. I forgot to write about
+Last week I wrote you about the *Brahmavādin*. I forgot to write about
 the Bhakti lectures. They ought to be published in a book all together.
 A few hundreds may be sent to America to Goodyear in New York. Within
 twenty days I sail for England. I have other big books on Karma, Jnana,

@@ -29,7 +29,7 @@ externalised thought.[1](#fn1)
 
 Nivritti is turning aside from the world. Hindu mythology says that the
 four first-created  (The four first-created were Sanaka, Sanandana,
-Sanâtana, and Sanatkumâra.) were warned by a Swan (God Himself) that
+Sanātana, and Sanatkumāra.) were warned by a Swan (God Himself) that
 manifestation was only secondary; so they remained without creating. The
 meaning of this is that expression is degeneration, because Spirit can
 only be expressed by the letter and then the "letter killeth" (Bible, 2

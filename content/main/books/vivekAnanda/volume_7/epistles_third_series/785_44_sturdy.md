@@ -130,8 +130,8 @@ them to die in holes for my sake. I don't, by all that is good and true
 I don't, want them starved and worked and cursed for all their pains.
 
 A word more. I shall be very glad if you can point out to me where I
-have preached torturing the flesh. As for the Shâstras (scriptures), I
-shall be only too glad if a Shâstri (Pundit) dares oppose us with the
+have preached torturing the flesh. As for the Shāstras (scriptures), I
+shall be only too glad if a Shāstri (Pundit) dares oppose us with the
 rules of life laid down for Sannyasins and Paramahamsas.
 
 Well, Sturdy, my heart aches. I understand it all. I know what you are

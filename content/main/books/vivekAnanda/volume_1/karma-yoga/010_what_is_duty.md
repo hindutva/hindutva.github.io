@@ -178,7 +178,7 @@ woman to whom man represents the fatherhood of God. Blessed are the
 children who look upon their parents as Divinity manifested on earth.
 
 The only way to rise is by doing the duty next to us, and thus gathering
-strength go on until we reach the highest state. A young Sannyâsin went
+strength go on until we reach the highest state. A young Sannyāsin went
 to a forest; there he meditated, worshipped, and practiced Yoga for a
 long time. After years of hard work and practice, he was one day sitting
 under a tree, when some dry leaves fell upon his head. He looked up and
@@ -203,7 +203,7 @@ I am married, I do my duty to my husband; that is all the Yoga I
 practice. But by doing my duty I have become illumined; thus I could
 read your thoughts and know what you had done in the forest. If you want
 to know something higher than this, go to the market of such and such a
-town where you will find a Vyâdha (The lowest class of people in India
+town where you will find a Vyādha (The lowest class of people in India
 who used to live as hunters and butchers.) who will tell you something
 that you will be very glad to learn." The Sannyasin thought, "Why should
 I go to that town and to a Vyadha?" But after what he had seen, his mind
@@ -222,7 +222,7 @@ mother, fed them, and did all he could to please them, after which he
 came to the Sannyasin and said, "Now, sir, you have come here to see me;
 what can I do for you?" The Sannyasin asked him a few questions about
 soul and about God, and the Vyadha gave him a lecture which forms a part
-of the Mahâbhârata, called the *Vyâdha-Gitâ*. It contains one of the
+of the Mahābhārata, called the *Vyādha-Gitā*. It contains one of the
 highest flights of the Vedanta. When the Vyadha finished his teaching,
 the Sannyasin felt astonished. He said, "Why are you in that body? With
 such knowledge as yours why are you in a Vyadha's body, and doing such

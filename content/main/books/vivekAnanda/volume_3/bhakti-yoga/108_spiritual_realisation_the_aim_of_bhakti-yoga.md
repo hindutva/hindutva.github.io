@@ -42,7 +42,7 @@ utility of human existence. Thank God there are some such still living
 in this world of too much worldliness.
 
 Bhakti-Yoga, as we have said, is divided into the Gauni or the
-preparatory, and the Parâ or the supreme forms. We shall find, as we go
+preparatory, and the Parā or the supreme forms. We shall find, as we go
 on, how in the preparatory stage we unavoidably stand in need of many
 concrete helps to enable us to get on; and indeed the mythological and
 symbological parts of all religions are natural growths which early
@@ -64,7 +64,7 @@ so-called spirit of reform.
 The vast mass of those whose religion is like this, are conscious or
 unconscious materialists — the end and aim of their lives here and
 hereafter being enjoyment, which indeed is to them the alpha and the
-omega of human life, and which is their Ishtâpurta; work like
+omega of human life, and which is their Ishtāpurta; work like
 street-cleaning and scavengering, intended for the material comfort of
 man is, according to them, the be-all and end-all of human existence;
 and the sooner the followers of this curious mixture of ignorance and

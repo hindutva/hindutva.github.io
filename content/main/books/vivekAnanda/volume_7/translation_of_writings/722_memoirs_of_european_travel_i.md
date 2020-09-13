@@ -14,10 +14,10 @@ title: MEMOIRS OF EUROPEAN TRAVEL
   
 I
 
-*Om Namo Nârâyanâya*, ("Salutations to the Lord"; the usual form of
+*Om Namo Nārāyanāya*, ("Salutations to the Lord"; the usual form of
 addressing a Sannyasin. These memoirs of his second journey to the West
 were addressed to Swami Trigunatitananda, Editor, *Udbodhan* and hence
-this form of address.) Swâmi. — Pronounce the last syllable of the
+this form of address.) Swāmi. — Pronounce the last syllable of the
 second word in a high pitch, brother, in the Hrishikesh fashion. For
 seven days we have been on board the ship and every day I think of
 writing to you something about our mode of life, and of writing
@@ -33,16 +33,16 @@ impossible for me to remember dates and such other trivialities — owing
 to the presence of the Lord in the heart. But the real truth is that it
 is due to my foolishness and idleness. What nonsense! What comparison
 can there be between "the Solar Dynasty" (Swamiji here refers to
-Kâlidâsa's famous line of the *Raghuvamsham*: "O the difference between
+Kālidāsa's famous line of the *Raghuvamsham*: "O the difference between
 the majestic Solar Dynasty and my poor intellect!") — I beg your pardon
-— between Hanuman with his whole heart given to Shri Râma, the crown of
+— between Hanuman with his whole heart given to Shri Rāma, the crown of
 the Solar Dynasty, and me, the lowest of the low! But then he crossed at
 one bound the ocean extending a hundred Yojanas, while we are crossing
 it confined within a wooden house, so to say, being pitched this side
 and that and somehow keeping ourselves on our feet with the help of
 posts and pillars. But there is one point of superiority on our side in
-that he had the blessed sight of Râkshasas and Râkshasis after reaching
-Lankâ, whereas we are going in company with them. At dinner time that
+that he had the blessed sight of Rākshasas and Rākshasis after reaching
+Lankā, whereas we are going in company with them. At dinner time that
 glittering of a hundred knives and the clattering of a hundred forks
 frightened brother T\_\_ (Turiyananda) out of his wits. He now and then
 started lest his neighbour with auburn hair and grey, cat-like eyes,
@@ -67,7 +67,7 @@ all my life to eat the kernel of Brahman, after throwing away the shell
 of Maya, how shall I now get the power of appreciating nature's beauties
 all of a sudden? All my life I have been on the move all over India,
 "from Varanasi to Kashmir, and thence to Khorasan, and Gujarat
-(Tulsidâs.)". How many hills and rivers, mountains and springs, and
+(Tulsidās.)". How many hills and rivers, mountains and springs, and
 valleys and dales, how many cloud-belted peaks covered in perpetual
 snow, and oceans tempestuous, roaring and foamy, have I not seen, and
 heard of, and crossed! But sitting on a shabby wooden bedstead in a dark
@@ -110,7 +110,7 @@ that wonderfully sweet, ice-cold "charming water of the Ganga (From
 Valmiki's hymn.)", and that wonderful sound of "Hara, Hara" of the
 running water, and the echo of "Hara, Hara" from the neighbouring
 mountain-falls? Do you remember that life in the forest, the begging of
-Mâdhukari (Meaning, collected from door to door, in small bits.) alms,
+Mādhukari (Meaning, collected from door to door, in small bits.) alms,
 eating on small islands of rock in the bed of the Ganga, hearty drinking
 of that water with the palms, and the fearless wandering of fishes all
 round for crumbs of bread? You remember that love for Ganga water, that
@@ -129,7 +129,7 @@ vessels, and sip drops of it on holy festive occasions. Kings and
 princes keep it in jars, and at considerable expense take the water from
 Gangotri to pour it on the head of Shiva at Rameshwaram! The Hindus
 visit foreign countries — Rangoon, Java, Hongkong, Madagascar, Suez,
-Aden, Malta — and they take with them Ganga water and the Gitâ.
+Aden, Malta — and they take with them Ganga water and the Gitā.
 
 The Gita and the sacred waters of the Ganga constitute the Hinduism of
 the Hindus. Last time I went to the West, I also took a little of it
@@ -148,17 +148,17 @@ heart and brain and every artery of the body and thundering forth,
 
 This time you, too, I see, have sent Mother Ganga, for Madras. But, dear
 brother, what a strange vessel have you put Mother in! Brother T\_\_ is
-a Brahmachârin from his boyhood, and looks "like burning fire through
-the force of his spirituality (Kâlidâsa's *Kumârasambhavam*.)". Formerly
-as a Brâhmana he used to be saluted as "Namo Brahmané", and now it is —
-oh, the sublimity of it! — "Namo Nârâyanâya", as he is a Sannyâsin. And
+a Brahmachārin from his boyhood, and looks "like burning fire through
+the force of his spirituality (Kālidāsa's *Kumārasambhavam*.)". Formerly
+as a Brāhmana he used to be saluted as "Namo Brahmané", and now it is —
+oh, the sublimity of it! — "Namo Nārāyanāya", as he is a Sannyāsin. And
 it is perhaps due to that, that Mother, in his custody, has left her
-seat in the Kamandalu of Brahmâ, and been forced to enter a jar! Anyhow,
+seat in the Kamandalu of Brahmā, and been forced to enter a jar! Anyhow,
 getting up from bed late at night I found that Mother evidently could
 not bear staying in that awkward vessel and was trying to force her
 passage out of it. I thought it most dangerous, for if Mother chose to
 re-enact here those previous scenes of her life, such as piercing the
-Himalayas, washing away the great elephant Airâvata, and pulling down
+Himalayas, washing away the great elephant Airāvata, and pulling down
 the hut of the sage Jahnu, then it would be a terrible affair. I offered
 many prayers to Mother and said to her in various supplicatory phrases,
 "Mother, do wait a little, let us reach Madras tomorrow, and there you
@@ -172,7 +172,7 @@ upon a plan, and said to her, "Mother, look at those turbaned servants
 with jackets on, moving to and fro on the ship, they are Mohammedans,
 real, beef-eating Mohammedans, and those whom you find moving about
 sweeping and cleaning the rooms etc., are real scavengers, disciples of
-Lâl Beg; and if you do not hear me, I will call them and ask them to
+Lāl Beg; and if you do not hear me, I will call them and ask them to
 touch you! Even if that is not sufficient to quiet you, I will just send
 you to your father's home; you see that room there, if you are shut in
 there, you will get back to your primitive condition in the Himalayas,
@@ -295,14 +295,14 @@ casting a look towards the second class and another at himself, said,
 with a sigh, "Very sad, getting very much muddled up!"
 
 The reason why so much importance is attached to the Hooghly branch of
-the Ganga, instead of the bigger one, Padmâ, is, according to many, that
+the Ganga, instead of the bigger one, Padmā, is, according to many, that
 the Hooghly was the primary and principal course of the river, and
 latterly the river shifted its course, and created an outlet by the
 Padma. Similarly the present "Tolley's Nullah" represents the ancient
-course of the Ganga, and is known as the Âdi-Gangâ. The sailing
+course of the Ganga, and is known as the Âdi-Gangā. The sailing
 merchant, the hero of Kavikankan's work, makes his voyage to Ceylon
 along that channel. Formerly the Ganga was navigable for big ships up to
-Triveni. The ancient port of Saptagrâm was situated a little distance
+Triveni. The ancient port of Saptagrām was situated a little distance
 off Triveni ghat, on the river Saraswati. From very ancient times
 Saptagram was the principal port for Bengal's foreign trade. Gradually
 the mouth of the Saraswati got silted up. In the year 1539 it silted up
@@ -473,11 +473,11 @@ very clever — no sooner does he sight a cloud so far away as Konnagar
 than he puts the boat in safety! — they are now passing into the hands
 of the strong-bodied men from Jaunpur who speak a peculiar dialect, and
 whom your Mahant Maharaj, out of fun ordered to catch a heron — which he
-facetiously styled as "Bakâsur (A demon of the shape of a big heron,
-mentioned in the *Bhagavâta*.)", and this puzzled them hopelessly and
+facetiously styled as "Bakāsur (A demon of the shape of a big heron,
+mentioned in the *Bhagavāta*.)", and this puzzled them hopelessly and
 they stammered out, "Please, sire, where are we to get this demon? It is
 an enigma to us"; then that bulky, slow-moving (cargo) boat nicknamed
-"Gâdhâ (donkey)" in Bengali, which never goes straight, but always goes
+"Gādhā (donkey)" in Bengali, which never goes straight, but always goes
 sideways; and that big species of boats, like the schooner, having from
 one to three masts, which imports cargoes of cocoanuts, dates and dried
 fish from Ceylon, the Maldives, or Arabia; — these and many others too
@@ -576,7 +576,7 @@ fortress with walls of steel, and the guns are almost as Death itself. A
 single shot is enough to smash the biggest ship into fragments. But this
 "iron bridal-chamber" — which Nakindar's father (in the popular Bengali
 tale) never even dreamt of, and which, instead of standing on the top of
-"Sâtâli Hill" moves dancing on seventy thousand mountain-like billows,
+"Sātāli Hill" moves dancing on seventy thousand mountain-like billows,
 even this is mortally afraid of torpedoes! The torpedo is a tube
 somewhat shaped like a cigar, and if fired at an object travels under
 water like a fish. Then, the moment it hits its object, the highly
@@ -653,7 +653,7 @@ which applies to coolies, is applicable to all "natives" without
 distinction. Thanks to you, O English Government, through your grace,
 for a moment at least I feel myself one with the whole body of
 "natives". It is all the more welcome, because this body of mine having
-come of a Kâyastha family, I have become the target of attack of many
+come of a Kāyastha family, I have become the target of attack of many
 sections. Nowadays we hear it from the lips of people of all castes in
 India that they are all full-blooded Aryans — only there is some
 difference of opinion amongst them about the exact percentage of Aryan
@@ -682,7 +682,7 @@ the favoured child of Fortune; may your prosperity increase ever more!
 We shall be happy once more to wear our loin-cloth and Dhoti — the
 native dress. Through your grace we shall continue to travel from one
 end of the country to the other, bare-headed, and barefooted, and
-heartily eat our habitual food of rice and Dâl with our fingers, right
+heartily eat our habitual food of rice and Dāl with our fingers, right
 in the Indian fashion. Bless the Lord! We had well-nigh been tempted by
 Anglo-Indian fashions and been duped by its glamour. We heard it said
 that no sooner did we give up our native dress, native religion, and
@@ -923,7 +923,7 @@ suffered eternal misery, which has given them unflinching vitality.
 Living on a handful of grain, they can convulse the world; give them
 only half a piece of bread, and the whole world will not be big enough
 to contain their energy; they are endowed with the inexhaustible
-vitality of a Raktabija. (A demon, in the *Durgâ-Saptashati*, every drop
+vitality of a Raktabija. (A demon, in the *Durgā-Saptashati*, every drop
 of whose blood falling on the ground produced another demon like him.)
 And, besides, they have got the wonderful strength that comes of a pure
 and moral life, which is not to be found anywhere else in the world.
@@ -1011,15 +1011,15 @@ Madras even now occupy the principal seats of religion. It was in the
 South that when people of North India were hiding themselves in woods
 and forests, giving up their treasures, their household deities, and
 wives and children, before the triumphant war-cry of Mohammedan invaders
-— the suzerainty of the King of Vidyânagar was established firm as ever.
-In the South, again, was born the wonderful Sâyanâchârya — the strength
+— the suzerainty of the King of Vidyānagar was established firm as ever.
+In the South, again, was born the wonderful Sāyanāchārya — the strength
 of whose arms, vanquishing the Mohammedans, kept King Bukka on his
 throne, whose wise counsels gave stability to the Vidyanagar Kingdom,
 whose state-policy established lasting peace and prosperity in the
 Deccan, whose superhuman genius and extraordinary industry produced the
 commentaries on the whole Vedas — and the product of whose wonderful
 sacrifice, renunciation, and researches was the Vedanta treatise named
-*Panchadashi* — that Sannyasin Vidyâranya Muni or Sayana (According to
+*Panchadashi* — that Sannyasin Vidyāranya Muni or Sayana (According to
 some, Sayana, the commentator of the Vedas, was the brother of
 Vidyaranya Muni.) was born in this land. The Madras Presidency is the
 habitat of that Tamil race whose civilisation was the most ancient, and
@@ -1035,7 +1035,7 @@ the Veera Shaiva and Veera Vaishnava sects. The great Vaishnava religion
 of India has also sprung from a Tamil Pariah — Shathakopa — "who was a
 dealer in winnowing-fans but was a Yogin all the while". And the Tamil
 Alwars or devotees still command the respect of the whole Vaishnava
-sect. Even now the study of the Dvaita, Vishishtâdvaita and Advaita
+sect. Even now the study of the Dvaita, Vishishtādvaita and Advaita
 systems of Vedanta is cultivated more in South India than anywhere else.
 Even now the thirst for religion is stronger here than in any other
 place.
@@ -1169,14 +1169,14 @@ number of fellows, he took the king and his nobles by surprise and
 massacred them. Then Vijaya Sinha ascended the throne of Ceylon. But his
 wickedness did not end here. After a time he got tired of his aboriginal
 queen, and got more men and more girls from India and himself married a
-girl named Anurâdhâ, discarding his first aboriginal wife. Then he began
+girl named Anurādhā, discarding his first aboriginal wife. Then he began
 to extirpate the whole race of the aborigines, almost all of whom were
 killed, leaving only a small remnant who are still to be met with in the
 forests and jungles. In this way Lanka came to be called Sinhal and
 became, to start with, colony of Bengali ruffians!
 
 In course of time, under the regime of Emperor Asoka, his son Mahinda
-and his daughter Sanghamittâ, who had taken the vow of Sannyasa, came to
+and his daughter Sanghamittā, who had taken the vow of Sannyasa, came to
 the Island of Ceylon as religious missionaries. Reaching there, they
 found the people had grown quite barbarous, and, devoting their whole
 lives, they brought them back to civilisation as far as possible; they
@@ -1243,12 +1243,12 @@ girl of any caste — even a European girl at that. The son goes into a
 temple, puts the sacred trilinear mark on the forehead, utters "Shiva,
 Shiva", and becomes a Hindu. The husband may be a Hindu, while the wife
 is a Christian. The Christian rubs some sacred ash on the forehead,
-utters "Namah Pârvatipatayé" (salutation to Shiva), and she straightway
+utters "Namah Pārvatipatayé" (salutation to Shiva), and she straightway
 becomes a Hindu. This is what has made the Christian missionaries so
 cross with you. Since your coming into Ceylon, many Christians, putting
 sacred ash on their head and repeating "Salutation to Shiva", have
-become Hindus and gone back to their caste. Advaitavâda and
-Vira-Shaivavâda are the prevailing religions here. In place of the word
+become Hindus and gone back to their caste. Advaitavāda and
+Vira-Shaivavāda are the prevailing religions here. In place of the word
 "Hindu" one has to say "Shiva". The religious dance and Sankirtana which
 Shri Chaitanya introduced into Bengal had their origin in the South,
 among the Tamil race. The Tamil of Ceylon is pure Tamil and the religion
@@ -1257,7 +1257,7 @@ hundred thousand men, and their singing of devotional hymns to Shiva,
 the noise of a thousand Mridangas (A kind of Indian drum.) with the
 metallic sound of big cymbals, and the frenzied dance of these
 ash-covered, red-eyed athletic Tamilians with stout rosaries of
-Rudrâksha beads on their neck, looking just like the great devotee,
+Rudrāksha beads on their neck, looking just like the great devotee,
 Hanuman — you can form no idea of these, unless you personally see the
 phenomenon.
 
@@ -1285,15 +1285,15 @@ good historical records of themselves, not like those of ours — merely
 cock and bull stories. And the Buddhist scriptures also are well
 preserved here in the ancient Magadhi dialect. From here the Buddhist
 religion spread to Burma, Siam, and other countries. The Ceylonese
-Buddhists recognise only Shâkyamuni mentioned in their scriptures and
+Buddhists recognise only Shākyamuni mentioned in their scriptures and
 try to follow his precepts. They do not, like the people of Nepal,
 Sikkim, Bhutan, Ladak, China, and Japan, worship Shiva and do not know
-the worship with mystical Mantras of such goddesses as Târâ Devi and so
+the worship with mystical Mantras of such goddesses as Tārā Devi and so
 forth. But they believe in possession by spirits and things of that
 sort. The Buddhists have now split into two schools, the Northern and
-the Southern; the Northern school calls itself the Mahâyâna, and the
+the Southern; the Northern school calls itself the Mahāyāna, and the
 Southern school, comprising the Ceylonese, Burmese, Siamese, etc.,
-Hinayâna. The Mahâyâna branch worships Buddha in name only; their real
+Hinayāna. The Mahāyāna branch worships Buddha in name only; their real
 worship is of Tara Devi and of Avalokiteshwara (whom the Japanese,
 Chinese and Koreans call Wanyin); and there is much use of various
 cryptic rites and Mantras. The Tibetans are the real demons of Shiva.
@@ -1307,8 +1307,8 @@ Bengali characters so much that you can easily make out the resemblance.
 
 Alasinga returned to Madras from Colombo, and we also got on board our
 ship, with presents of some lemons from the orchard of Coomara Swami,
-some king-cocoanuts, and two bottles of syrup, etc. (The god Kârtikeya
-has various names, such as Subrahmanya, Kamâra Swâmi etc. In the South
+some king-cocoanuts, and two bottles of syrup, etc. (The god Kārtikeya
+has various names, such as Subrahmanya, Kamāra Swāmi etc. In the South
 the worship of this god is much in vogue; they call Kartikeya an
 incarnation of the sacred formula "Om".)
 
@@ -1447,7 +1447,7 @@ Well, our ship is now passing through the Red Sea. The missionary said,
 "This is the Red Sea, which the Jewish leader Moses crossed on foot with
 his followers. And the army which the Egyptian King Pharaoh sent for
 their capture was drowned in the sea, the wheels of their war-chariots
-having stuck in the mud" — like Karna's in the Mahâbhârata story. He
+having stuck in the mud" — like Karna's in the Mahābhārata story. He
 further said that this could now be proved by modern scientific reasons.
 Nowadays in every country it has become a fashion to support the
 miracles of religion by scientific argument. My friend, if these
@@ -2171,7 +2171,7 @@ religion of all the Semitic races, with slight minor variations, was
 almost the same. The Babylonians, Jews, Phoenicians, and Arabs of a
 later date used the same form of worship. Almost every god was called
 Moloch — the word which persists to this day in the Bengali language as
-Mâlik (ruler), Mulluk (kingdom) and so forth — or Baal; but of course
+Mālik (ruler), Mulluk (kingdom) and so forth — or Baal; but of course
 there were minor differences. According to some, the god called Alat
 afterwards turned into Allah of the Arab.
 

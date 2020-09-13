@@ -23,7 +23,7 @@ DEAR ALASINGA,
 please tell them to send me a cook and money enough to keep him. This
 silly *bossism* without a mite of real help makes me laugh. On the other
 hand, if the missionaries tell you that I have ever broken the two great
-vows of the Sannyâsin — chastity and poverty — tell them that they are
+vows of the Sannyāsin — chastity and poverty — tell them that they are
 *big liars*. Please write to the missionary Hume asking him
 categorically to write you what misdemeanour he saw in me, or give you
 the names of his informants, and whether the information was *first-hand

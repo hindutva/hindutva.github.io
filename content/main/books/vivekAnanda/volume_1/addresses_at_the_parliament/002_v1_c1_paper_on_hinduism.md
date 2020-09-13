@@ -66,7 +66,7 @@ If I may be allowed to use a simile, creation and  creator are two
 lines, without beginning and without end, running parallel to each
 other. God is the ever active providence, by whose power systems after
 systems are being evolved out of chaos, made to run for a time and again
-destroyed. This is what the Brâhmin boy repeats every day: "*The sun and
+destroyed. This is what the Brāhmin boy repeats every day: "*The sun and
 the moon, the Lord created like the suns and moons of previous cycles*."
 And this agrees with modern science.
 

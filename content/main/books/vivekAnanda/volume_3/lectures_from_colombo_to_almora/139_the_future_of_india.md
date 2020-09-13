@@ -98,7 +98,7 @@ disastrous. Therefore the first plank in the making of a future India,
 the first step that is to be hewn out of that rock of ages, is this
 unification of religion. All of us have to be taught that we Hindus —
 dualists, qualified monists, or monists, Shaivas, Vaishnavas, or
-Pâshupatas — to whatever denomination we may belong, have certain common
+Pāshupatas — to whatever denomination we may belong, have certain common
 ideas behind us, and that the time has come when for the well-being of
 ourselves, for the well-being of our race, we must give up all our
 little quarrels and differences. Be sure, these quarrels are entirely
@@ -145,7 +145,7 @@ forefathers underwent everything boldly, even death itself, but
 preserved their religion. Temple alter temple was broken down by the
 foreign conqueror, but no sooner had the wave passed than the spire of
 the temple rose up again. Some of these old temples of Southern India
-and those like Somnâth of Gujarat will teach you volumes of wisdom, will
+and those like Somnāth of Gujarat will teach you volumes of wisdom, will
 give you a keener insight into the history of the race than any amount
 of books. Mark how these temples bear the marks of a hundred attacks and
 a hundred regenerations, continually destroyed and continually springing
@@ -194,7 +194,7 @@ did not apply their energies to the spreading of the Sanskrit language
 among the masses. Even the great Buddha made one false step when he
 stopped the Sanskrit language from being studied by the masses. He
 wanted rapid and immediate results, and translated and preached in the
-language of the day, Pâli. That was grand; he spoke in the language of
+language of the day, Pāli. That was grand; he spoke in the language of
 the people, and the people understood him. That was great; it spread the
 ideas quickly and made them reach far and wide. But along with that,
 Sanskrit ought to have spread. Knowledge came, but the prestige was not
@@ -223,7 +223,7 @@ In connection with this I want to discuss one question which it has a
 particular bearing with regard to Madras. There is a theory that there
 was a race of mankind in Southern India called Dravidians, entirely
 differing from another race in Northern India called the Aryans, and
-that the Southern India Brâhmins are the only Aryans that came from the
+that the Southern India Brāhmins are the only Aryans that came from the
 North, the other men of Southern India belong to an entirely different
 caste and race to those of Southern India Brahmins. Now I beg your
 pardon, Mr. Philologist, this is entirely unfounded. The only proof of
@@ -269,7 +269,7 @@ equally irrational. It could not have been possible in those days that a
 few Aryans settled and lived there with a hundred thousand slaves at
 their command. These slaves would have eaten them up, made "chutney" of
 them in five minutes. The only explanation is to be found in the
-Mahâbhârata, which says that in the beginning of the Satya Yuga there
+Mahābhārata, which says that in the beginning of the Satya Yuga there
 was one caste, the Brahmins, and then by difference of occupations they
 went on dividing themselves into different castes, and that is the only
 true and rational explanation that has been given. And in the coming
@@ -280,7 +280,7 @@ The solution of the caste problem in India, therefore, assumes this
 form, not to degrade the higher castes, not to crush out the Brahmin.
 The Brahminhood is the ideal of humanity in India, as wonderfully put
 forward by Shankaracharya at the beginning of his commentary on the
-Gitâ, where he speaks about the reason for Krishna's coming as a
+Gitā, where he speaks about the reason for Krishna's coming as a
 preacher for the preservation of Brahminhood, of Brahminness. That was
 the great end. This Brahmin, the man of God, he who has known Brahman,
 the ideal man, the perfect man, must remain; he must not go. And with
@@ -325,7 +325,7 @@ grasp the whole scope of the work. They stand aside and follow the
 wonderful procession of national life through the ages. They can trace
 it step by step through all the books, ancient and modern. What is the
 plan? The ideal at one end is the Brahmin and the ideal at the other end
-is the Chandâla, and the whole work is to raise the Chandala up to the
+is the Chandāla, and the whole work is to raise the Chandala up to the
 Brahmin. Slowly and slowly you find more and more privileges granted to
 them. There are books where you read such fierce words as these: "If the
 Shudra hears the Vedas, fill his ears with molten lead, and if he
@@ -447,7 +447,7 @@ India, the whole secret lies in organization, accumulation of power,
 co-ordination of wills.
 
 Already before my mind rises one of the marvellous verses of the
-Rig-Veda Samhitâ which says, "Be thou all of one mind, be thou all of
+Rig-Veda Samhitā which says, "Be thou all of one mind, be thou all of
 one thought, for in the days of yore, the gods being of one mind were
 enabled to receive oblations." That the gods can be worshipped by men is
 because they are of one mind. Being of one mind is the secret of
@@ -488,11 +488,11 @@ India. Let all other vain gods disappear for the time from our minds.
 This is the only god that is awake, our own race — "everywhere his
 hands, everywhere his feet, everywhere his ears, he covers everything."
 All other gods are sleeping. What vain gods shall we go after and yet
-cannot worship the god that we see all round us, the Virât? When we have
+cannot worship the god that we see all round us, the Virāt? When we have
 worshipped this, we shall be able to worship all other gods. Before we
-can crawl half a mile, we want to cross the ocean like Hanumân! It
+can crawl half a mile, we want to cross the ocean like Hanumān! It
 cannot be. Everyone going to be a Yogi, everyone going to meditate! It
-cannot be. The whole day mixing with the world with Karma Kânda, and in
+cannot be. The whole day mixing with the world with Karma Kānda, and in
 the evening sitting down and blowing through your nose! Is it so easy?
 Should Rishis come flying through the air, because you have blown three
 times through the nose? Is it a joke? It is all nonsense. What is needed

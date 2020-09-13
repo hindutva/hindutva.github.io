@@ -12,13 +12,13 @@ title: ONE EXISTENCE APPEARING AS MANY
 
 (*Delivered in New York, 1896*)
 
-Vairâgya or renunciation is the turning point in all the various Yogas.
+Vairāgya or renunciation is the turning point in all the various Yogas.
 The Karmi (worker) renounces the fruits of his work. The Bhakta
 (devotee) renounces all little loves for the almighty and omnipresent
 love. The Yogi renounces his experiences, because his philosophy is that
 the whole Nature, although it is for the experience of the soul, at last
 brings him to know that he is not in Nature, but eternally separate from
-Nature. The Jnâni (philosopher) renounces everything, because his
+Nature. The Jnāni (philosopher) renounces everything, because his
 philosophy is that Nature never existed, neither in the past, nor
 present, nor will It in the future. The question of utility cannot be
 asked in these higher themes. It is very absurd to ask it; and even if
@@ -199,7 +199,7 @@ slave of the mind, slave of the world, slave of a good word, slave of a
 bad word, slave of passion, slave of happiness, slave of life, slave of
 death, slave of everything! This slavery has to be broken. How? "This
 Atman has first to be heard, then reasoned upon, and then meditated
-upon." This is the method of the Advaita Jnâni. The truth has to be
+upon." This is the method of the Advaita Jnāni. The truth has to be
 heard, then reflected upon, and then to be constantly asserted. Think
 always, "I am Brahman". Every other thought must be cast aside as
 weakening. Cast aside every thought that says that you are men or women.
@@ -215,7 +215,7 @@ heard day after day. Get rid of all other thoughts. Everything else must
 be thrown aside, and this is to be repeated continually, poured through
 the ears until it reaches the heart, until every nerve and muscle, every
 drop of blood tingles with the idea that I am He, I am He. Even at the
-gate of death say, "I am He". There was a man in India, a Sannyâsin, who
+gate of death say, "I am He". There was a man in India, a Sannyāsin, who
 used to repeat "Shivoham" — "I am Bliss Eternal"; and a tiger jumped on
 him one day and dragged him away and killed him; but so long as he was
 living, the sound came, "Shivoham, Shivoham". Even at the gate of death,

@@ -14,7 +14,7 @@ title: 'KNOWLEDGE: ITS SOURCE AND ACQUIREMENT'
 Vivekananda to the *Udbodhana*, 12th February, 1899.)
 
 Various have been the theories propounded as regards the primitive
-source of knowledge. We read in the Upanishads that Brahmâ, who was the
+source of knowledge. We read in the Upanishads that Brahmā, who was the
 first and the foremost among the Devas, held the key to all knowledge,
 which he revealed to his disciples and which, being handed down in
 succession, has been bequeathed as a legacy to the subsequent age.
@@ -25,7 +25,7 @@ whom they call Jinas, and through them the door to knowledge is now and
 shell opened to human society. Likewise Buddhism believes in, and
 expects at regular intervals, the appearance of the Buddhas, that is,
 persons possessed of infinite universal wisdom. The same is the reason
-also of the introduction of Incarnations of God by the Paurânika Hindus,
+also of the introduction of Incarnations of God by the Paurānika Hindus,
 who ascribe to them, along with other missions, the special function of
 restoring the lost spiritual knowledge by its proper adjustment to the
 needs of the time. Outside India, we find the great-souled Zoroaster
@@ -124,8 +124,8 @@ you one. Look! Here is the Sanskrit verse . . . . . " Needless to add
 that the modern party, who believes in direct evidence only, never
 attaches any seriousness to such replies and proofs.
 
-Generally, all knowledge is divided into two classes, the Aparâ,
-secular, and the Parâ, spiritual. One pertains to perishable things, and
+Generally, all knowledge is divided into two classes, the Aparā,
+secular, and the Parā, spiritual. One pertains to perishable things, and
 the other to the realm of the spirit. There is, no doubt, a great
 difference these two classes of knowledge, and the way to the attainment
 of the one may be entirely different from the way to the attainment of
@@ -162,7 +162,7 @@ a machine. If every act in a man's life has been all previously
 determined, then what need is there for the culture of the faculty of
 thought — where is the field for the free play of independent thought
 and action? In course of time, for want of proper use, all activity is
-given up, all originality is lost, a sort of Tâmasika dreamy
+given up, all originality is lost, a sort of Tāmasika dreamy
 lifelessness hovers over the whole nation, and headlong it goes down and
 down. The death of such a nation is not far to seek.
 
@@ -213,7 +213,7 @@ those higher truths which have now and then been discovered by great
 scientific men have flashed like sudden floods of light in their mental
 atmosphere, which they had only to catch and formulate. But such truths
 never appear in the mind of an uncultured and wild savage. All these go
-to prove that hard Tapasyâ, or practice of austerities in the shape of
+to prove that hard Tapasyā, or practice of austerities in the shape of
 devout contemplation and constant study of a subject is at the root of
 all illumination in its respective spheres.
 
@@ -225,7 +225,7 @@ efforts lead the way to superconscious illumination.
 
 Infinite perfection is in every man, though unmanifested. Every man has
 in him the potentiality of attaining to perfect saintliness, Rishihood,
-or to the most exalted position of an Avatâra, or to the greatness of a
+or to the most exalted position of an Avatāra, or to the greatness of a
 hero in material discoveries. It is only a question of time and adequate
 well-guided investigation, etc., to have this perfection manifested. In
 a society where once such great men were born, there the possibility of

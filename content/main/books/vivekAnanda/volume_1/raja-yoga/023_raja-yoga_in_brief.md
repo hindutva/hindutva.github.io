@@ -12,16 +12,16 @@ CHAPTER VIII
 
 ## RAJA-YOGA IN BRIEF
 
-The following is a summary of Râja-Yoga freely translated from the
-Kurma-Purâna.
+The following is a summary of Rāja-Yoga freely translated from the
+Kurma-Purāna.
 
 The fire of Yoga burns the cage of sin that is around a man. Knowledge
-becomes purified and Nirvâna is directly obtained. From Yoga comes
+becomes purified and Nirvāna is directly obtained. From Yoga comes
 knowledge; knowledge again helps the Yogi. He who combines in himself
 both Yoga and knowledge, with him the Lord is pleased. Those that
-practice Mahâyoga, either once a day, or twice a day, or thrice, or
+practice Mahāyoga, either once a day, or twice a day, or thrice, or
 always, know them to be gods. Yoga is divided into two parts. One is
-called Abhâva, and the other, Mahayoga. Where one's self is meditated
+called Abhāva, and the other, Mahayoga. Where one's self is meditated
 upon as zero, and bereft of quality, that is called Abhava. That in
 which one sees the self as full of bliss and bereft of all impurities,
 and one with God, is called Mahayoga. The Yogi, by each one, realises
@@ -29,11 +29,11 @@ his Self. The other Yogas that we read and hear of, do not deserve to be
 ranked with the excellent Mahayoga in which the Yogi finds himself and
 the whole universe as God. This is the highest of all Yogas.
 
-Yama, Niyama, Âsana, Prânâyâma, Pratyâhâra, Dhârâna, Dhyâna, and Samâdhi
+Yama, Niyama, Âsana, Prānāyāma, Pratyāhāra, Dhārāna, Dhyāna, and Samādhi
 are the steps in Raja-Yoga, of which non-injury, truthfulness,
 non-covetousness, chastity, not receiving anything from another are
 called Yama. This purifies the mind, the Chitta. Never producing pain by
-thought, word, and deed, in any living being, is what is called Ahimsâ,
+thought, word, and deed, in any living being, is what is called Ahimsā,
 non-injury. There is no virtue higher than non-injury. There is no
 happiness higher than what a man obtains by this attitude of
 non-offensiveness, to all creation. By truth we attain fruits of work.
@@ -48,8 +48,8 @@ his heart becomes impure, he becomes low, he loses his independence, he
 becomes bound and attached.
 
 The following are helps to success in Yoga and are called Niyama or
-regular habits and observances; Tapas, austerity; Svâdhyâya, study;
-Santosha, contentment; Shaucha, purity; Ishvara-pranidhâna, worshipping
+regular habits and observances; Tapas, austerity; Svādhyāya, study;
+Santosha, contentment; Shaucha, purity; Ishvara-pranidhāna, worshipping
 God. Fasting, or in other ways controlling the body, is called physical
 Tapas. Repeating the Vedas and other Mantras, by which the Sattva
 material in the body is purified, is called study, Svadhyaya. There are
@@ -72,7 +72,7 @@ praise, by thought, by devotion.
 We have spoken about Yama and Niyama. The next is Asana (posture). The
 only thing to understand about it is leaving the body free, holding the
 chest, shoulders, and head straight. Then comes Pranayama. Prana means
-the vital forces in one's own body, Âyâma means controlling them. There
+the vital forces in one's own body, Âyāma means controlling them. There
 are three sorts of Pranayama, the very simple, the middle, and the very
 high. Pranayama is divided into three parts: filling, restraining, and
 emptying. When you begin with twelve seconds it is the lowest Pranayama;
@@ -80,7 +80,7 @@ when you begin with twenty-four seconds it is the middle Pranayama; that
 Pranayama is the best which begins with thirty-six seconds. In the
 lowest kind of Pranayama there is perspiration, in the medium kind,
 quivering of the body, and in the highest Pranayama levitation of the
-body and influx of great bliss. There is a Mantra called the Gâyatri. It
+body and influx of great bliss. There is a Mantra called the Gāyatri. It
 is a very holy verse of the Vedas. "We meditate on the glory of that
 Being who has produced this universe; may He enlighten our minds." Om is
 joined to it at the beginning and the end. In one Pranayama repeat three
@@ -157,7 +157,7 @@ become Yogis.
 
 \*          \*          \*         \*
 
-There was a great god-sage called Nârada. Just as there are sages among
+There was a great god-sage called Nārada. Just as there are sages among
 mankind, great Yogis, so there are great Yogis among the gods. Narada
 was a good Yogi, and very great. He travelled everywhere. One day he was
 passing through a forest, and saw a man who had been meditating until

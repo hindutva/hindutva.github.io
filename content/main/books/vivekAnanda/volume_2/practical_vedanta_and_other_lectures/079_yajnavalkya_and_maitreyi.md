@@ -11,7 +11,7 @@ title: YAJNAVALKYA AND MAITREYI
 ## YAJNAVALKYA AND MAITREYI
 
 We say, "That day is indeed a bad day on which you do not hear the name
-of the Lord, but a cloudy day is not a bad day at all." Yâjnavalkya was
+of the Lord, but a cloudy day is not a bad day at all." Yājnavalkya was
 a great sage. You know, the Shastras in India enjoin that every man
 should give up the world when he becomes old. So Yajnavalkya said to his
 wife, "My beloved, here is all my money, and my possessions, and I am
@@ -29,7 +29,7 @@ sake of the wife; but it is because one loves the Self that one loves
 the wife. None loves the children for the children; but because one
 loves the Self, therefore one loves the children. None loves wealth on
 account of the wealth; but because one loves the Self, therefore one
-loves wealth. None loves the Brâhmin for the sake of the Brahmin; but
+loves wealth. None loves the Brāhmin for the sake of the Brahmin; but
 because one loves the Self, one loves the Brahmin. So, none loves the
 Kshatriya for the sake of the Kshatriya, but because one loves the Self.
 Neither does any one love the world on account of the world, but because

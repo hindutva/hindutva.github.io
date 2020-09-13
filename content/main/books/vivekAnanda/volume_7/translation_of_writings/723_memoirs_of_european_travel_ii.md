@@ -287,7 +287,7 @@ compartment — and early went to bed. On awakening from sleep we found we
 had crossed the French frontier and entered German territory. I had
 already seen Germany thoroughly; but Germany, after France, produces
 quite a jarring effect. "On the one hand the moon is setting"
-(यात्येकतोऽस्तशिखरं पतिरोषधीनां — From Kalidasa's *Shakuntalâ*.) — the
+(यात्येकतोऽस्तशिखरं पतिरोषधीनां — From Kalidasa's *Shakuntalā*.) — the
 world-encompassing France is slowly consuming herself in the fire of
 contemplated retribution — while on the other hand, centralised, young,
 and mighty Germany has begun her upward march above the horizon with
@@ -682,7 +682,7 @@ provinces of India and founded extensive kingdoms. They were Buddhists,
 or would turn Buddhists after occupying Indian territory. In the ancient
 history of Kashmir there is mention of these famous Turkish Emperors,
 Hushka, Yushka, and Kanishka. It was this Kanishka who founded the
-Northern school of Buddhism called the Mahâyâna. Long after, the
+Northern school of Buddhism called the Mahāyāna. Long after, the
 majority of them took to Mohammedanism and completely devastated the
 chief Buddhistic seats of Central Asia such as Kandahar and Kabul.
 Before their conversion to Mohammedanism they used to imbibe the

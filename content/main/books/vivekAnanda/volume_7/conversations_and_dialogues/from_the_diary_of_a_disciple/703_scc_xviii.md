@@ -38,8 +38,8 @@ indifferent to the request of my brother-disciples.
 It is now about ten o'clock. Swamiji cheerfully raised the topic of his
 future Math for women, saying, "With the Holy Mother as the centre of
 inspiration, a Math is to be established on the eastern bank of the
-Ganga. As Brahmacharins and Sâdhus will be trained in this Math here, so
-in the other Math also, Brahmacharinis and Sâdhvis will be trained."
+Ganga. As Brahmacharins and Sādhus will be trained in this Math here, so
+in the other Math also, Brahmacharinis and Sādhvis will be trained."
 
 Disciple: Sir, history does not tell us of any Maths for women in India
 in ancient times. Only during the Buddhistic period one hears of Maths
@@ -64,11 +64,11 @@ Swamiji: In what scriptures do you find statements that women are not
 competent for knowledge and devotion? In the period of degradation, when
 the priests made other castes incompetent for the study of the Vedas,
 they deprived the women also of all their rights. Otherwise you will
-find that in the Vedic or Upanishadic age Maitreyi, Gârgi, and other
+find that in the Vedic or Upanishadic age Maitreyi, Gārgi, and other
 ladies of revered memory have taken the places of Rishis through their
 skill in discussing about Brahman. In an assembly of a thousand
 Brahmanas who were all erudite in the Vedas, Gargi boldly challenged
-Yâjnavalkya in a discussion about Brahman. Since such ideal women were
+Yājnavalkya in a discussion about Brahman. Since such ideal women were
 entitled to spiritual knowledge, why shall not the women have the same
 privilege now? What has happened once can certainly happen again.
 History repeats itself. All nations have attained greatness by paying
@@ -87,7 +87,7 @@ the Star Theatre you sharply criticised the Tantras. Now by your
 supporting the worship of women, as taught in the Tantras, you are
 contradicting yourself.
 
-Swamiji: I denounced only the present corrupted form of Vâmâchâra of the
+Swamiji: I denounced only the present corrupted form of Vāmāchāra of the
 Tantras. I did not denounce the Mother-worship of the Tantras, or even
 the real Vamachara. The purport of the Tantras is to worship women in a
 spirit of Divinity. During the downfall of Buddhism, the Vamachara
@@ -102,7 +102,7 @@ dispassion make man omniscient, of unfailing purpose, and a knower of
 Brahman. "सैषा प्रसन्ना वरदा नृणां भवति मुक्तये — She, when pleased,
 becomes propitious and the cause of the freedom of man" (*Chandi*, I.
 57). Without propitiating the Mother by worship and obeisance, not even
-Brahmâ and Vishnu have the power to elude Her grasp and attain to
+Brahmā and Vishnu have the power to elude Her grasp and attain to
 freedom. Therefore for the worship of these family goddesses, in order
 to manifest the Brahman within them, I shall establish the women's Math.
 
@@ -162,11 +162,11 @@ will remain in association with this Math, they must observe
 Brahmacharya as the basic ideal of this Math.
 
 Spirituality, sacrifice, and self-control will be the motto of the
-pupils of this Math, and service or Sevâ-dharma the vow of their life.
+pupils of this Math, and service or Sevā-dharma the vow of their life.
 In view of such ideal lives, who will not respect and have faith in
 them? If the life of the women of this country be moulded in such
 fashion, then only will there be the reappearance of such ideal
-characters as Sitâ, Sâvitri and Gârgi. To what straits the strictures of
+characters as Sitā, Sāvitri and Gārgi. To what straits the strictures of
 local usages have reduced the women of this country, rendering them
 lifeless and inert, you could understand if only you visited the Western
 countries. You alone are responsible for this miserable condition of the

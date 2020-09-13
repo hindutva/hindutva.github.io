@@ -31,7 +31,7 @@ every human breast there is a natural desire to find a stable
 equilibrium — something that does not change. We cannot find it in
 nature, for all the universe is nothing but an infinite mass of changes.
 But to infer from that that nothing unchanging exists is to fall into
-the error of the Southern school of Buddhists and the Chârvâkas, which
+the error of the Southern school of Buddhists and the Chārvākas, which
 latter believe that all is matter and nothing mind, that all religion is
 a cheat, and morality and goodness, useless superstitions. The Vedanta
 philosophy teaches that man is not bound by his five senses. They only

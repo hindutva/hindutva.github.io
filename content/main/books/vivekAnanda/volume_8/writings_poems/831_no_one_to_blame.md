@@ -59,7 +59,7 @@ One only sage who ever scorned the dark and dubious ways,
 One only man who dared think and dared show the goal —  
 That *death* is curse, and so is *life*, and best when stops to be.
 
-Om Nama Bhagavate Sambuddhâya  
+Om Nama Bhagavate Sambuddhāya  
 Om, I salute the Lord, the awakened.
 
 

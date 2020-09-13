@@ -21,7 +21,7 @@ SATURDAY, THE 22ND JANUARY, 1898.
 
 Early in the morning I came to Swamiji who was then staying in the house
 of Balaram Babu at 57 Ramkanta Bose Street, Calcutta. The room was
-packed full with listeners. Swamiji was saying, "We want Shraddhâ, we
+packed full with listeners. Swamiji was saying, "We want Shraddhā, we
 want faith in our own selves. Strength is life, weakness is death. 'We
 are the Âtman, deathless and free; pure, pure by nature. Can we ever
 commit any sin? Impossible!' — such a faith is needed. Such a faith
@@ -117,12 +117,12 @@ But such used to be the case every day when Swamiji stayed in Calcutta.
 
 Many of the people who came to the meeting had heard that Swamiji could
 sing well, and so were desirous of hearing him. Knowing this, Master
-Mahâshaya (M.) whispered to a few gentlemen near him to request Swamiji
+Mahāshaya (M.) whispered to a few gentlemen near him to request Swamiji
 to sing; but he saw through their intention and playfully asked, "Master
 Mahashaya, what are you talking about among yourselves in whispers? Do
 speak out." At the request of Master Mahashaya, Swamiji now began in his
 charming voice the song — "Keep with loving care the darling Mother
-Shyâmâ in thy heart. . . ." It seemed as if a Vinâ was playing. At its
+Shyāmā in thy heart. . . ." It seemed as if a Vinā was playing. At its
 close, he said to Master Mahashaya, "Well, are you now satisfied? But no
 more singing! Otherwise, being in the swing of it, I shall be carried
 away by its intoxication. Moreover, my voice is now spoilt be frequent
@@ -133,7 +133,7 @@ real nature of Mukti. So, the Brahmacharin stood up and spoke at some
 length. A few others followed him. Swamiji then invited discussion on
 the subject of the discourse, and called upon one of his householder
 disciples to lead it; but as the latter tried to advocate the Advaita
-and Jnâna and assign a lower place to dualism and Bhakti, he met with a
+and Jnāna and assign a lower place to dualism and Bhakti, he met with a
 protest from one of the audience. As each of the two opponents tried to
 establish his own viewpoint, a lively word-fight ensued. Swamiji watched
 them for a while but, seeing that they were getting excited, silenced
@@ -151,14 +151,14 @@ the mother loves her child — in each of these too is He! One world
 system attracts another — there also is He. Everywhere is He. According
 to the doctrine of Jnana also, He is realised by one everywhere. Here
 lies the reconciliation of Jnana and Bhakti. When one is immersed in the
-highest ecstasy of divine vision (Bhâva), or is in the state of Samâdhi,
+highest ecstasy of divine vision (Bhāva), or is in the state of Samādhi,
 then alone the idea of duality ceases, and the distinction between the
 devotee and his God vanishes. In the scriptures on Bhakti, five
 different paths of relationship are mentioned, by any of which one can
 attain to God; but another one can very well be added to them, viz. the
 path of meditation on the non-separateness, or oneness with God. Thus
 the Bhakta can call the Advaitins Bhaktas as well, but of the
-non-differentiating type. As long as one is within the region of Mâya,
+non-differentiating type. As long as one is within the region of Māya,
 so long the idea of duality will no doubt remain. Space-time-causation,
 or name-and-form, is what is called Maya. When one goes beyond this
 Maya, then only the Oneness is realised, and then man is neither a
@@ -166,7 +166,7 @@ dualist nor an Advaitist — to him all is One. All this difference that
 you notice between a Bhakta and a Jnani is in the preparatory stage —
 one sees God outside, and the other sees Him within. But there is
 another point: Shri Ramakrishna used to say that there is another stage
-of Bhakti which is called the Supreme Devotion (Parâbhakti) i.e. to love
+of Bhakti which is called the Supreme Devotion (Parābhakti) i.e. to love
 Him after becoming established in the consciousness of Advaita and after
 having attained Mukti. It may seem paradoxical, and the question may be
 raised here why such a one who has already attained Mukti should be
@@ -287,7 +287,7 @@ that all of a sudden. One of the secrets of work is to go along the line
 of least resistance. So, first of all, let there be marriages within the
 sphere of one's own caste-people. Take for instance, the Kayasthas of
 Bengal. They have several subdivisions amongst them, such as, the
-Uttar-rârhi, Dakshin-rârhi, Bangaja, etc., and they do not intermarry
+Uttar-rārhi, Dakshin-rārhi, Bangaja, etc., and they do not intermarry
 with each other. Now, let there be intermarriages between the
 Uttar-rarhis and the Dakshin-rarhis, and if that is not possible at
 present, let it be between the Bangajas and the Dakshin-rarhis. Thus we
@@ -379,7 +379,7 @@ taught sciences and other things which would be of benefit, not only to
 them but to others as well, and knowing this they would easily learn
 these things and feel pleasure in doing so. Our motherland requires for
 her well-being some of her children to become such pure-souled
-Brahmachârins and Brahmachârinis.
+Brahmachārins and Brahmachārinis.
 
 *Q*. In what way will that conduce to her well-being?
 
@@ -389,7 +389,7 @@ and aspirations will take place. How do matters stand now? Somehow, the
 parents must dispose of a girl in marriage, if she he nine or ten years
 of age! And what a rejoicing of the whole family if a child is born to
 her at the age of thirteen! If the trend of such ideas is reversed, then
-only there is some hope for the ancient Shraddhâ to return. And what to
+only there is some hope for the ancient Shraddhā to return. And what to
 talk of those who will practice Brahmacharya as defined above — think
 how much faith in themselves will be theirs! And what a power for good
 they will be!
@@ -412,7 +412,7 @@ JNANA — A CURIOUS DREAM
 MONDAY, THE 24TH JANUARY, 1898.
 
 In the afternoon I came again to Swamiji and saw quite a good gathering
-round him. The topic was the Madhura-Bhâva or the way of worshipping God
+round him. The topic was the Madhura-Bhāva or the way of worshipping God
 as husband, as in vogue with some followers of Shri Chaitanya. His
 occasional *bons mots* were raising laughter, when someone remarked,
 "What is there to make so much fun of about the Lord's doings? Do you
@@ -438,10 +438,10 @@ assimilate that high ideal of divine love, and naturally made of it the
 worst form of love between man and woman.
 
 *Q*. But, sir, he preached the name of the Lord Hari to all, even to the
-Chandâlas; so why should not the common masses have a right to it?
+Chandālas; so why should not the common masses have a right to it?
 
 Swamiji: I am talking not of his preaching, but of his great ideal of
-love — the Râdhâ-prema (The divine love which Radha had towards Shri
+love — the Rādhā-prema (The divine love which Radha had towards Shri
 Krishna.),  with which he used to remain intoxicated day and night,
 losing his individuality in Radha.
 
@@ -488,7 +488,7 @@ live in marital relations all one's life? And, after all, how unbecoming
 of a man to make of himself a woman, so that he may practice this
 Madhura love!
 
-*Q*. True, sir. Singing God's name in a party (Nâmakirtana) is an
+*Q*. True, sir. Singing God's name in a party (Nāmakirtana) is an
 excellent help and gives one a joyous feeling. So say our scriptures,
 and so did Shri Chaitanya Deva also preach to the masses. When the Khole
 (drum) is played upon, it makes the heart leap with such a transport
@@ -516,7 +516,7 @@ great reaction and succumb to carnal tendencies.
 Chaitanya we should take up as well suited to us, so that we may not
 fall into errors.
 
-Swamiji: Worship God with Bhakti tempered with Jnâna. Keep the spirit of
+Swamiji: Worship God with Bhakti tempered with Jnāna. Keep the spirit of
 discrimination along with Bhakti. Besides this, gather from Shri
 Chaitanya, his heart, his loving kindness to all beings, his burning
 passion for God, and make his renunciation the ideal of your life.
@@ -555,7 +555,7 @@ and so on. In the course of conversation he said:
 was passing through the Mediterranean Sea, in my sleep, a very old and
 venerable looking person, Rishi-like in appearance, stood before me and
 said, 'Do ye come and effect our restoration. I am one of that ancient
-order of Therâputtas (Theraputae) which had its origin in the teachings
+order of Therāputtas (Theraputae) which had its origin in the teachings
 of the Indian Rishis. The truths and ideals preached by us have been
 given out by Christians as taught by Jesus; but for the matter of that,
 there was no such personality by the name of Jesus ever born. Various

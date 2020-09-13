@@ -15,7 +15,7 @@ title: 'RECORDED BY MISS S. E. WALDO
 THURSDAY, *July 18, 1895*.
 
 (*The lesson today was mainly Shankara's argument against the conclusion
-of the Sânkhya philosophy*.)
+of the Sānkhya philosophy*.)
 
 The Sankhyas say that consciousness is a compound, and beyond that, the
 last analysis gives us the Purusha, Witness, but that there are many
@@ -38,7 +38,7 @@ Shankara says, knowledge is not a bondage, because it is the nature of
 God. The world ever is, whether manifested or unmanifested; so an
 eternal object exists.
 
-*Jnâna-bala-kriyâ* (knowledge, power, activity) is God. Nor does He need
+*Jnāna-bala-kriyā* (knowledge, power, activity) is God. Nor does He need
 form, because the finite only needs form to interpose as an obstruction
 to catch and hold infinite knowledge; but God really needs no such help.
 There is no "moving soul", there is only one Atman. Jiva (individual

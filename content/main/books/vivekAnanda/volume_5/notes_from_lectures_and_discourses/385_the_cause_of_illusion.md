@@ -10,7 +10,7 @@ title: THE CAUSE OF ILLUSION
 
 ## THE CAUSE OF ILLUSION
 
-The question — what is the cause of Mâyâ (illusion)? — has been asked
+The question — what is the cause of Māyā (illusion)? — has been asked
 for the last three thousand years; and the only answer is: when the
 world is able to formulate a logical question, we shall answer it. The
 question is contradictory. Our position is that the Absolute has become

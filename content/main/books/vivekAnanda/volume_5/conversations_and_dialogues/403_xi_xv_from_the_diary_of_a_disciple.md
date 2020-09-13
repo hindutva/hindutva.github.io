@@ -61,7 +61,7 @@ Disciple: What should we do then to remove that evil?
 Swamiji: First, some young men full of the spirit of renunciation are
 needed — those who will be ready to sacrifice their lives for others,
 instead of devoting themselves to their own happiness. With this object
-in view I shall establish a Math to train young Sannyâsins, who will go
+in view I shall establish a Math to train young Sannyāsins, who will go
 from door to door and make the people realise their pitiable condition
 by means of facts and reasoning, and instruct them in the ways and means
 for their welfare, and at the same time will explain to them as clearly
@@ -91,19 +91,19 @@ Disciple: How will India rise again?
 Swamiji: Do you not see? The dawn has already appeared in the eastern
 sky, and there is little delay in the sun's rising. You all set your
 shoulders to the wheel! What is there in making the world all in all,
-and thinking of "My Samsâra (family and property), my Samsâra"? Your
+and thinking of "My Samsāra (family and property), my Samsāra"? Your
 duty at present is to go from one part of the country to another, from
 village to village, and make the people understand that mere sitting
 idly won't do any more. Make them understand their real condition and
 say, "O ye brothers, arise! Awake! How much longer would you remain
 asleep!" Go and advise them how to improve their own condition, and make
-them comprehend the sublime truths of the Shâstras (scriptures), by
+them comprehend the sublime truths of the Shāstras (scriptures), by
 presenting them in a lucid and popular way. So long the Brahmins have
 monopolised religion; but since they cannot hold their ground against
 the strong tide of time, go and take steps so that one and all in the
 land may get that religion. Impress upon their minds that they have the
 same right to religion as the Brahmins. Initiate all, even down to the
-Chandâlas (people of the lowest castes), in these fiery Mantras. Also
+Chandālas (people of the lowest castes), in these fiery Mantras. Also
 instruct them, in simple words, about the necessities of life, and in
 trade, commerce, agriculture, etc. If you cannot do this then fie upon
 your education and culture, and fie upon your studying the Vedas and
@@ -134,7 +134,7 @@ can pour out his whole heart in working for others. The man of
 renunciation sees all with an equal eye and devotes himself to the
 service of all. Does not our Vedanta also teach us to see all with an
 equal eye? Why then do you cherish the idea that the wife and children
-are your own, more than others? At your very threshold, Nârâyana Himself
+are your own, more than others? At your very threshold, Nārāyana Himself
 in the form of a poor beggar is dying of starvation! Instead of giving
 him anything, would you only satisfy the appetites of your wife and
 children with delicacies? Why, that is beastly!
@@ -194,7 +194,7 @@ ORIGINATES — BRING IN SHRADDHA AND THE WORSHIP OF SHAKTI AND AVATARAS —
 THE IDEAL OF THE HERO WE WANT NOW, NOT THE MADHURA-BHAVA — SHRI
 RAMAKRISHNA — AVATARAS
 
-Disciple: Pray, Swamiji, how can Jnâna and Bhakti be reconciled? We see
+Disciple: Pray, Swamiji, how can Jnāna and Bhakti be reconciled? We see
 the followers of the path of devotion (Bhaktas) close their ears at the
 name of Shankara, and again, the followers of the path of knowledge
 (Jnanis) call the Bhaktas fanatics, seeing them weep in torrents, or
@@ -202,7 +202,7 @@ sing and dance in ecstasy, in the name of the Lord.
 
 Swamiji: The thing is, all this conflict is in the preliminary
 (preparatory) stages of Jnana and Bhakti. Have you not heard Shri
-Ramakrishna's story about Shiva's demons and Râma's monkeys?[1](#fn1)
+Ramakrishna's story about Shiva's demons and Rāma's monkeys?[1](#fn1)
 
 Disciple: Yes, sir, I have.
 
@@ -211,7 +211,7 @@ supreme Jnana. The supreme Bhakti is to realise God as the form of Prema
 (love) itself. If you see the loving form of God manifest everywhere and
 in everything, how can you hate or injure others? That realisation of
 love can never come so long as there is the least desire in the heart,
-or what Shri Ramakrishna used to say, attachment for Kâma-Kânchana
+or what Shri Ramakrishna used to say, attachment for Kāma-Kānchana
 (sense-pleasure and wealth). In the perfect realisation of love, even
 the consciousness of one's own body does not exist. Also, the supreme
 Jnana is to realise the oneness everywhere, to see one's own self as the
@@ -247,7 +247,7 @@ numerous, as they vary according to the temperament or mental capacities
 of individual followers. The counting of beads, meditation, worship,
 offering oblations in the sacred fire — all these and such other things
 are the limbs of religion; they are but means; and to attain to supreme
-devotion (Parâ-Bhakti) or to the highest realisation of Brahman is the
+devotion (Parā-Bhakti) or to the highest realisation of Brahman is the
 pre-eminent end. If you look a little deeper, you will understand what
 they are fighting about. One says, "If you pray to God facing the East,
 then you will reach Him." "No," says another, "you will have to sit
@@ -259,7 +259,7 @@ party comes forward and inquires, "How is that? Such and such a person
 realised God while facing the West, and we have seen this ourselves." In
 this way all these sects have originated. Someone might have attained
 supreme devotion by repeating the name of the Lord as Hari, and at once
-it entered into the composition of the Shâstra as:
+it entered into the composition of the Shāstra as:
 
 हरेर्नाम हरेर्नाम हरेर्नामैव केवलम् ।  
 कलौ नास्त्येव नास्त्येव नास्त्येव गतिरन्यथा ॥
@@ -272,11 +272,11 @@ Someone, again, let us suppose, might have attained perfection with the
 name of Allah, and immediately another creed originated by him began to
 spread, and so on. But we have to see what is the end to which all these
 forms of worship and other religious practices are intended to lead. The
-end is Shraddhâ. We have not any synonym in our Bengali language to
+end is Shraddhā. We have not any synonym in our Bengali language to
 express the Sanskrit word Shraddha. The (Katha) Upanishad says that
-Shraddha entered into the heart of Nachiketâ. Even with the word
-Ekâgratâ (one-pointedness) we cannot express the whole significance of
-the word Shraddha. The word Ekâgranishthâ (one-pointed devotion)
+Shraddha entered into the heart of Nachiketā. Even with the word
+Ekāgratā (one-pointedness) we cannot express the whole significance of
+the word Shraddha. The word Ekāgranishthā (one-pointed devotion)
 conveys, to a certain extent, the meaning of the word Shraddha. If you
 meditate on any truth with steadfast devotion and concentration, you
 will see that the mind is more and more tending onwards to Oneness, i.e.
@@ -285,7 +285,7 @@ Existence-Knowledge-Bliss. The scriptures on Bhakti or Jnana give
 special advice to men to take up in life the one or the other of such
 Nishthas (scrupulous persistence) and make it their own. With the lapse
 of ages, these great truths become distorted and gradually transform
-themselves into Deshâchâras or the prevailing customs of a country. It
+themselves into Deshāchāras or the prevailing customs of a country. It
 has happened, not only in India, but in every nation and every society
 in the world. And the common people, lacking in discrimination, make
 these the bone of contention and fight among themselves. They have lost
@@ -305,10 +305,10 @@ Disciple: How will that be effected?
 Swamiji: Why, first of all, we have to introduce the worship of the
 great saints. Those great-souled ones who have realised the eternal
 truths are to be presented before the people as the ideas to be
-followed; as in the case of India — Shri Râmachandra, Shri Krishna,
-Mahâvira and Shri Ramakrishna, among others. Can you bring in the
+followed; as in the case of India — Shri Rāmachandra, Shri Krishna,
+Mahāvira and Shri Ramakrishna, among others. Can you bring in the
 worship of Shri Ramachandra and Mahavira in this country? Keep aside for
-the present the Vrindâvan aspect of Shri Krishna, and spread far and
+the present the Vrindāvan aspect of Shri Krishna, and spread far and
 wide the worship of Shri Krishna roaring the Gita out, with the voice of
 a Lion. And bring into daily use the worship of Shakti — the divine
 Mother, the source of all power.
@@ -329,7 +329,7 @@ Disciple: Is then the path of love, as depicted in the ideal of the
 Gopis, false?
 
 Swamiji: Who says so? Not I! That is a very superior form of worship
-(Sâdhanâ). In this age of tremendous attachment to sense-pleasure and
+(Sādhanā). In this age of tremendous attachment to sense-pleasure and
 wealth, very few are able even to comprehend those higher ideals.
 
 Disciple: Then are not those who are worshipping God as husband or lover
@@ -337,9 +337,9 @@ Disciple: Then are not those who are worshipping God as husband or lover
 
 Swamiji: I dare say not. There may be a few honourable exceptions among
 them, but know, that the greater part of them are possessed of dark
-Tâmasika nature. Most of them are full of morbidity and affected with
+Tāmasika nature. Most of them are full of morbidity and affected with
 exceptional weakness. The country must be raised. The worship of
-Mahavira must be introduced; the Shakti-pujâ must form a part of our
+Mahavira must be introduced; the Shakti-pujā must form a part of our
 daily practice; Shri Ramachandra must be worshipped in every home.
 Therein lies your welfare, therein lies the good of the country — there
 is no other way.
@@ -370,7 +370,7 @@ you have just named. What to speak of believing, which is a petty thing
 time.
 
 After a pause Swamiji continued: To re-establish the Dharma, there come
-Mahâpurushas (great teachers of humanity), suited to the needs of the
+Mahāpurushas (great teachers of humanity), suited to the needs of the
 times and society. Call them what you will — either Mahapurushas or
 Avataras — it matters little. They reveal, each in his life, the ideal.
 Then, by degrees, shapes are moulded in their matrices — MEN are made!
@@ -419,9 +419,9 @@ raise this question of "why"? As I put this question, it is already
 taken for granted that I do so by seeing this diversity.
 
 Swamiji: Very well. To enquire about the root of Oneness through the
-diversity of phenomenal existence is named by the Shâstras as Vyatireki
+diversity of phenomenal existence is named by the Shāstras as Vyatireki
 reasoning, or the process of arguing by the indirect method, that is,
-Adhyâropa and Apavâda, first taking for granted something that is
+Adhyāropa and Apavāda, first taking for granted something that is
 nonexistent or unreal as existing or real, and then showing through the
 course of reasoning that that is not a substance existing or real. You
 are talking of the process of arriving at the truth through assuming
@@ -449,7 +449,7 @@ Swamiji: One day in the temple-garden at Dakshineswar Shri Ramakrishna
 touched me over the heart, and first of all I began to see that the
 houses — rooms, doors, windows, verandahs — the trees, the sun, the moon
 — all were flying off, shattering to pieces as it were — reduced to
-atoms and molecules — and ultimately became merged in the Âkâsha.
+atoms and molecules — and ultimately became merged in the Âkāsha.
 Gradually again, the Akasha also vanished, and after that, my
 consciousness of the ego with it; what happened next I do not recollect.
 I was at first frightened. Coming back from that state, again I began to
@@ -467,7 +467,7 @@ intoxication from drinking, nor as an illusion produced by various sorts
 of queer breathing exercises — but when it comes to a normal man in full
 possession of his health and wits? Then again, this experience is in
 perfect harmony with the Vedas. It also coincides with the words of
-realisation of the inspired Rishis and Âchâryas of old. Do you take me,
+realisation of the inspired Rishis and Âchāryas of old. Do you take me,
 at last, to be a crack-brained man? (smiling).
 
 Disciple: Oh, no, I did not mean that of course. When there are to be
@@ -495,7 +495,7 @@ Swamiji: You speak as if man does not desire to have that Bliss! Ponder
 over it, and you will see that whatever anyone is doing, he is doing in
 the hope of gaining that Supreme Bliss. Only, not everyone is conscious
 of it and so cannot understand it. That Supreme Bliss fully exists in
-all, from Brahmâ down to the blade of grass. You are also that undivided
+all, from Brahmā down to the blade of grass. You are also that undivided
 Brahman. This very moment you can realise if you think yourself truly
 and absolutely to be so. It is all mere want of direct perception. That
 you have taken service and work so hard for the sake of your wife also
@@ -563,15 +563,15 @@ Swamiji: There are other hindrances on the path even after renouncing
 those two; then, for example, comes name and fame. Very few men, unless
 of exceptional strength, can keep their balance under that. People
 shower honours upon them, and various enjoyments creep in by degrees. It
-is owing to this that three-fourths of the Tyâgis are debarred from
+is owing to this that three-fourths of the Tyāgis are debarred from
 further progress! For establishing this Math and other things, who knows
 but that I may have to come back again!
 
 Disciple: If you say things like that, then we are undone!
 
 Swamiji: What fear? "अभीरभीरभीः — Be fearless, be fearless, be
-fearless!" You have seen Nâg Mahâshaya how even while living the life of
-a householder, he is more than a Sannyâsin! This is very uncommon; I
+fearless!" You have seen Nāg Mahāshaya how even while living the life of
+a householder, he is more than a Sannyāsin! This is very uncommon; I
 have rarely seen one like him. If anyone wants to be a householder, let
 him be like Nag Mahashaya. He shines like a brilliant luminary in the
 spiritual firmament of East Bengal. Ask the people of that part of the
@@ -593,7 +593,7 @@ a "flaming fire"?
 
 Disciple: Yes, so I have heard.
 
-At the request of Swamiji, the disciple partook of some Prasâda
+At the request of Swamiji, the disciple partook of some Prasāda
 (consecrated food), and left for Calcutta late in the evening; he was
 deeply thinking over the message of fearlessness that he had heard from
 the lips of the inspired teacher — "I am free!" "I am free!"
@@ -606,13 +606,13 @@ FOR REALISATION — UNCONDITIONAL MERCY AND BRAHMAN ARE ONE
 
 Disciple: Shri Ramakrishna used to say, Swamiji, that a man cannot
 progress far towards religious realisation unless he first relinquishes
-Kâma-Kânchana (lust and greed). If so, what will become of householders?
+Kāma-Kānchana (lust and greed). If so, what will become of householders?
 For their whole minds are set on these two things.
 
 Swamiji: It is true that the mind can never turn to God until the desire
 for lust and wealth has gone from it, be the man a householder or a
-Sannyâsin. Know this for a fact, that as long as the mind is caught in
-these, so long true devotion, firmness, and Shraddhâ (faith) can never
+Sannyāsin. Know this for a fact, that as long as the mind is caught in
+these, so long true devotion, firmness, and Shraddhā (faith) can never
 come.
 
 Disciple: Where will the householders be, then? What way are they to
@@ -630,7 +630,7 @@ Swamiji: Sannyasins are at least struggling to make themselves ready for
 renunciation, whereas householders are in this matter like boatmen who
 work at their oars while the boat lies at anchor. Is the desire for
 enjoyment ever appeased "भूय एवाभिवर्धते — It increases ever and ever"
-(Bhâgavata, IX. xix. 14).
+(Bhāgavata, IX. xix. 14).
 
 Disciple: Why? May not world-weariness come, after enjoying the objects
 of the senses over and over for a long time?
@@ -667,7 +667,7 @@ gradually. But for those who procrastinate, saying, "Oh, not so soon! I
 shall do it when the time comes", Self-realisation is very far off. "Let
 me realise the Truth this moment! In this very life!" — these are the
 words of a hero. Such heroes are ever ready to renounce the very next
-moment, and to such the scripture (Jâbâla Upanishad, 3.) says, "यदहरेव
+moment, and to such the scripture (Jābāla Upanishad, 3.) says, "यदहरेव
 विरजेत् तदहरेव प्रव्रजेत — The moment you feel disgust for the vanities
 of the world, leave it all and take to the life of a monk."
 
@@ -695,7 +695,7 @@ His mercy when this struggle is maintained.
 
 Disciple: In the history of the Incarnations, we find many persons who,
 we should say, had led very dissipated lives and yet were able to
-realise God without much trouble and without performing any Sâdhanâ or
+realise God without much trouble and without performing any Sādhanā or
 devotion. How is this accounted for?
 
 Swamiji: Yes, but a great restlessness must already have come upon them;
@@ -726,7 +726,7 @@ Himself of all worldly attachments, and led by Him to the supreme stage
 of realisation.
 
 Swamiji: True, those are the two different standpoints, the former held
-by the Jnânis, and the latter by the Bhaktas. But the ideal of
+by the Jnānis, and the latter by the Bhaktas. But the ideal of
 renunciation is the keynote of both.
 
 Disciple: No doubt about that! But Shri Girish Chandra Ghosh (The great
@@ -805,7 +805,7 @@ clearly, do you not, that such notions are working ruin to our country
 and our society? Just see — the people of East Bengal eat much fish,
 meat, and turtle, and they are much healthier than those of this part of
 Bengal. Even the rich men of East Bengal have not yet taken to Loochis
-or Châpâtis at night, and they do not suffer from acidity and dyspepsia
+or Chāpātis at night, and they do not suffer from acidity and dyspepsia
 like us. I have heard that in the villages of East Bengal the people
 have not the slightest idea of what dyspepsia means!
 
@@ -814,7 +814,7 @@ of the country. I first heard of it after coming to these parts. We take
 fish with rice, mornings and evenings.
 
 Swamiji: Yes, take as much of that as you can, without fearing
-criticism. The country has been flooded with dyspeptic Bâbâjis living on
+criticism. The country has been flooded with dyspeptic Bābājis living on
 vegetables only. That is no sign of Sattva, but of deep Tamas — the
 shadow of death. Brightness in the face, undaunted enthusiasm in the
 heart, and tremendous activity — these result from Sattva; whereas
@@ -826,8 +826,8 @@ Disciple: But do not fish and meat increase Rajas in man?
 Swamiji: That is what I want you to have. Rajas is badly needed just
 now! More than ninety per cent of those whom you now take to be men with
 the Sattva, quality are only steeped in the deepest Tamas. Enough, if
-you find one-sixteenth of them to be really Sâttvika! What we want now
-is an immense awakening of Râjasika energy, for the whole country is
+you find one-sixteenth of them to be really Sāttvika! What we want now
+is an immense awakening of Rājasika energy, for the whole country is
 wrapped in the shroud of Tamas. The people of this land must be fed and
 clothed — must be awakened — must be made more fully active. Otherwise
 they will become inert, as inert as trees and stones. So, I say, eat
@@ -846,12 +846,12 @@ party, know it for a certainty that herein, there is either hypocrisy or
 a show of religion. When you yourself come to that stage of pure Sattva,
 give up fish and meat, by all means.
 
-Disciple: In the Chhândogya Upanishad (VII. xxvi. 2) there is this
+Disciple: In the Chhāndogya Upanishad (VII. xxvi. 2) there is this
 passage, "आहारशुद्धौ सत्त्वशुद्धिः — Through pure food the Sattva
 quality in a man becomes pure."
 
-Swamiji: Yes, I know. Shankarâchârya has said that the word Âhâra there
-means "objects of the senses", whereas Shri Râmânuja has taken the
+Swamiji: Yes, I know. Shankarāchārya has said that the word Âhāra there
+means "objects of the senses", whereas Shri Rāmānuja has taken the
 meaning of Ahara to be "food". In my opinion we should take that meaning
 of the word which reconciles both these points of view. Are we to pass
 our lives discussing all the time about the purity and impurity of food
@@ -859,7 +859,7 @@ only, or are we to practice the restraining of our senses? Surely, the
 restraining of the senses is the main object; and the discrimination of
 good and bad, pure and impure foods, only helps one, to a certain
 extent, in gaining that end. There are, according to our scriptures,
-three things which make food impure: (1) Jâti-dosha or natural defects
+three things which make food impure: (1) Jāti-dosha or natural defects
 of a certain class of food, like onions, garlic, etc.; (2) Nimitta-dosha
 or defects arising from the presence of external impurities in it, such
 as dead insects, dust, etc. that attach to sweetmeats bought from shops;
@@ -873,7 +873,7 @@ extinction by the cry, "Don't touch", "Don't touch", of the non-touchism
 party. In that exclusive circle of theirs, too, there is no
 discrimination of good and bad men, for their food may be taken from the
 hands of anyone who wears a thread round his neck and calls himself a
-Brâhmin! Shri Ramakrishna was quite unable to take food in this
+Brāhmin! Shri Ramakrishna was quite unable to take food in this
 indiscriminate way from the hands of any and all. It happened many a
 time that he would not accept food touched by a certain person or
 persons, and on rigorous investigation it would turn out that these had
@@ -886,13 +886,13 @@ Disciple: Do you mean, then, that we should eat the food handled by
 anyone and everyone?
 
 Swamiji: Why so? Look here. You being Brahmin of a certain class, say,
-of the Bhattâcharya class, why should you not eat rice cooked by
-Brahmins of all classes? Why should you, who belong to the Rârhi
+of the Bhattācharya class, why should you not eat rice cooked by
+Brahmins of all classes? Why should you, who belong to the Rārhi
 section, object to taking rice cooked by a Brahmin of the Barendra
 section, or why should a Barendra object to taking your rice? Again, why
 should not the other subcastes in the west and south of India, e.g. the
 Marathi, Telangi, Kanouji, do the same? Do you not see that hundreds of
-Brahmins and Kâyasthas in Bengal now go secretly to eat dainties in
+Brahmins and Kāyasthas in Bengal now go secretly to eat dainties in
 public restaurants, and when they come out of those places pose as
 leaders of society and frame rules to support don't-touchism. Must our
 society really be guided by laws dictated by such hypocrites? No, I say.
@@ -909,16 +909,16 @@ my travels I searched carefully and thoroughly. The blind and not
 unoften meaningless customs sanctioned by the people, local prejudices
 and ideas, and the usages and ceremonials prevalent amongst women, are
 what really govern society everywhere! How many care to read the
-Shâstras or to lead society according to their ordinances after careful
+Shāstras or to lead society according to their ordinances after careful
 study?
 
 Disciple: What are we to do, then?
 
 Swamiji: We must revive the old laws of the Rishis. We must initiate the
-whole people into the codes of our old Manu and Yâjnavalkya, with a few
+whole people into the codes of our old Manu and Yājnavalkya, with a few
 modifications here and there to adjust them to the changed circumstances
 of the time. Do you not see that nowhere in India now are the original
-four castes (Châturvarnya) to be found? We have to redivide the whole
+four castes (Chāturvarnya) to be found? We have to redivide the whole
 Hindu population, grouping it under the four main castes, of Brahmins,
 Kshatriyas, Vaishyas, and Shudras, as of old. The numberless modern
 subdivisions of the Brahmins that split them up into so many castes, as

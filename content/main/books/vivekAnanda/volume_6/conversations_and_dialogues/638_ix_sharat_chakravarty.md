@@ -15,7 +15,7 @@ title: IX
 (From the Diary of a Disciple)
 
 (The disciple is Sharatchandra Chakravarty, who published his records in
-a Bengali book, *Swami-Shishya-Samvâda*, in two parts. The present
+a Bengali book, *Swami-Shishya-Samvāda*, in two parts. The present
 series of "Conversations and Dialogues" is a revised translation from
 this book. Five dialogues of this series have already appeared in the
 *Complete Works*, [Vol.
@@ -24,7 +24,7 @@ V.](../../volume_5/conversations_and_dialogues/xi_xv_from_the_diary_of_a_discipl
 
 \[Place: *Calcutta*. year: *1897*.\]
 
-For the last ten days, the disciple had been studying Sâyana's
+For the last ten days, the disciple had been studying Sāyana's
 commentary on the Rig-Veda with Swamiji, who was staying then at the
 house of the late Babu Balaram Bose at Baghbazar. Max Müller's volumes
 on the Rig-Veda had been brought from a wealthy friend's private
@@ -53,7 +53,7 @@ Disciple: But, sir, if Sayana himself became Max Müller, then why was he
 born as a Mlechchha instead of being born in the sacred land of India?
 
 Swamiji: The feeling and the distinction that I am an Aryan and the
-other is a Mlechchha come from ignorance. But what are Varnâshrama and
+other is a Mlechchha come from ignorance. But what are Varnāshrama and
 caste divisions to one who is the commentator of the Vedas, the shining
 embodiment of knowledge? To him they are wholly meaningless, and he can
 assume human birth wherever he likes for doing good to mankind.
@@ -84,13 +84,13 @@ ideas. Shabda, according to the old Vedic meaning of the term, is the
 subtle idea, which reveals itself by taking the gross form later on. So
 owing to the dissolution of the creation the subtle seeds of the future
 creation become involved in the Veda. Accordingly, in the Puranas you
-find that during the first Divine Incarnation, the Minâvatâra, the Veda
+find that during the first Divine Incarnation, the Mināvatāra, the Veda
 is first made manifest. The Vedas having been first revealed in this
 Incarnation, the other creative manifestations followed. Or in other
 words, all the created objects began to take concrete shape out of the
 Shabdas or ideas in the Veda. For in Shabda or idea, all gross objects
 have their subtle forms. Creation had proceeded in the same way in all
-previous cycles or Kalpas. This you find in the Sandhyâ Mantra of the
+previous cycles or Kalpas. This you find in the Sandhyā Mantra of the
 Vedas: "सूर्याचन्द्रमसौ धाता यथापूर्वमकल्पयत् पृथिवीं दिवं चान्तरीक्षमथो
 स्वः — The Creator projected the sun, the moon, the earth, the
 atmosphere, the heaven, and the upper spheres in the same manner and
@@ -135,10 +135,10 @@ any jug to be produced!
 Swamiji: No, nothing is produced if you or I cry out like that; but a
 jug must be revealed if the idea of it rises in Brahman which is perfect
 in Its creative determinations. When we see even those established in
-the practice of religion (Sâdhakas) bring about by will-power things
+the practice of religion (Sādhakas) bring about by will-power things
 otherwise impossible to happen, what to speak of Brahman with perfect
 creativeness of will? At the point of creation Brahman becomes manifest
-as Shabda (Idea), and then assumes the form of "Nâda" or "Om". At the
+as Shabda (Idea), and then assumes the form of "Nāda" or "Om". At the
 next stage, the particular Shabdas or ideas, that variously existed in
 former cycles, such as Bhuh, Bhuvah, Svah, cow, man, etc., begin to come
 out of the "Om". As soon as these ideas appear in Brahman endowed with
@@ -163,10 +163,10 @@ The disciple sat mute, thinking that none could express and explain it
 in the way Swamiji was doing, unless the whole thing were a matter of
 one's own experience!
 
-Swamiji then resumed the subject: Great men like Avatâras, in coming
+Swamiji then resumed the subject: Great men like Avatāras, in coming
 back from Samadhi to the realm of "I" and "mine", first experience the
 unmanifest Nada, which by degrees grows distinct and appears as Om, and
-then from Omkâra, the subtle form of the universe as a mass of ideas
+then from Omkāra, the subtle form of the universe as a mass of ideas
 becomes experienced, and last, the material universe comes into
 perception. But ordinary Sadhakas somehow reach beyond Nada through
 immense practice, and when once they attain to the direct realisation of
@@ -180,8 +180,8 @@ gave him his courteous greetings and continued his lessons to the
 disciple.
 
 Shabdas are again divided into two classes, the Vedic Shabdas and those
-in common human use. I found this position in the Nyâya book called
-*Shabdashaktiprakâshikâ*. There the arguments no doubt indicate great
+in common human use. I found this position in the Nyāya book called
+*Shabdashaktiprakāshikā*. There the arguments no doubt indicate great
 power of thought; but, oh, the terminology confounds the brain!
 
 Now turning to Girish Babu Swamiji said: What do you say, G. C.? Well,
@@ -211,7 +211,7 @@ flow out of his eyes, and seemingly to hide his feelings from us, he
 rose and left the room.
 
 Meanwhile, addressing the disciple, Girish Babu said: Did you see,
-Bângâl? What a great loving heart! I don't honour your Swamiji simply
+Bāngāl? What a great loving heart! I don't honour your Swamiji simply
 for being a Pundit versed in the Vedas; but I honour him for that great
 heart of his which just made him retire weeping at the sorrows of his
 fellow beings.
@@ -271,7 +271,7 @@ once said, "Do you know, my heart is sorely troubled by the picture of
 our country's miseries G. C. was depicting just now; well, can you do
 anything for our country?"
 
-Sadananda: Mahârâj, let the mandate once go forth; your slave is ready.
+Sadananda: Mahārāj, let the mandate once go forth; your slave is ready.
 
 Swamiji: First, on a pretty small scale, start a relief centre, where
 the poor and the distressed may obtain relief and the diseased may be

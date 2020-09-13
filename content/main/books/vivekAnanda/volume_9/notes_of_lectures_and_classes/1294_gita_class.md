@@ -10,10 +10,10 @@ Classes](notes_of_lectures_and_classes_contents.htm) /
 
 
 
-*\[Sister Nivedita's notes of a New York Bhagavad-Gitâ class, recorded
+*\[Sister Nivedita's notes of a New York Bhagavad-Gitā class, recorded
 in a June 16, 1900 letter to Miss Josephine MacLeod\]*
 
-This morning the lesson on the Gitâ was grand. It began with a long talk
+This morning the lesson on the Gitā was grand. It began with a long talk
 on the fact that the highest ideals are not for all. Non-resistance is
 *not* for the man who thinks the replacing of the maggot in the wound by
 the leprous saint with "Eat, Brother!" disgusting and horrible.

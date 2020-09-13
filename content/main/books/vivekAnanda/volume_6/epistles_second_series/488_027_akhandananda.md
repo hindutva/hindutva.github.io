@@ -35,7 +35,7 @@ wonderful Raja-Yogi — and he has given me some hopes, too. There is a
 beautiful bungalow in a small garden belonging to a gentleman here; I
 mean to stay there. The garden is quite close to Babaji's cottage. A
 brother of the Babaji stays there to look after the comforts of the
-Sadhus, and I shall have my Bhikshâ at his place. Hence, with a view to
+Sadhus, and I shall have my Bhikshā at his place. Hence, with a view to
 seeing to the end of this fun, I give up for the present my plan of
 going to the hills. For the last two months I have had an attack of
 lumbago in the waist, which also makes it impossible to climb the hills

@@ -10,7 +10,7 @@ title: THE SANNYASIN
 
 ## THE SANNYASIN
 
-In explanation of the term Sannyâsin, the Swami in the course of one of
+In explanation of the term Sannyāsin, the Swami in the course of one of
 his lectures in Boston said:
 
 When a man has fulfilled the duties and obligations of that stage of
@@ -20,7 +20,7 @@ possession, fame, or power, when, by the growth of insight into the
 nature of the world, he sees its impermanence, its strife, its misery,
 and the paltry nature of its prizes, and turns away from all these —
 then he seeks the True, the Eternal Love, the Refuge. He makes complete
-renunciation (Sannyâsa) of all worldly position, property, and name, and
+renunciation (Sannyāsa) of all worldly position, property, and name, and
 wanders forth into the world to live a life of self-sacrifice and to
 persistently seek spiritual knowledge, striving to excel in love and
 compassion and to acquire lasting insight. Gaining these pearls of

@@ -61,7 +61,7 @@ it. The child rebels against law as soon as it is born. Its first
 utterance is a cry, a protest against the bondage in which it finds
 itself. This longing for freedom produces the idea of a Being who is
 absolutely free. The concept of God is a fundamental element in the
-human constitution. In the Vedanta, Sat-chit-ânanda
+human constitution. In the Vedanta, Sat-chit-ānanda
 (Existence-Knowledge-Bliss) is the highest concept of God possible to
 the mind. It is the essence of knowledge and is by its nature the
 essence of bliss. We have been stifling that inner voice long enough,

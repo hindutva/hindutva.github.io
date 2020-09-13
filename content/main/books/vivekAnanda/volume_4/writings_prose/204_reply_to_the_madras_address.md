@@ -23,7 +23,7 @@ personal appreciation of me and my work in a foreign and distant land,
 but as a sure sign that, though whirlwind after whirlwind of foreign
 invasion has passed over the devoted head of India, though centuries of
 neglect on our part and contempt on the part of our conquerors have
-visibly dimmed the glories of ancient Âryâvarta, though many a stately
+visibly dimmed the glories of ancient Âryāvarta, though many a stately
 column on which it rested, many a beautiful arch, and many a marvellous
 corner have been washed away by the inundations that deluged the land
 for centuries — the centre is all sound, the keystone is unimpaired. The
@@ -43,11 +43,11 @@ the evolution of spiritual humanity.
 
 The people of Northern India are especially grateful to you of the
 South, as the great source to which most of the impulses that are
-working in India today can be traced. The great Bhâshyakâras,
-epoch-making Âchâryas, Shankara, Râmânuja, and Madhva were born in
-Southern India. Great Shankara to whom every Advâitavâdin in the world
+working in India today can be traced. The great Bhāshyakāras,
+epoch-making Âchāryas, Shankara, Rāmānuja, and Madhva were born in
+Southern India. Great Shankara to whom every Advāitavādin in the world
 owes allegiance; great Ramanuja whose heavenly touch converted the
-downtrodden pariahs into Âlwârs; great Madhva whose leadership was
+downtrodden pariahs into Âlwārs; great Madhva whose leadership was
 recognised even by the followers of the only Northern Prophet whose
 power has been felt all over the length and breadth of India — Shri
 Krishna Chaitanya. Even at the present day it is the South that carries
@@ -55,22 +55,22 @@ the palm in the glories of Varanasi — your renunciation controls the
 sacred shrines on the farthest peaks of the Himalayas, and what wonder
 that with the blood of Prophets running in your veins, with your lives
 blessed by such Acharyas, you are the first and foremost to appreciate
-and hold on to the message of Bhagavân Shri Ramakrishna.
+and hold on to the message of Bhagavān Shri Ramakrishna.
 
 The South had been the repository of Vedic learning, and you will
 understand me when I state that, in spite of the reiterated assertions
 of aggressive ignorance, it is the Shruti still that is the backbone of
 all the different divisions of the Hindu religion.
 
-However great may be the merits of the Samhitâ and the Brâhmana portions
+However great may be the merits of the Samhitā and the Brāhmana portions
 of the Vedas to the ethnologists or the philologists, however desirable
 may be the results that the अग्निमीले[1](#fn1)
 or इषेत्वोर्जेत्वा[2](#fn2) or शन्नो देवीरभीष्टये[3](#fn3) in
 conjunction with the different Vedis (altars) and sacrifices and
 libations produce — it was all in the way of Bhoga; and no one ever
-contended that it could produce Moksha. As such, the Jnâna-Kânda, the
+contended that it could produce Moksha. As such, the Jnāna-Kānda, the
 Âranyakas, the Shrutis *par excellence* which teach the way to
-spirituality, the Moksha-Mârga, have always ruled and will always rule
+spirituality, the Moksha-Mārga, have always ruled and will always rule
 in India.
 
 Lost in the mazes and divisions of the "Religion Eternal", by
@@ -103,21 +103,21 @@ mercy of the gods — the human birth, the desire for salvation, and the
 company of the great-souled ones."
 
 Either in the sharp analysis of the Vaisheshikas, resulting in the
-wonderful theories about the Paramânus, Dvyanus, and Trasarenus, (Atoms,
+wonderful theories about the Paramānus, Dvyanus, and Trasarenus, (Atoms,
 Entities composed of two atoms, Entities composed of three atoms.) or
 the still more wonderful analysis displayed in the discussions of the
-Jâti, Dravya, Guna, Samavâya, (Genus, Substance, Quality, Inhesion or
-Inseparability.) and to the various categories of the Naiyâyikas, rising
-to the solemn march of the thought of the Sânkhyas, the fathers of the
+Jāti, Dravya, Guna, Samavāya, (Genus, Substance, Quality, Inhesion or
+Inseparability.) and to the various categories of the Naiyāyikas, rising
+to the solemn march of the thought of the Sānkhyas, the fathers of the
 theories of evolution, ending with the ripe fruit, the result of all
-these researches, the Sutras of Vyâsa — the one background to all these
+these researches, the Sutras of Vyāsa — the one background to all these
 different analyses and syntheses of the human mind is still the Shrutis.
 Even in the philosophical writings of the Buddhists or Jains, the help
 of Shrutis is never rejected, and at least in some of the Buddhistic
 schools and in the majority of the Jain writings, the authority of the
 Shrutis is fully admitted, excepting what they call the Himsaka Shrutis,
 which they hold to be interpolations of the Brahmins. In recent times,
-such a view has been held by the late great Swami Dayânanda Saraswati.
+such a view has been held by the late great Swami Dayānanda Saraswati.
 
 If one be asked to point out the system of thought towards which as a
 centre all the ancient and modern Indian thoughts have converged, if one
@@ -126,40 +126,40 @@ manifestations, the Sutras of Vyasa will unquestionably be pointed out
 as constituting all that.
 
 Either one hears the Advaita-Keshari roaring in peals of thunder — the
-Asti, Bhâti, and Priya —  (Exists (Sat), Shines (Chit), Is beloved
+Asti, Bhāti, and Priya —  (Exists (Sat), Shines (Chit), Is beloved
 (Ânanda) — the three indicatives of Brahman.) amidst the heart-stopping
 solemnities of the Himalayan forests, mixing with the solemn cadence of
-the river of heaven, or listens to the cooing of the Piyâ, Pitam in the
-beautiful bowers of the grove of Vrindâ: whether one mingles with the
+the river of heaven, or listens to the cooing of the Piyā, Pitam in the
+beautiful bowers of the grove of Vrindā: whether one mingles with the
 sedate meditations of the monasteries of Varanasi or the ecstatic dances
 of the followers of the Prophet of Nadia; whether one sits at the feet
-of the teacher of the Vishishtâdvaita system with its Vadakale, Tenkale,
+of the teacher of the Vishishtādvaita system with its Vadakale, Tenkale,
 (The two divisions of the Ramanuja sect.) and all the other
-subdivisions, or listens with reverence to the Acharyas of the Mâdhva
-school; whether one hears the martial "Wâ Guruki Fateh" (Victory to the
-Guru) of the secular Sikhs or the sermons on the Grantha Sâhib of the
-Udâsis and Nirmalâs; whether he salutes the Sannyâsin disciples of Kabir
-with "Sat Sâhib" and listens with joy to the Sâkhis (Bhajans); whether
-he pores upon the wonderful lore of that reformer of Rajputana, Dâdu, or
-the works of his royal disciple, Sundaradâsa, down to the great
-Nishchaladâsa, the celebrated author of *Vichâra sâgara*, which book has
+subdivisions, or listens with reverence to the Acharyas of the Mādhva
+school; whether one hears the martial "Wā Guruki Fateh" (Victory to the
+Guru) of the secular Sikhs or the sermons on the Grantha Sāhib of the
+Udāsis and Nirmalās; whether he salutes the Sannyāsin disciples of Kabir
+with "Sat Sāhib" and listens with joy to the Sākhis (Bhajans); whether
+he pores upon the wonderful lore of that reformer of Rajputana, Dādu, or
+the works of his royal disciple, Sundaradāsa, down to the great
+Nishchaladāsa, the celebrated author of *Vichāra sāgara*, which book has
 more influence in India than any that has been written in any language
 within the last three centuries; if even one asks the Bhangi Mehtar of
 Northern India to sit down and give an account of the teachings of his
-Lâlguru — one will find that all these various teachers and schools have
-as their basis that system whose authority is the Shruti, Gitâ its
-divine commentary, the *Shâriraka-Sutras* its organised system, and all
-the different sects in India, from the Paramahamsa Parivrâjakâchâryas to
-the poor despised Mehtar disciples of Lâlguru, are different
+Lālguru — one will find that all these various teachers and schools have
+as their basis that system whose authority is the Shruti, Gitā its
+divine commentary, the *Shāriraka-Sutras* its organised system, and all
+the different sects in India, from the Paramahamsa Parivrājakāchāryas to
+the poor despised Mehtar disciples of Lālguru, are different
 manifestations.
 
-The three Prasthânas, ("Courses", viz, the Upanishad (Shruti), the Gita,
+The three Prasthānas, ("Courses", viz, the Upanishad (Shruti), the Gita,
 and the *Shariraka-Sutras*.) then, in their different explanations as
 Dvaita, Vishishtadvaita, or Advaita, with a few minor recensions, form
-the "authorities" of the Hindu religion. The Purânas, the modern
-representations of the ancient Nârâsamsi (anecdote portion of the
+the "authorities" of the Hindu religion. The Purānas, the modern
+representations of the ancient Nārāsamsi (anecdote portion of the
 Vedas), supply the mythology, and the Tantras, the modern
-representations of the Brâhmanas (ritual and explanatory portion of the
+representations of the Brāhmanas (ritual and explanatory portion of the
 Vedas), supply the ritual. Thus the three Prasthanas, as authorities,
 are common to all the sects; but as to the Puranas and Tantras, each
 sect has its own.
@@ -169,9 +169,9 @@ form; and before any one jumps into the most absurd conclusions about
 them, I will advise him to read the Tantras in conjunction with the
 Brahmanas, especially the Adhvaryu portion. And most of the Mantras,
 used in the Tantras, will be found taken verbatim from their Brahmanas.
-As to their influence, apart from the Shrauta and Smârta rituals, all
+As to their influence, apart from the Shrauta and Smārta rituals, all
 the forms of the rituals in vogue from the Himalayas to the Comorin have
-been taken from the Tantras, and they direct the worship of the Shâkta,
+been taken from the Tantras, and they direct the worship of the Shākta,
 or Shaiva, or Vaishnava, and all the others alike.
 
 Of course, I do not pretend that all the Hindus are thoroughly
@@ -186,44 +186,44 @@ the highest in lower Bengal.
 
 And why so?
 
-Transported from the soil of Mithilâ to Navadvipa, nurtured and
-developed by the fostering genius of Shiromani, Gadâdhara, Jagadisha,
+Transported from the soil of Mithilā to Navadvipa, nurtured and
+developed by the fostering genius of Shiromani, Gadādhara, Jagadisha,
 and a host of other great names, an analysis of the laws of reasoning,
 in some points superior to every other system in the whole world,
 expressed in a wonderful and precise mosaic of language, stands the
-Nyâya of Bengal, respected and studied throughout the length and breadth
-of Hindusthân. But, alas, the Vedic study was sadly neglected, and until
+Nyāya of Bengal, respected and studied throughout the length and breadth
+of Hindusthān. But, alas, the Vedic study was sadly neglected, and until
 within the last few years, scarcely anyone could be found in Bengal to
-teach the *Mahâbhâshya* of Patanjali. Once only a mighty genius rose
+teach the *Mahābhāshya* of Patanjali. Once only a mighty genius rose
 above the never-ending Avachchhinnas and Avachchhedakas (In Nyaya,
-'Determined', and 'determining attribute'.) — Bhagavân Shri Krishna
+'Determined', and 'determining attribute'.) — Bhagavān Shri Krishna
 Chaitanya. For once the religious lethargy of Bengal was shaken, and for
 a time it entered into a communion with the religious life of other
 parts of India.
 
-It is curious to note that though Shri Chaitanya obtained his Sannyâsa
-from a Bhârati, and as such was a Bharati himself, it was through
-Mâdhavendra Puri that his religious genius was first awakened.
+It is curious to note that though Shri Chaitanya obtained his Sannyāsa
+from a Bhārati, and as such was a Bharati himself, it was through
+Mādhavendra Puri that his religious genius was first awakened.
 
 The Puris seem to have a peculiar mission in rousing the spirituality of
-Bengal. Bhagavan Shri Ramakrishna got his Sannyâsâshrama from Totâ Puri.
+Bengal. Bhagavan Shri Ramakrishna got his Sannyāsāshrama from Totā Puri.
 
-The commentary that Shri Chaitanya wrote on the *Vyâsa-Sutras* has
+The commentary that Shri Chaitanya wrote on the *Vyāsa-Sutras* has
 either been lost or not found yet. His disciples joined themselves to
 the Madhvas of the South, and gradually the mantles of such giants as
-Rupa and Sanâtana and Jiva Goswâmi fell on the shoulders of Bâbâjis, and
+Rupa and Sanātana and Jiva Goswāmi fell on the shoulders of Bābājis, and
 the great movement of Shri Chaitanya was decaying fast, till of late
 years there is a sign of revival. Hope that it will regain its lost
 splendour.
 
 The influence of Shri Chaitanya is all over India. Wherever the
-Bhakti-Mârga is known, there he is appreciated, studied, and worshipped.
-I have every reason to believe that the whole of the Vallabhâchârya
+Bhakti-Mārga is known, there he is appreciated, studied, and worshipped.
+I have every reason to believe that the whole of the Vallabhāchārya
 recension is only a branch of the sect founded by Shri Chaitanya. But
 most of his so-called disciples in Bengal do not know how his power is
 still working all over India; and how can they? The disciples have
-become Gadiâns (Heads of monasteries), while he was preaching barefooted
-from door to door in India, begging Âchandâlas (all down to the lowest)
+become Gadiāns (Heads of monasteries), while he was preaching barefooted
+from door to door in India, begging Âchandālas (all down to the lowest)
 to love God.
 
 The curious and unorthodox custom of hereditary Gurus that prevails in
@@ -235,13 +235,13 @@ influx from that of the great brotherhood of Sannyasins who are the
 representatives and repositories of the highest Indian spiritual culture
 even at the present day.
 
-Tyâga (renunciation) is never liked by the higher classes of Bengal.
+Tyāga (renunciation) is never liked by the higher classes of Bengal.
 Their tendency is for Bhoga (enjoyment). How can they get a deep insight
 into spiritual things? त्यागेनैके अमृतत्वमानशुः — "By renunciation alone
 immortality was reached." How can it be otherwise?
 
 On the other hand, throughout the Hindi-speaking world, a succession of
-brilliant Tyâgi teachers of far-reaching influence has brought the
+brilliant Tyāgi teachers of far-reaching influence has brought the
 doctrines of the Vedanta to every door. Especially the impetus given to
 Tyaga during the reign of Ranjit Singh of the Punjab has made the
 highest teachings of the Vedantic philosophy available for the very
@@ -255,7 +255,7 @@ birth."
 
 Thus it is that the North-West and the Punjab have a religious education
 which is far ahead of that of Bengal, Bombay, or Madras. The
-ever-travelling Tyagis of the various orders, Dashanâmis or Vairâgis or
+ever-travelling Tyagis of the various orders, Dashanāmis or Vairāgis or
 Panthis bring religion to everybody's door, and the cost is only a bit
 of bread. And how noble and disinterested most of them are! There is one
 Sannyasin belonging to the Kachu Panthis or independents (who do not
@@ -283,8 +283,8 @@ of devotees."
 
 Take even an extreme case, that of an extremely ignorant Vairagi. Even
 he, when he goes into a village tries his best to impart to the
-villagers whatever he knows, from Tulasidâsa, or
-*Chaitanya-Charitâmrita* or the Âlwârs in Southern India. Is that not
+villagers whatever he knows, from Tulasidāsa, or
+*Chaitanya-Charitāmrita* or the Âlwārs in Southern India. Is that not
 doing some good? And all this for only a bit of bread and a rag of
 cloth. Before unmercifully criticising them, think how much you do, my
 brother, for your poor fellow-countrymen, at whose expense you have got
@@ -295,25 +295,25 @@ vagabonds.
 A few of your fellow-countrymen in Bengal have criticised what they call
 a new development of Hinduism. And well they may. For Hinduism is only
 just now penetrating into Bengal, where so long the whole idea of
-religion was a bundle of Deshâchâras (local customs) as to eating and
+religion was a bundle of Deshāchāras (local customs) as to eating and
 drinking and marriage.
 
 This short paper has not space for the discussion of such a big subject
 as to whether the view of Hinduism, which the disciples of Ramakrishna
-have been preaching all over India, was according to the "Sad-Shâstras"
+have been preaching all over India, was according to the "Sad-Shāstras"
 or not. But I will give a few hints to our critics, which may help them
 in understanding our position better.
 
 In the first place, I never contended that a correct idea of Hinduism
-can be gathered from the writings of Kâshidâsa or Krittivâsa, though
-their words are "Amrita Samâna" (like nectar), and those that hear them
-are "Punyavâns" (virtuous). But we must go to Vedic and Dârshanika
+can be gathered from the writings of Kāshidāsa or Krittivāsa, though
+their words are "Amrita Samāna" (like nectar), and those that hear them
+are "Punyavāns" (virtuous). But we must go to Vedic and Dārshanika
 authorities, and to the great Acharyas and their disciples all over
 India.
 
 If, brethren, you begin with the Sutras of Gautama, and read his
 theories about the Âptas (inspired) in the light of the commentaries of
-Vâtsyâyana, and go up to the Mimâmsakas with Shabara and other
+Vātsyāyana, and go up to the Mimāmsakas with Shabara and other
 commentators, and find out what they say about the
 अलौकिकप्रत्यक्षम् (supersensuous realisation), and who are Aptas, and
 whether every being can become an Apta or not, and that the proof of the
@@ -326,13 +326,13 @@ As to the eternity of creation — this doctrine is the corner-stone not
 only of the Hindu religion, but of the Buddhists and Jains also.
 
 Now all the sects in India can be grouped roughly as following the
-Jnâna-Mârga or the Bhakti-Mârga. If you will kindly look into the
-introduction to the *Shâriraka-Bhâshya* of Shri Shankarâchârya, you will
-find there the Nirapekshatâ (transcendence) of Jnana is thoroughly
+Jnāna-Mārga or the Bhakti-Mārga. If you will kindly look into the
+introduction to the *Shāriraka-Bhāshya* of Shri Shankarāchārya, you will
+find there the Nirapekshatā (transcendence) of Jnana is thoroughly
 discussed, and the conclusion is that realisation of Brahman or the
 attainment of Moksha do not depend upon ceremonial, creed, caste,
 colour, or doctrine. It will come to any being who has the four
-Sâdhanâs, which are the most perfect moral culture.
+Sādhanās, which are the most perfect moral culture.
 
 As to the Bhaktas, even Bengali critics know very well that some of
 their authorities even declared that caste or nationality or sex, or, as
@@ -342,7 +342,7 @@ the one and only thing necessary.
 Both Jnana and Bhakti are everywhere preached to be unconditioned, and
 as such there is not one authority who lays down the conditions of caste
 or creed or nationality in attaining Moksha. See the discussion on the
-Sutra of Vyâsa — अन्तरा चापि तु तद्दृष्टेः[4](#fn4) by Shankara,
+Sutra of Vyāsa — अन्तरा चापि तु तद्दृष्टेः[4](#fn4) by Shankara,
 Ramanuja, and Madhva.
 
 Go through all the Upanishads, and even in the Samhitas, nowhere you
@@ -351,12 +351,12 @@ to toleration, it is everywhere, even in the Samhita of the Adhvaryu
 Veda, in the third or fourth verse of the fortieth chapter, if my memory
 does not fail; it begins with न बुध्दिभेदं जनयेदज्ञानां
 कर्मसंगिनाम्।[5](#fn5) This is running through everywhere. Was anybody
-persecuted in India for choosing his Ishta Devatâ, or becoming an
+persecuted in India for choosing his Ishta Devatā, or becoming an
 atheist or agnostic even, so long as he obeyed the social regulations?
 Society may punish anybody by its disapprobation for breaking any of its
 regulations, but no man, the lowest Patita (fallen), is ever shut out
 from Moksha. You must not mix up the two together. As to that, in
-Malabar a Chandâla is not allowed to pass through the same street as a
+Malabar a Chandāla is not allowed to pass through the same street as a
 high-caste man, but let him become a Mohammedan or Christian, he will be
 immediately allowed to go anywhere; and this rule has prevailed in the
 dominion of a Hindu sovereign for centuries. It may be queer, but it
@@ -371,9 +371,9 @@ to become God."
 
 And here comes as a necessary consequence the broadest and most glorious
 idea of inspiration — not only as asserted and declared by the Rishis of
-the Vedas, not only by Vidura and Dharmavyâdha and a number of others,
-but even the other day Nischaladâsa, a Tyagi of the Dâdu panthi sect,
-boldly declared in his *Vichâra-Sâgara*: "He who has known Brahman has
+the Vedas, not only by Vidura and Dharmavyādha and a number of others,
+but even the other day Nischaladāsa, a Tyagi of the Dādu panthi sect,
+boldly declared in his *Vichāra-Sāgara*: "He who has known Brahman has
 become Brahman. His words are Vedas, and they will dispel the darkness
 of ignorance, either expressed in Sanskrit or any popular dialect."
 
@@ -493,7 +493,7 @@ amount of justice, the Hindu will be found head and shoulders above all
 other nations in the world as a moral race.
 
 In India religion was never shackled. No man was ever challenged in the
-selection of his Ishta Devatâ, or his sect, or his preceptor, and
+selection of his Ishta Devatā, or his sect, or his preceptor, and
 religion grew, as it grew nowhere else. On the other hand, a fixed point
 was necessary to allow this infinite variation to religion, and society
 was chosen as that point in India. As a result, society became rigid and
@@ -583,7 +583,7 @@ ties with the church and are drifting about in a sea of unrest, the
 religions which have drunk the water of life at that fountain of light,
 the Vedas — Hinduism and Buddhism — alone are reviving?
 
-The restless Western atheist or agnostic finds in the Gitâ or in the
+The restless Western atheist or agnostic finds in the Gitā or in the
 *Dhammapada* the only place where his soul can anchor.
 
 The tables have been turned, and the Hindu, who saw through tears of
@@ -671,7 +671,7 @@ of the Devas. Matter can never be your God; body can never be your God.
 
 India will be raised, not with the power of the flesh, but with the
 power of the spirit; not with the flag of destruction, but with the flag
-of peace and love, the garb of the Sannyâsin; not by the power of
+of peace and love, the garb of the Sannyāsin; not by the power of
 wealth, but by the power of the begging bowl. Say not that you are weak.
 The spirit is omnipotent. Look at that handful of young men called into
 existence by the divine touch of Ramakrishna's feet. They have preached
@@ -720,7 +720,7 @@ VIVEKANANDA.
     to entitle him to one or other of the Ashramas, stages of life) and
     thus stands between, as it were, is qualified for the knowledge of
     Brahman; for we meet scriptural passages declaring that persons of
-    such a class possessed the knowledge of Brahman. Vide Chhând.
+    such a class possessed the knowledge of Brahman. Vide Chhānd.
     Upa. IV. i; Bri. Upa. III. vi. & viii.
 5.  [^](#txt5)"(The wise one) should not unsettle the understanding of
     the ignorant, attached to action." The line also occurs in the Gita

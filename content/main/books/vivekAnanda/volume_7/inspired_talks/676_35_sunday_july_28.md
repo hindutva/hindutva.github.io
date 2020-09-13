@@ -13,8 +13,8 @@ title: 'RECORDED BY MISS S. E. WALDO
 ## RECORDED BY MISS S. E. WALDO (A DISCIPLE)
 
 SUNDAY, *July 28, 1895*. (*Avadhuta Gita or "Song of the Purified" by
-Dattâtreya* (Dattatreya, the son of Atri and Anasuyâ, was an incarnation
-of Brahmâ, Vishnu and Shiva.))
+Dattātreya* (Dattatreya, the son of Atri and Anasuyā, was an incarnation
+of Brahmā, Vishnu and Shiva.))
 
 "All knowledge depends upon calmness of mind."
 

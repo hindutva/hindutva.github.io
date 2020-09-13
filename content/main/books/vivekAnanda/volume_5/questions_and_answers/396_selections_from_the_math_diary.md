@@ -45,8 +45,8 @@ developed.
 *Q*. — What should be our attitude to the Vedas?
 
 *A*. — The Vedas, i.e. only those portions of them which agree with
-reason, are to be accepted as authority. Other Shâstras, such as the
-Purânas etc., are only to be accepted so far as they do not go against
+reason, are to be accepted as authority. Other Shāstras, such as the
+Purānas etc., are only to be accepted so far as they do not go against
 the Vedas. All the religious thoughts that have come subsequent to the
 Vedas, in the world, in whatever part of it have been derived from the
 Vedas.
@@ -55,7 +55,7 @@ Vedas.
 calculation?
 
 *A*. — There is no mention of such divisions in the Vedas. They are
-arbitrary assumptions of Paurânika times.
+arbitrary assumptions of Paurānika times.
 
 *Q*. — Is the relation between concepts and words necessary and
 immutable, or accidental and conventional?
@@ -76,7 +76,7 @@ personal ideal, however great.
 Then Swamiji went on to speak of the corruptions of some of the Hindu
 symbols. He distinguished between the path of knowledge and the path of
 devotion. The former belonged properly to the Aryas, and therefore was
-so strict in the selection of Adhikâris (qualified aspirants), and the
+so strict in the selection of Adhikāris (qualified aspirants), and the
 latter coming from the South, or non-Aryan sources, made no such
 distinction.
 
@@ -125,7 +125,7 @@ barbarous customs in the name of religion. They went, to preach in those
 places and assimilated their corruptions, and then introduced them into
 India.
 
-*Q*. — Is Mâyâ without beginning and end?
+*Q*. — Is Māyā without beginning and end?
 
 *A*. — Maya is eternal both ways, taken universally, as genus; but it is
 non-eternal individually.
@@ -165,7 +165,7 @@ body etc.?
 body, mind etc. The only proof of the existence of the real Self is
 realisation.
 
-*Q*. — Who is a true Jnâni, and who is a true Bhakta?
+*Q*. — Who is a true Jnāni, and who is a true Bhakta?
 
 *A*. — The true Jnani is he who has the deepest love within his heart
 and at the same time is a practical seer of Advaita in his outward
@@ -183,13 +183,13 @@ according to all the scriptural authorities, remembrance (Smarana). If
 you believe in the existence of God, you will be reminded of Him at
 every step of your life.
 
-*Q*. — Is Mâyâvâda different from Advaitâvada?
+*Q*. — Is Māyāvāda different from Advaitāvada?
 
 *A*. — No. They are identical. There is absolutely no other explanation
 of Advaitavada except Mayavada.
 
 *Q*. — How is it possible for God who is infinite to be limited in the
-form of a man (as an Avatâra)?
+form of a man (as an Avatāra)?
 
 *A*. — It is true that God is infinite, but not in the sense in which
 you comprehend it. You have confounded your idea of infinity with the

@@ -115,7 +115,7 @@ Mahashaya.
 Swamiji: How can ordinary people appreciate a great man like him? Those
 who had his company are blessed indeed.
 
-Disciple: What did you see at Kâmâkhyâ?
+Disciple: What did you see at Kāmākhyā?
 
 Swamiji: The Shillong hills are very beautiful. There I met Sir Henry
 Cotton, the Chief Commissioner of Assam. He asked me, "Swamiji, after
@@ -131,7 +131,7 @@ Disciple: What did you find the religious ideas of that part to be?
 Swamiji: It is the land of the Tantras. I heard of one "Hankar Deva" who
 is worshipped there as an Avatara. I heard his sect is very wide-spread.
 I could not ascertain if "Hankar Deva" was but another form of the name
-Shankaracharya. They are monks — perhaps Tântrika Sannyasins, or perhaps
+Shankaracharya. They are monks — perhaps Tāntrika Sannyasins, or perhaps
 one of the Shankara sects.
 
 Disciple: The people of East Bengal have not been able to appreciate you
@@ -199,7 +199,7 @@ earnest over this realisation and set your heart on it. Well, you have
 read enough of scriptures. But tell me, of what avail has it been? Some
 perhaps thinking of money have become millionaires, whereas you have
 become a Pundit by thinking of scriptures. But both are bondages. Attain
-the supreme knowledge and go beyond Vidyâ and Avidyâ, relative knowledge
+the supreme knowledge and go beyond Vidyā and Avidyā, relative knowledge
 and ignorance.
 
 Disciple: Sir, through your grace I understand it all, but my past Karma
@@ -226,7 +226,7 @@ Swamiji: What fear? If there is sincerity of spirit, I tell you, for a
 certainty, you will attain it in this very life. But manly endeavour is
 wanted. Do you know what it is? "I shall certainly attain
 Self-knowledge. Whatever obstacles may come, I shall certainly overcome
-them" — a firm determination like this is Purushakâra. "Whether my
+them" — a firm determination like this is Purushakāra. "Whether my
 mother, father, friends, brothers, wife, and children live or die,
 whether this body remains or goes, I shall never turn back till I attain
 to the vision of the Atman" — this resolute endeavour to advance towards

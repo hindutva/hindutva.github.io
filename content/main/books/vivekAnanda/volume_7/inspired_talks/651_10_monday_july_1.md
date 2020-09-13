@@ -26,13 +26,13 @@ temples as dwelling places for God.
 
 Owing to the extreme poverty of his family, Shri Ramakrishna was obliged
 to become in his boyhood a priest in a temple dedicated to the Divine
-Mother, also called Prakriti, or Kâli, represented by a female figure
+Mother, also called Prakriti, or Kāli, represented by a female figure
 standing with feet on a male figure, indicating that until Maya lifts,
 we can know nothing. Brahman is neuter, unknown and unknowable, but to
 be objectified He covers Himself with a veil of Maya, becomes the Mother
 of the Universe, and so brings forth the creation. The prostrate figure
 (Shiva or God) has become Shava (dead or lifeless) by being covered by
-Maya. The Jnâni says, "I will uncover God by force" (Advaitism); but the
+Maya. The Jnāni says, "I will uncover God by force" (Advaitism); but the
 dualist says, "I will uncover God by praying to Mother, begging Her to
 open the door to which She alone has the key."
 

@@ -85,7 +85,7 @@ surpassed even in this century. There, too, we find women preeminent. A
 large portion of these books are words which have proceeded from the
 mouths of women. It is there — recorded with their names and teachings.
 
-There is that beautiful story of the great sage Yâjnavalkya, the one who
+There is that beautiful story of the great sage Yājnavalkya, the one who
 visited the kingdom of the great king Janaka. And there in that assembly
 of the learned, people came to ask him questions. One man asked him,
 "How am I to perform this sacrifice?" Another asked him, "How am I to
@@ -93,7 +93,7 @@ perform the other sacrifice?" And after he had answered them, there
 arose a woman who said, "These are childish questions. Now, have a care:
 I take these two arrows, my two questions. Answer them if you can, and
 we will then call you a sage. The first is: What is the soul? The second
-is: What is God?" ( Brihadâranyaka Upanishad 3.8.1.-12.)
+is: What is God?" ( Brihadāranyaka Upanishad 3.8.1.-12.)
 
 Thus arose in India the great questions about the soul and God, and
 these came from the mouth of a woman. The sage had to pass an
@@ -162,14 +162,14 @@ liking for somebody before this.) Then at last she would ask one of the
 servants to throw the garland over the head of the man, and it would be
 thrown to show he was accepted. (The last of these marriages was the
 cause of the Mohammedan invasion of India.) (*Vide* [later this
-chapter](#story) for the story of Samjuktâ, daughter of a Rajput prince,
+chapter](#story) for the story of Samjuktā, daughter of a Rajput prince,
 who became the Queen of Delhi.) These marriages were specially reserved
 for the prince caste.
 
-The oldest Sanskrit poem in existence, the Râmâyana, has embodied the
-loftiest Hindu ideal of a woman in the character of Sitâ. We have not
+The oldest Sanskrit poem in existence, the Rāmāyana, has embodied the
+loftiest Hindu ideal of a woman in the character of Sitā. We have not
 time to go through her life of infinite patience and goodness. We
-worship her as God incarnate, and she is named before her husband, Râma.
+worship her as God incarnate, and she is named before her husband, Rāma.
 We say not "Mr. and Mrs.", but "Mrs. and Mr." and so on, with all the
 gods and goddesses, naming the woman first.
 
@@ -301,7 +301,7 @@ A Rajput prince of Kanauj — a very ancient city — had a daughter
 \[Samjukta\]. She had heard of the military fame of Prithvi Raj \[King
 of Ajmere and Delhi\] and all his glory, and she was in love with him.
 
-Now her father wanted to hold a Râjasuya sacrifice, so he invited all
+Now her father wanted to hold a Rājasuya sacrifice, so he invited all
 the kings in the country. And in that sacrifice, they all had to render
 menial service to him because he was superior over all; and with that
 sacrifice he declared there would be a choice by his daughter.
@@ -321,7 +321,7 @@ was a great battle in which the majority of both armies was killed. And
 India began.
 
 When the Mohammedan empire was being established in northern India, the
-Queen of Chitore \[Râni Padmini\] was famed for her beauty. And the
+Queen of Chitore \[Rāni Padmini\] was famed for her beauty. And the
 report of her beauty reached the sultan, and he wrote a letter for the
 queen to be sent to his harem. The result was a terrible war between the
 King of Chitore and the sultan. The Mohammedans invaded Chitore. And
@@ -649,13 +649,13 @@ together".
 1.  [^](#fn1_1)Since Swami Vivekananda's time there has been more
     research on the spread of the Aryan culture.
 2.  [^](#fn2_1)Note: The text of this sentence is not found in the
-    extant Manu Samhitâ. Vide Mahânirvâna Tantra 8.47.
+    extant Manu Samhitā. Vide Mahānirvāna Tantra 8.47.
 3.  [^](#fn3_1)Since Swami Vivekananda's time, higher education among
     women in India has spread rapidly.
 4.  [^](#fn4_1)Today Indian women are no longer barred from reading any
     scriptures — Vedic or non-Vedic.  
-5.  [^](#fn5_1)Chârumati, or Rupamati, daughter of Vikram Singh, King of
-    Kishangarh, in Rajasthan. Charumati is the heroine of Râjasimha, a
+5.  [^](#fn5_1)Chārumati, or Rupamati, daughter of Vikram Singh, King of
+    Kishangarh, in Rajasthan. Charumati is the heroine of Rājasimha, a
     Bengali historical novel written by Bankim Chandra Chatterjee.
 6.  [^](#fn6_1)The soldiers were so impressed with Chand Bibi's military
     prowess and courage that they referred to her as Chand Sultana,

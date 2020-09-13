@@ -71,7 +71,7 @@ have taken up a word sometimes and written a three-volume book on its
 origin, on the man who used it first, and on what that man was
 accustomed to eat, and how long he slept, and so on.
 
-Bhagavân Ramakrishna used to tell a story of some men who went into a
+Bhagavān Ramakrishna used to tell a story of some men who went into a
 mango orchard and busied themselves in counting the leaves, the twigs,
 and the branches, examining their colour, comparing their size, and
 noting down everything most carefully, and then got up a learned
@@ -84,12 +84,12 @@ but not here in the spiritual domain. You never see a strong spiritual
 man among these "leaf counters". Religion, the highest aim, the highest
 glory of man, does not require so much labour. If you want to be a
 Bhakta, it is not at all necessary for you to know whether Krishna was
-born in Mathurâ or in Vraja, what he was doing, or just the exact date
-on which he pronounced the teachings of the Gitâ. You only require to
+born in Mathurā or in Vraja, what he was doing, or just the exact date
+on which he pronounced the teachings of the Gitā. You only require to
 *feel* the craving for the beautiful lessons of duty and love in the
 Gita. All the other particulars about it and its author are for the
-enjoyment of the learned. Let them have what they desire. Say "Shântih,
-Shântih" to their learned controversies, and let *us* "eat the mangoes".
+enjoyment of the learned. Let them have what they desire. Say "Shāntih,
+Shāntih" to their learned controversies, and let *us* "eat the mangoes".
 
 The second condition necessary in the teacher is — sinlessness. The
 question is often asked, "Why should we look into the character and

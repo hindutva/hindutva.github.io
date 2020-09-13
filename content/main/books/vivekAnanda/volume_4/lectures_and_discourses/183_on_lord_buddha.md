@@ -14,7 +14,7 @@ title: ON LORD BUDDHA
 
 In every religion we find one type of self-devotion particularly
 developed. The type of working without a motive is most highly developed
-in Buddhism. Do not mistake Buddhism and Brâhminism. In this country you
+in Buddhism. Do not mistake Buddhism and Brāhminism. In this country you
 are very apt to do so. Buddhism is one of our sects. It was founded by a
 great man called Gautama, who became disgusted at the eternal
 metaphysical discussions of his day, and the cumbrous rituals, and more
@@ -24,7 +24,7 @@ born. He was also against the tremendous priestcraft. He preached a
 religion in which there was no motive power, and was perfectly agnostic
 about metaphysics or theories about God. He was often asked if there was
 a God, and he answered, he did not know. When asked about right conduct,
-he would reply, "Do good and be good." There came five Brâhmins, who
+he would reply, "Do good and be good." There came five Brāhmins, who
 asked him to settle their discussion. One said, "Sir, my book says that
 God is such and such, and that this is the way to come to God." Another
 said, "That is wrong, for my book says such and such, and this is the
@@ -65,7 +65,7 @@ temple, and is a confessed materialist, even he can attain to the
 highest. We have no right to judge him. I wish I had one infinitesimal
 part of Buddha's heart. Buddha may or may not have believed in God; that
 does not matter to me. He reached the same state of perfection to which
-others come by Bhakti — love of God — Yoga, or Jnâna. Perfection does
+others come by Bhakti — love of God — Yoga, or Jnāna. Perfection does
 not come from belief or faith. Talk does not count for anything. Parrots
 can do that. Perfection comes through the disinterested performance of
 action.

@@ -12,7 +12,7 @@ Reports](american_newspaper_contents.htm) /
 
 
 
-*\[Swami Vivekananda's partial translation of the "Nirvânashatkam" by
+*\[Swami Vivekananda's partial translation of the "Nirvānashatkam" by
 Shankara, recited at Greenacre, Maine, and reported in an 1894 issue of
 the* Greenacre Voice*\]*
 

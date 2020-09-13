@@ -20,7 +20,7 @@ BENARES (VARANASI) CANTONMENT,
   
 Welcome to India once more, dear mother (Mrs. Ole Bull) and daughter. A
 copy of a Madras journal that I received through the kindness of Joe
-delighted me exceedingly, as the reception Niveditâ had in Madras was
+delighted me exceedingly, as the reception Niveditā had in Madras was
 for the good of both Nivedita and Madras. Her speech was indeed
 beautiful.
 

@@ -17,9 +17,9 @@ I
 
 \[Place: *Belur, the rented Math premises*. Year: *1898*.\]
 
-Swamiji was staying at the time at the rented garden-house of Nilâmbar
-Bâbu where the Math had been removed from Alambazar. Arrangements had
-been made for Shri Ramakrishna's Tithipujâ (Nativity) on a grand scale.
+Swamiji was staying at the time at the rented garden-house of Nilāmbar
+Bābu where the Math had been removed from Alambazar. Arrangements had
+been made for Shri Ramakrishna's Tithipujā (Nativity) on a grand scale.
 On the morning of the auspicious day, Swamiji personally inspected the
 preliminaries of the worship. The inspection over, Swamiji asked the
 disciple, "Well, you have brought the holy threads, I hope?"
@@ -27,7 +27,7 @@ disciple, "Well, you have brought the holy threads, I hope?"
 Disciple: Yes, sir, I have. Everything is ready, as you desired. But,
 sir, I can't make out why so many holy threads are in requisition.
 
-Swamiji: Every Dwijâti (Brâhmins, Kshatriyas, and Vaishyas are the
+Swamiji: Every Dwijāti (Brāhmins, Kshatriyas, and Vaishyas are the
 Dwijatis) (twice-born) has a right to investiture with the holy thread.
 The Vedas themselves are authority in this matter. Whoever will come
 here on this sacred birthday of Shri Ramakrishna I shall invest him with
@@ -43,7 +43,7 @@ according to your instructions, and after the worship I shall with your
 permission invest the Bhaktas with them.
 
 Swamiji: To the Bhaktas who are not Brahmins, give this Mantra of
-Gâyatri (here Swamiji communicated to the disciple the special Gayatris
+Gāyatri (here Swamiji communicated to the disciple the special Gayatris
 for them.) By degrees all the people of the land have to be lifted to
 the position of Brahmins, not to speak of the Bhaktas of Shri
 Ramakrishna. Each Hindu, I say, is a brother of every other, and it is
@@ -57,7 +57,7 @@ understand?
 Disciple: Yes, sir, it should be so.
 
 Swamiji: Now, ask those who will take the holy thread to finish their
-bath in the Gangâ. Than after prostration before Shri Ramakrishna, they
+bath in the Gangā. Than after prostration before Shri Ramakrishna, they
 will have their investiture.
 
 About forty to fifty Bhaktas then duly received the Gayatri from the
@@ -69,10 +69,10 @@ Now arrangements for music were made at the desire of Swamiji, and
 Sannyasins of the Math decorated Swamiji as a Yogin.
 
 Swamiji now chanted with the sweetest intonation to the accompaniment of
-the Tânpurâ, the Sanskrit hymn beginning with — कुजन्तं
+the Tānpurā, the Sanskrit hymn beginning with — कुजन्तं
 रामरामेति ("repeating in a low tone the name of Rama" etc.), and when
 the chanting came to a close, he went on repeating with exquisite charm
-the holy words "Râma, Râma, Shri Râma, Râma". His eyes were half-closed,
+the holy words "Rāma, Rāma, Shri Rāma, Rāma". His eyes were half-closed,
 and the natural sublimity of his countenance seemed to have deepened a
 hundred-fold. Everybody remained spelled for over half an hour.
 
@@ -84,11 +84,11 @@ After this, Swamiji suddenly took to putting of all the decorations he
 had on his person and began to dress Girish Babu with them. Then he
 declared, "Paramhansa-deva used to say our brother is the incarnation of
 Bhairava (Divine companion of Shiva.). There's no distinction between
-him and us." Girish Babu sat speechless all the time. A piece of *geruâ*
+him and us." Girish Babu sat speechless all the time. A piece of *geruā*
 cloth was also brought, and was draped in it and uttered no word of
 remonstrance. For he had merged his self fully today in the wishes of
 his brother disciples. Swamiji now said, "Well, G. C., you are to speak
-to us today about Thâkur (Lord). And all of you (turning all round
+to us today about Thākur (Lord). And all of you (turning all round
 himself) sit quiet and attentive." Even then, Girish Babu sat
 motionless, voiceless like marble, absolutely lost in joy. And when at
 last he opened his lips, he did so to say, "Ah, what can this humble
@@ -109,7 +109,7 @@ you lost your status. From this day again you become the twice-born.
 Repeat the Gayatri at least a hundred times daily, won't you?" The
 householder expressed his assent.
 
-Meanwhile Srijut Mahendranath Gupta (Master Mahâshaya \[Venerable\], or
+Meanwhile Srijut Mahendranath Gupta (Master Mahāshaya \[Venerable\], or
 "M") appeared on the scene. Swamiji cordially received him and made him
 take his seat. "Master Mahashaya," said Swamiji, "this is the
 anniversary of Shri Ramakrishna's birthday. So you shall have to relate
@@ -117,7 +117,7 @@ to us something about him." Master Mahashaya bent his head down
 smilingly in reply.
 
 Just then it was announced that Swami Akhandananda had come from
-Murshidabad with two Pântuâs[1](#fn1) which weighed one maund and a
+Murshidabad with two Pāntuās[1](#fn1) which weighed one maund and a
 half! All of us hurried out to see these prodigious Pantuas. When they
 were shown to Swamiji, he said, "Take them up to the chapel for
 offering."
@@ -131,7 +131,7 @@ Disciple: Sir, that power must have come to him as the result of a good
 deal of austerities.
 
 Swamiji: True, power comes of austerities; but again, working for the
-sake of others itself constitutes Tapasyâ (practice of austerity). The
+sake of others itself constitutes Tapasyā (practice of austerity). The
 karma-yogins regard work itself as part of Tapasya. As on the one hand
 the practice of Tapasya intensifies altruistic feelings in the devotee
 and actuates him to unselfish work, so also the pursuit of work for the
@@ -181,7 +181,7 @@ all beings and all things. Thus it is that doing good to others
 constitutes a way, a means of revealing one's own Self or Âtman. Know
 this also to be one of the spiritual practices, a discipline for
 God-realisation. Its aim also is Self-realisation. Exactly as that aim
-is attained by Jnâna (knowledge), Bhakti (devotion) and so on, also by
+is attained by Jnāna (knowledge), Bhakti (devotion) and so on, also by
 work for the sake of others.
 
 Disciple: But, sir, if I am to keep thinking of others day and night,
@@ -201,14 +201,14 @@ Disciple: Though that is not the meaning, yet what the scriptures speak
 of as the withdrawal of the Self into Its real nature consists in the
 arresting of all mind-functions and all work.
 
-Swamiji: Yes, this Samâdhi of which the scriptures speak is a state not
+Swamiji: Yes, this Samādhi of which the scriptures speak is a state not
 at all easy to attain. When very rarely it appears in somebody, it does
 not last for long; so what will he keep himself occupied with? Thus it
 is that after realising that state described in the scriptures, the
 saint sees the Self in all beings and in that consciousness devotes
 himself to service, so that any Karma that was yet left to be worked out
 through the body may exhaust itself. It is this state which has been
-described by the authors of the Shâstras (scriptures) as Jivanmukti,
+described by the authors of the Shāstras (scriptures) as Jivanmukti,
 "Freedom while living".
 
 Disciple: So after all it comes about, sir, that unless this state of

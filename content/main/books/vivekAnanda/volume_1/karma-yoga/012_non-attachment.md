@@ -128,7 +128,7 @@ happy except himself. Every act of charity, every thought of sympathy,
 every action of help, every good deed, is taking so much of
 self-importance away from our little selves and making us think of
 ourselves as the lowest and the least, and, therefore, it is all good.
-Here we find that Jnâna, Bhakti, and Karma — all come to one point. The
+Here we find that Jnāna, Bhakti, and Karma — all come to one point. The
 highest ideal is eternal and entire self-abnegation, where there is no
 "I," but all is "Thou"; and whether he is conscious or unconscious of
 it, Karma-Yoga leads man to that end. A religious preacher may become
@@ -304,7 +304,7 @@ happy nor unhappy when acted upon by the external world? The sign is
 that good or ill fortune causes no change in his mind: in all conditions
 he continues to remain the same.
 
-There was a great sage in India called Vyâsa. This Vyâsa is known as the
+There was a great sage in India called Vyāsa. This Vyāsa is known as the
 author of the Vedanta aphorisms, and was a holy man. His father had
 tried to become a very perfect man and had failed. His grandfather had
 also tried and failed. His great-grandfather had similarly tried and

@@ -102,7 +102,7 @@ continuously practising the gift of food, the Brahmacharins will have
 the idea of practical work for the sake of others and that of serving
 all beings in the spirit of the Lord firmly impressed on their minds.
 This will gradually purify their minds and lead to the manifestation of
-Sâttvika (pure and unselfish) ideas. And having this the Brahmacharins
+Sāttvika (pure and unselfish) ideas. And having this the Brahmacharins
 will in time acquire the fitness for attaining the knowledge of Brahman
 and become eligible for Sannyasa.
 
@@ -146,7 +146,7 @@ passionate longing to go beyond all selfish desires, then these good
 works will help to break your bonds, I tell you. How thoughtless of you
 to say that such work will lead to bondage! Such disinterested work is
 the only means of rooting out the bondage due to selfish work. "नान्यः
-पन्था विद्यतेऽयनाय — There is no other way out" (Shvetâsvatara
+पन्था विद्यतेऽयनाय — There is no other way out" (Shvetāsvatara
 Upanishad, III. 8).
 
 Disciple: Your words encourage me to hear in detail about your ideas of
@@ -156,7 +156,7 @@ Swamiji: We must build small well-ventilated rooms for the poor. Only
 two or three of them will live in each room. They must be given good
 bedding, clean clothes, and so on. There will be a doctor for them, who
 will inspect them once or twice a week according to his convenience. The
-Sevâshrama (Home of Service) will be as a ward attached to the
+Sevāshrama (Home of Service) will be as a ward attached to the
 Annasatra, where the sick will be nursed. Then, gradually, as funds will
 accumulate, we shall build a big kitchen. The Annasatra must be astir
 with constant shouts of food demanded and supplied. The rice-gruel must
@@ -182,7 +182,7 @@ Swamiji continued: "If the Lord wills, we shall make this Math a great
 centre of harmony. Our Lord is the visible embodiment of the harmony of
 all ideals. He will be established on earth if we keep alive that spirit
 of harmony here. We must see to it that people of all creeds and sects,
-from the Brâhmana down to the Chandâla, may come here and find their
+from the Brāhmana down to the Chandāla, may come here and find their
 respective ideals manifested. The other day when I installed Shri
 Ramakrishna on the Math grounds, I felt as if his ideas shot forth from
 this place and flooded the whole universe, sentient and insentient. I,

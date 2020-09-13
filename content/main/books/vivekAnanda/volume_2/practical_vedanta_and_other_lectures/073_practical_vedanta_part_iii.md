@@ -14,15 +14,15 @@ PART III
 
 (*Delivered in London, 17th November 1896*)
 
-In the Chhâdogya Upanishad we read that a sage called Nârada came to
-another called Sanatkumâra, and asked him various questions, of which
+In the Chhādogya Upanishad we read that a sage called Nārada came to
+another called Sanatkumāra, and asked him various questions, of which
 one was, if religion was the cause of things as they are. And
 Sanatkumara leads him, as it were, step by step, telling him that there
 is something higher than this earth, and something higher than that, and
-so on, till he comes to Âkâsha, ether. Ether is higher than light,
+so on, till he comes to Âkāsha, ether. Ether is higher than light,
 because in the ether are the sun and the moon, lightning and the stars;
 in ether we live, and in ether we die. Then the question arises, if
-there is anything higher than that, and Sanatkumara tells him of Prâna.
+there is anything higher than that, and Sanatkumara tells him of Prāna.
 This Prana, according to the Vedanta, is the principle of life. It is
 like ether, an omnipresent principle; and all motion, either in the body
 or anywhere else, is the work of this Prana. It is greater than Akasha,

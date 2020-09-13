@@ -112,7 +112,7 @@ God, may not ask what his soul is, nor think of any metaphysical
 speculation. He has got his own special aim of realising selflessness;
 and he has to work it out himself. Every moment of his life must be
 realisation, because he has to solve by mere work, without the help of
-doctrine or theory, the very same problem to which the Jnâni applies his
+doctrine or theory, the very same problem to which the Jnāni applies his
 reason and inspiration and the Bhakta his love.
 
 Now comes the next question: What is this work? What is this doing good

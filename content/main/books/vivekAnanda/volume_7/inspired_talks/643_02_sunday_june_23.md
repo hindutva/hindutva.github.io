@@ -22,13 +22,13 @@ all.
 
 One-sidedness is the bane of the world. The more sides you can develop
 the more souls you have, and you can see the universe through all souls
-— through the Bhakta (devotee) and the Jnâni (philosopher). Determine
-your own nature and stick to it. Nishthâ (devotion to one ideal) is the
+— through the Bhakta (devotee) and the Jnāni (philosopher). Determine
+your own nature and stick to it. Nishthā (devotion to one ideal) is the
 only method for the beginner; but with devotion and sincerity it will
 lead to all. Churches, doctrines, forms, are the hedges to protect the
 tender plant, but they must later be broken down that the plant may
 become a tree. So the various religions, Bibles, Vedas, dogmas — all are
-just tubs for the little plant; but it must get out of the tub. Nishthâ
+just tubs for the little plant; but it must get out of the tub. Nishthā
 is, in a manner, placing the plant in the tub, shielding the struggling
 soul in its path. . . .
 

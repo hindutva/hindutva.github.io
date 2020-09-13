@@ -13,7 +13,7 @@ title: THE EDUCATION THAT INDIA NEEDS
 
 ## THE EDUCATION THAT INDIA NEEDS
 
-(Written to Shrimati Saralâ Ghosal, B.A., Editor, *Bhârati*, from
+(Written to Shrimati Saralā Ghosal, B.A., Editor, *Bhārati*, from
 Darjeeling, 24th April, 1897. (Translated from
 [Bengali](b7332e4trans_prose_edu.pdf) .)
 
@@ -37,7 +37,7 @@ Western countries, the people do everything themselves.
 The king now has nothing to say in any social matter; on the other hand,
 the Indian people have not yet even the least faith in themselves, what
 to say of self-reliance. The faith in one's own Self, which is the basis
-of Vedânta, has not yet been even slightly carried into practice. It is
+of Vedānta, has not yet been even slightly carried into practice. It is
 for this reason that the Western method — i.e. first of all, discussion
 about the wished-for end, then the carrying it out by the combination of
 all the forces — is of no avail even now in this country: it is for this
@@ -104,8 +104,8 @@ goal is reached" (Katha Upanishad, I. ii. 4.)
 
 Likewise the education that our boys receive is very negative. The
 schoolboy learns nothing, but has everything of his own broken down —
-want of Shraddhâ is the result. The Shraddha which is the keynote of the
-Veda and the Vedanta — the Shraddha which emboldened Nachiketâ to face
+want of Shraddhā is the result. The Shraddha which is the keynote of the
+Veda and the Vedanta — the Shraddha which emboldened Nachiketā to face
 Yama and question him, through which Shraddha this world moves the
 annihilation of that Shraddha! अज्ञश्चाश्रद्दधानश्च संशयात्मा विनश्यति —
 "The ignorant, the man devoid of Shraddha, the doubting self runs to
@@ -118,13 +118,13 @@ ordinary material prosperity? Certainly it can. Freedom, dispassion,
 renunciation all these are the very highest ideals, but स्वल्पमप्यस्य
 धर्मस्य त्रायते महतो भयात् — "Even a little of this Dharma saves one
 from the great fear (of birth and death)." Dualist, qualified-monist,
-monist, Shaiva, Vaishnava, Shâkta, even the Buddhist and the Jain and
+monist, Shaiva, Vaishnava, Shākta, even the Buddhist and the Jain and
 others — whatever sects have arisen in India —  are all at one in this
 respect that infinite power is latent in this Jivatman (individualised
 soul); from the ant to the perfect man there is the same Âtman in all,
 the difference being only in manifestation. "As a farmer breaks the
 obstacles (to the course of water)" (Patanjali's Yoga-Sutra,
-Kaivalsapâda, 3). That power manifests as soon as it gets the
+Kaivalsapāda, 3). That power manifests as soon as it gets the
 opportunity and the right place and time. From the highest god to the
 meanest grass, the same power is present in all — whether manifested or
 not. We shall have to call forth that power by going from door to door.
@@ -159,14 +159,14 @@ In the West, women rule; all influence and power are theirs. If bold and
 talented women like yourself versed in Vedanta, go to England to preach,
 I am sure that every year hundreds of men and women will become blessed
 by adopting the religion of the land of Bharata. The only woman who went
-over from our country was Ramâbâai; her knowledge of English, Western
+over from our country was Ramābāai; her knowledge of English, Western
 science and art was limited; still she surprised all. If anyone like you
 goes, England will be stirred, what to speak of America! If an Indian
 woman in Indian dress preach there the religion which fell from the lips
 of the Rishis of India — I see a prophetic vision — there will rise a
 great wave which will inundate the whole Western world. Will there be no
-women in the land of Maitreyi, Khanâ, Lilâvati, Sâvitri, and
-Ubhayabhârati, who will venture to do this? The Lord knows. England we
+women in the land of Maitreyi, Khanā, Lilāvati, Sāvitri, and
+Ubhayabhārati, who will venture to do this? The Lord knows. England we
 shall conquer, England we shall possess, through the power of
 spirituality. नान्यः पन्था विद्यतेऽयनाय — "There is no other way of
 salvation." Can salvation ever come by getting up meetings and
@@ -191,7 +191,7 @@ vegetarian; but if he was given meat offered to the Goddess, he used to
 hold it up to his head. The taking of life is undoubtedly sinful; but so
 long as vegetable food is not made suitable to the human system through
 progress in chemistry, there is no other alternative but meat-eating. So
-long as man shall have to live a Râjasika (active) life under
+long as man shall have to live a Rājasika (active) life under
 circumstances like the present, there is no other way except through
 meat-eating. It is true that the Emperor Asoka saved the lives of
 millions of animals by the threat of the sword; but is not the slavery

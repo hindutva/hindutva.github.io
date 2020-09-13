@@ -14,7 +14,7 @@ title: 'RECORDED BY MISS S. E. WALDO
 
 TUESDAY, *July 2, 1895*. (*The Divine Mother*.)
 
-Shâktas worship the Universal Energy as Mother, the sweetest name they
+Shāktas worship the Universal Energy as Mother, the sweetest name they
 know; for the mother is the highest ideal of womanhood in India. When
 God is worshipped as "Mother", as Love, the Hindus call it the
 "right-handed" way, and it leads to spirituality but never to material
@@ -37,7 +37,7 @@ saw and knew Her). Established in the idea of Mother, we can do
 anything. She quickly answers prayer.
 
 She can show; Herself to us in any form at any moment. Divine Mother can
-have form (Rupa) and name (Nâma) or name without form; and as we worship
+have form (Rupa) and name (Nāma) or name without form; and as we worship
 Her in these various aspects we can rise to pure Being, having neither
 form nor name.
 
@@ -48,7 +48,7 @@ Mother. She is time, space, and causation. God is Mother and has two
 natures, the conditioned and the unconditioned. As the former, She is
 God, nature, and soul (man). As the latter, She is unknown and
 unknowable. Out of the Unconditioned came the trinity — God, nature, and
-soul, the triangle of existence. This is the Vishishtâdvaitist idea.
+soul, the triangle of existence. This is the Vishishtādvaitist idea.
 
 A bit of Mother, a drop, was Krishna, another was Buddha, another was
 Christ. The worship of even one spark of Mother in our earthly mother

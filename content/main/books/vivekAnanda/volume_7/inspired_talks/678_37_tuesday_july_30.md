@@ -28,7 +28,7 @@ are that very God of gods, there will never be any freedom for you.
 All our past actions are really good, because they lead us to what we
 ultimately become. Of whom to beg? I am the real existence, and all else
 is a dream save as it is I. I am the whole ocean; do not call the little
-wave you have made "I"; know it for nothing but a wave. Satya kâma
+wave you have made "I"; know it for nothing but a wave. Satya kāma
 (lover of truth) heard the inner voice telling him, "You are the
 infinite, the universal is in you. Control yourself and listen to the
 voice of your true Self."

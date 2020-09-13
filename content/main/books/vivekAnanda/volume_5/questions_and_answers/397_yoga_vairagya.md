@@ -23,7 +23,7 @@ milk are the best food for Yogis.
 *A*. — The first step in Vairagya is very painful. When perfected, it
 yields supreme bliss.
 
-*Q*. — What is Tapasyâ?
+*Q*. — What is Tapasyā?
 
 *A*. — Tapasya is threefold — of the body, of speech and of mind. The
 first is service of others; the second truthfulness; and third, control

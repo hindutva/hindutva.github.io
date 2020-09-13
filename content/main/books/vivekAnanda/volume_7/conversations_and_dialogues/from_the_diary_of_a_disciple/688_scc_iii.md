@@ -30,13 +30,13 @@ boyhood I was a dare-devil sort of fellow. Otherwise, do you think I
 could make a tour round the world without a single copper in my pocket?"
 
 In boyhood Swamiji had a great predilection for hearing the chanting of
-the Râmâyana by professional singers. Wherever such chanting would take
+the Rāmāyana by professional singers. Wherever such chanting would take
 place in the neighborhood, he would attend it, leaving sport and all.
 Swamiji related how, while listening to the Ramayana, on some days, he
 would be so deeply engrossed in it as to forget all about home, and
 would have no idea that it was late at night, and that he must return
 home, and so forth. One day during the chant he heard that the
-monkey-god Hanumân lived in banana orchards. Forthwith he was so much
+monkey-god Hanumān lived in banana orchards. Forthwith he was so much
 convinced that when the chant was over, he did not go home straight that
 night, but loitered in a banana orchard close to his house, with the
 hope of catching sight of Hanuman, till it was very late in the night.
@@ -159,7 +159,7 @@ have they been acknowledged great by the world. Those who are
 faint-hearted and cowardly sink their barks near the shore, frightened
 by the raging of waves on the sea. He who is a hero never casts a glance
 at these. Come what may, I must attain my ideal first — this is
-Purushakâra, manly endeavour; without such manly endeavor no amount of
+Purushakāra, manly endeavour; without such manly endeavor no amount of
 Divine help will be of any avail to banish your inertia.
 
 Disciple: Is, then, reliance on Divine help a sign of weakness?
@@ -182,10 +182,10 @@ Without the attainment of the fullness of Knowledge or Divine Love, such
 a state of absolute reliance on the Lord does not come. He who is truly
 and sincerely reliant on the Lord goes beyond all idea of the duality of
 good and bad. The brightest example of the attainment of this state
-among us at the present time is Nâg Mahâshaya. (Durgâ Charan Nag, a
+among us at the present time is Nāg Mahāshaya. (Durgā Charan Nag, a
 disciple of Shri Ramakrishna.)
 
-Then the conversation drifted to the subject of Nâg Mahâshaya. Swamiji
+Then the conversation drifted to the subject of Nāg Mahāshaya. Swamiji
 said, "One does not find a second devoted Bhakta like him — Oh, when
 shall I see him again!"
 
@@ -201,9 +201,9 @@ Disciple: Many in our part of the country call him a madcap. But I have
 known him to be a great soul since the very first day of my meeting him.
 He loves me much, and I have his fervent blessings.
 
-Swamiji: Since you have attained the company of such a Mahâpurusha (holy
+Swamiji: Since you have attained the company of such a Mahāpurusha (holy
 soul), what more have you to fear about? As an effect of many lives of
-Tapasyâ one is blessed with the company of such a great soul. How does
+Tapasyā one is blessed with the company of such a great soul. How does
 he live at home?
 
 Disciple: Sir, he has got no business or anything of the kind. He is

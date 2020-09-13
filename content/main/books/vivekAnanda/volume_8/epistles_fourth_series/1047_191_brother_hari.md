@@ -25,7 +25,7 @@ DEAR BROTHER HARI,
 
 Now I am staying on the sea-coast of France. The session of the Congress
 of History of Religions is over. It was not a big affair; some twenty
-scholars chattered a lot on the origin of the Shâlagrâma and the origin
+scholars chattered a lot on the origin of the Shālagrāma and the origin
 of Jehovah, and similar topics. I also said something on the occasion.
 
 My body and mind are broken down; I need rest badly. In addition, there

@@ -74,7 +74,7 @@ moment. Lord bless you; if the Lord has made me His hack to work and die
 on the streets, let Him have it. I am more cheerful just now after your
 letter than I was for years — *Wah Guru ki Fateh*! Victory unto the
 Guru!! Yes, let the world come, the hells come, the gods come, let
-Mother come, I fight and do not give in. Râvana got his release in three
+Mother come, I fight and do not give in. Rāvana got his release in three
 births by fighting the Lord Himself! It is glorious to fight Mother.
 
 All blessings on you and yours. You have done for me more, much more,

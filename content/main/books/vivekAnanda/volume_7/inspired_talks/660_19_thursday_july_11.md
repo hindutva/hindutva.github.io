@@ -98,7 +98,7 @@ highest ideal, and give your life up to that. "Death being so certain,
 it is the highest thing to give up life for a great purpose."
 
 Love will painlessly attain to philosophy; then after knowledge comes
-Parâbhakti (supreme devotion).
+Parābhakti (supreme devotion).
 
 Knowledge is critical and makes a great fuss over everything; but Love
 says, "God will show His real nature to me" and accepts all.

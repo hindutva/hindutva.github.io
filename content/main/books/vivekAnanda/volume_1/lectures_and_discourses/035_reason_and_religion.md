@@ -12,7 +12,7 @@ title: REASON AND RELIGION
 
 (*Delivered in England*)
 
-A sage called Nârada went to another sage named Sanatkumâra to learn
+A sage called Nārada went to another sage named Sanatkumāra to learn
 about truth, and Sanatkumara inquired what he had studied already.
 Narada answered that he had studied the Vedas, Astronomy, and various
 other things, yet he had got no satisfaction. Then there was a
@@ -432,7 +432,7 @@ childhood saying, "O Lord, I have a headache; let it go," is ridiculous.
 There have been millions of souls that have died in this world, and they
 are all here; they have become gods and angels; let them come to your
 help. But God! It cannot be. Unto Him we must go for higher things. A
-fool indeed is he who, resting on the banks of the Gangâ, digs a little
+fool indeed is he who, resting on the banks of the Gangā, digs a little
 well for water; a fool indeed is he who, living near a mine of diamonds,
 digs for bits of crystal.
 

@@ -27,7 +27,7 @@ pushed on with the greatest vigour. Now or never is the time. After
 taking a far and wide view of things, my mind has now been concentrated
 on the following plan. First, it would be well to open a Theological
 College in Madras, and then gradually extend its scope, to give a
-thorough education to young men in the Vedas and the different Bhâshyas
+thorough education to young men in the Vedas and the different Bhāshyas
 and philosophies, including a knowledge of the other religions of the
 world. At the same time a paper in English and the vernacular should be
 started as an organ of the College.
@@ -45,8 +45,8 @@ to good, but from truth to higher truth, from good to better, best. I
 tell my countrymen that so far they have done well — now is the time to
 do better.
 
-Non, take the case of caste — in Sanskrit, Jâti, i.e. species. Now, this
-is the first idea of creation. Variation (Vichitratâ), that is to say
+Non, take the case of caste — in Sanskrit, Jāti, i.e. species. Now, this
+is the first idea of creation. Variation (Vichitratā), that is to say
 Jati, means creation. "I am One, I become many" (various Vedas). Unity
 is before creation, diversity is creation. Now if this diversity stops,
 creation will be destroyed. So long as any species is vigorous and
@@ -56,7 +56,7 @@ freedom of the individual to express his nature, his Prakriti, his Jati,
 his caste; and so it remained for thousands of years. Not even in the
 latest books is inter-dining prohibited; nor in any of the older books
 is inter-marriage forbidden. Then what was the cause of India's
-downfall? — the giving up of this idea of caste. As Gitâ says, with the
+downfall? — the giving up of this idea of caste. As Gitā says, with the
 extinction of caste the world will be destroyed. Now does it seem true
 that with the stoppage of these variations the world will be destroyed?
 The present caste is not the real Jati, but a hindrance to its progress.
@@ -104,7 +104,7 @@ Lord. I am in His hands.
 I have found. I sacrifice myself unto Thee."
 
 "In search of some one to love, Thou art the One Beloved I have found. I
-sacrifice myself unto Thee." (Yajurveda Samhitâ).
+sacrifice myself unto Thee." (Yajurveda Samhitā).
 
 May the Lord bless you for ever and ever!
 

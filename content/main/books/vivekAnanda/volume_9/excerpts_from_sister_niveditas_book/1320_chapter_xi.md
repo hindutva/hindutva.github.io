@@ -76,10 +76,10 @@ display of the least of it as sure to bring a terrible reflex.
 AUGUST 12 AND 13.
 
 The Swami had now taken a Brahmin cook. Very touching had been the
-arguments of the Amarnath Sâdhus against his willingness to let even a
+arguments of the Amarnath Sādhus against his willingness to let even a
 Mussulman cook for him. "Not in the land of Sikhs at least, Swamiji",
 they had said, and he had at last consented. But for the present he was
-worshipping his little Mohammedan boat-child as Umâ. Her whole idea of
+worshipping his little Mohammedan boat-child as Umā. Her whole idea of
 love was service, and the day he left Kashmir she, tiny one, was fain to
 carry a tray of apples for him all the way to the tonga herself. He
 never forgot her, though he seemed quite indifferent at the time. In
@@ -89,7 +89,7 @@ this way and that, "was alone with that flower for twenty minutes".
 
 There was a piece of land by the riverside on which grew three
 chennaars, towards which our thoughts turned with peculiar love at this
-time. For the Mahârâjâ was anxious to give it to Swamiji, and we all
+time. For the Mahārājā was anxious to give it to Swamiji, and we all
 pictured it as a centre of work in the future — work which should
 realize the great idea of "by the people, for the people, as a joy to
 worker and to served".

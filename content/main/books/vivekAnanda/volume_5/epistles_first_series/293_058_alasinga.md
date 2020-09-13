@@ -44,7 +44,7 @@ psychology — and all this must be put in a form so that a child may
 grasp it. That is my life's work. The Lord only knows how far I shall
 succeed. "To work we have the right, not to the fruits thereof." It is
 hard work, my boy, hard work! To keep one's self steady in the midst of
-this whirl of Kâma-Kânchana (lust and gold) and hold on to one's own
+this whirl of Kāma-Kānchana (lust and gold) and hold on to one's own
 ideals, until disciples are moulded to conceive of the ideas of
 realisation and perfect renunciation, is indeed difficult work, my boy.
 Thank God, already there is great success. I cannot blame the

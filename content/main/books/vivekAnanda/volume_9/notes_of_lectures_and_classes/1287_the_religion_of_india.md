@@ -39,7 +39,7 @@ bliss. If I am to hunt, I will hunt the rhinoceros. If I am to rob, I
 will rob the treasury of the king. Seek the highest.
 
 *\[Some of the following passages are the Swami's free translations from
-Indian scriptures, including the Avadhuta-Gitâ of Dattâtreya.\]*
+Indian scriptures, including the Avadhuta-Gitā of Dattātreya.\]*
 
 If you know you are bound \[you are bound\]; if you know you are free,
 you are free. My mind was never bound by yearnings of this world; for
@@ -74,7 +74,7 @@ love Me.
 
 Real love is love for love's sake. I do not ask health or money or life
 or salvation. Send me to a thousand hells, but let me love Thee for
-love's sake. Mirâ Bâi, the great queen, taught the doctrine of love for
+love's sake. Mirā Bāi, the great queen, taught the doctrine of love for
 love's sake.
 
 Our present consciousness is only a little bit of an infinite sea of
@@ -82,7 +82,7 @@ mind. Do not be limited to this consciousness.
 
 Three great things \[are\] to be desired to develop the soul: First,
 human birth; second, thirst for the highest; third, to find one who has
-reached the highest — a Mahâtmâ, one whose mind, word and deed are full
+reached the highest — a Mahātmā, one whose mind, word and deed are full
 of the nectar of virtue, whose only plea sure is in doing good to the
 universe, who looks upon others' virtues, be they only as a mustard
 seed, even as though they were a mountain, thus expanding his own self

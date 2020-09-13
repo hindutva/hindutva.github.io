@@ -13,7 +13,7 @@ CHAPTER X
 ## CONCLUSION
 
 When this highest ideal of love is reached, philosophy is thrown away;
-who will then care for it? Freedom, Salvation, Nirvâna — all are thrown
+who will then care for it? Freedom, Salvation, Nirvāna — all are thrown
 away; who cares to become free while in the enjoyment of divine love?
 "Lord, I do not want wealth, nor friends, nor beauty, nor learning, nor
 even freedom; let me be born again and again, and be Thou ever my Love.

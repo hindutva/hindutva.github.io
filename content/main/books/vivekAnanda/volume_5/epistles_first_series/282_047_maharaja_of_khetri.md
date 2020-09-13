@@ -20,7 +20,7 @@ U. S. A.,
 Highness (The Maharaja of Khetri) well knows, a man of dogged
 perseverance. I have planted a seed in this country; it is already a
 plant, and I expect it to be a tree very soon. I have got a few hundred
-followers. I shall make several Sannyâsins, and then I go to India
+followers. I shall make several Sannyāsins, and then I go to India
 leaving the work to them. The more the Christian priests oppose me, the
 more I am determined to leave a permanent mark on their country. . . . I
 have already some friends in London. I am going there by the end of

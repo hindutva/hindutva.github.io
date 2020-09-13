@@ -34,8 +34,8 @@ makes very kind inquiries about you. I met Dr. Carpenter of Oxford
 (England) the other day. He delivered an address on the ethics of
 Buddhism at Plymouth. It was very sympathetic and scholarly. He made
 inquiries about you and your paper. Hope, your noble work will succeed.
-You are a worthy servant of Him who came Bahujana Hitâya Bahujana
-Sukhâya (for the good of the many, for the happiness of the many).
+You are a worthy servant of Him who came Bahujana Hitāya Bahujana
+Sukhāya (for the good of the many, for the happiness of the many).
 
 . . . The Christianity that is preached in India is quite different from
 what one sees here; you will be astonished to hear, Dharmapala, that I

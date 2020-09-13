@@ -71,9 +71,9 @@ goes; so we must get knowledge of the truth. Reach unity; no more
 duality will come. But knowledge does not come by sacrifice, but by
 seeking, worshipping, knowing the Atman.
 
-Brahmavidyâ is the highest knowledge, knowing the Brahman; lower
+Brahmavidyā is the highest knowledge, knowing the Brahman; lower
 knowledge is science. This is the teaching of the Mundakopanishad or the
-Upanishad for Sannyâsins. There are two sorts of knowledge — principal
+Upanishad for Sannyāsins. There are two sorts of knowledge — principal
 and secondary. The unessential is that part of the Vedas dealing with
 worship and ceremonial, also all secular knowledge. The essential is
 that by which we reach the Absolute. It (the Absolute) creates all from
@@ -81,7 +81,7 @@ Its own nature; there is nothing to cause, nothing outside. It is all
 energy, It is all there is. He who makes all sacrifices to himself, the
 Atman, he alone knows Brahman. Fools think outside worship the highest;
 fools think works can give us God. Only those who go through the
-Sushumnâ (the "path" of the Yogis) reach the Atman. They must go to a
+Sushumnā (the "path" of the Yogis) reach the Atman. They must go to a
 Guru to learn. Each part has the same nature as the whole; all springs
 from the Atman. Meditation is the arrow, the whole soul going out to God
 is the bow, which speeds the arrow to its mark, the Atman. As finite, we

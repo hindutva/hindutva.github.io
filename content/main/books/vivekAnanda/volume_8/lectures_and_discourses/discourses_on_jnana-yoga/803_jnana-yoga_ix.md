@@ -45,7 +45,7 @@ quarrel is with the forms, the symbols, the "illustrations". The
 millennium exists already for those who find it. The truth is, we have
 lost ourselves and think the world to be lost. "Fool! Hearest not thou?
 In thine own heart, day and night, is singing that Eternal Music —
-Sachchidânanda, Soham, Soham, (Existence, Knowledge, and Bliss, I am He,
+Sachchidānanda, Soham, Soham, (Existence, Knowledge, and Bliss, I am He,
 I am He)!"
 
 To try to think without a phantasm is to try to make the impossible
@@ -105,7 +105,7 @@ but the more "perfect" we are, the less work can we do. The Sattvika see
 and know that all this world is mere child's play and do not trouble
 themselves about that. We are not much disturbed when we see two puppies
 fighting and biting each other. We know it is not a serious matter. The
-perfect one knows that this world is Mâyâ. Life is called Samsâra — it
+perfect one knows that this world is Māyā. Life is called Samsāra — it
 is the result of the conflicting forces acting upon us. Materialism
 says, "The voice of freedom is a delusion." Idealism says, "The voice
 that tells of bondage is but a dream." Vedanta says, "We are free and

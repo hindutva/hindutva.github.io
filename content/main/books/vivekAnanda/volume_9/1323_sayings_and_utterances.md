@@ -89,7 +89,7 @@ Josephine MacLeod:*
 
 "I am at heart a mystic, Margot, all this reasoning is only apparent — I
 am really always on the lookout for signs and things — and so I never
-bother about the fate of my initiations. If they want to be Sannyâsins
+bother about the fate of my initiations. If they want to be Sannyāsins
 badly enough I feel that the rest is not my business. Of course it has
 its bad side. I have to pay dearly for my blunder sometimes — but it has
 one advantage. It has kept me still a Sannyasin through all this — and
@@ -131,7 +131,7 @@ poor." (*ND* 4: 478)
 Bull, quoting Swami Vivekananda's unpublished statement toward the end
 of "Practical Vedanta — IV":*
 
-"A Jiva can never attain absolutely to Brahman until the whole of Mâyâ
+"A Jiva can never attain absolutely to Brahman until the whole of Māyā
 disappears. While there is still a Jiva left in Maya, there can be no
 soul absolutely free. . . . Vedantists are divided on this point." (*ND*
 4: 481)
@@ -254,7 +254,7 @@ lecture in Oakland, California:*
 
 "Never loved a husband the wife for the wife's sake, or the wife the
 husband for the husband's sake. It is God in the wife the husband loves,
-and God in the husband the wife loves. (Cf. *Brihadâranyaka Upanishad*
+and God in the husband the wife loves. (Cf. *Brihadāranyaka Upanishad*
 II.4.5.) It is God in everyone that draws us to that one in love. \[It
 is\] God in everything, in everybody that makes us love. God is the only
 love. . . . In everyone is God, the Atman; all else is but dream, an
@@ -278,7 +278,7 @@ philosophical observations while cooking at the Turk Street flat:*
 
 "'The Lord dwells in the hearts of all beings, O Arjuna, by His illusive
 power causing all beings to revolve as though mounted on a potter's
-wheel.' \[Bhagavad-Gitâ XVIII.61\] This has all happened before, like
+wheel.' \[Bhagavad-Gitā XVIII.61\] This has all happened before, like
 the throw of a dice, so it is in life; the wheel goes on and the same
 combination comes up; that pitcher and glass have stood there before,
 so, too, that onion and potato. What can we do, Madam, He has us on the
@@ -521,14 +521,14 @@ Maybe I too am caught in the glare of this flashlight of your modern
 civilization, which is only for a moment".
 
 " — I have become entangled", he said simply to one who protested that
-to his mind the wandering Sâdhu of earlier years, who had scattered his
+to his mind the wandering Sādhu of earlier years, who had scattered his
 knowledge and changed his name as he went, had been greater than the
 abbot of Belur, burdened with much work and many cares. "I have become
 entangled." (*CWSN* 1: 43)
 
 *61.       Sister Nivedita wrote:*
 
-One day he was talking in the West of Mirâ Bâi — that saint who once
+One day he was talking in the West of Mirā Bāi — that saint who once
 upon a time was Queen of Chitore — and of the freedom her husband had
 offered her if only she would remain within the royal seclusion. But she
 could not be bound. "But why should she not?" someone asked in
@@ -708,8 +708,8 @@ requirements is that he should renounce any thought of heaven!" (*CWSN*
 
 *80.       To Sister Nivedita:*
 
-"The Gitâ says that there are three kinds of charity: the Tâmasic, the
-Râjasic and the Sâttvic. Tamasic charity is performed on an impulse. It
+"The Gitā says that there are three kinds of charity: the Tāmasic, the
+Rājasic and the Sāttvic. Tamasic charity is performed on an impulse. It
 is always making mistakes. The doer thinks of nothing but his own
 impulse to be kind. Rajasic charity is what a man does for his own
 glory. And Sattvic charity is that which is given to the right person,
@@ -814,7 +814,7 @@ the Blessed One had lain down, "resting on his right side like a lion"
 to die, when suddenly there came to him one who ran for instruction. The
 disciples would have treated the man as an intruder, maintaining peace
 at any cost about their Master's death-bed, but the Blessed One
-overheard, and saying, "No, no! He who was sent (Lit., “the Tathâgata”.
+overheard, and saying, "No, no! He who was sent (Lit., “the Tathāgata”.
 “A word”, explained Swami Vivekananda, “which is very like your
 ‘Messiah’”.) is ever ready", he raised himself on his elbow and taught.
 This happened four times and then, and then only, Buddha held himself
@@ -932,7 +932,7 @@ ideals:*
 ideals, it has never dared to say that any one of these alone was the
 one true way. In this it differs from Buddhism, which exalts monasticism
 above all others as the path that must be taken by all souls to reach
-perfection. The story given in the Mahâbhârata of the young saint who
+perfection. The story given in the Mahābhārata of the young saint who
 was made to seek enlightenment, first from a married woman and then from
 a butcher, is sufficient to show this. 'By doing my duty', said each one
 of these when asked, 'by doing my duty in my own station, have I
@@ -961,7 +961,7 @@ languages declare that he is a soul and has a body." (*CWSN* 1: 236-37)
 
 *107.     Concerning Swami Vivekananda's reverence for his Guru:*
 
-"I can criticize even an Avatâra \[divine incarnation\] without the
+"I can criticize even an Avatāra \[divine incarnation\] without the
 slightest diminution of my love for him! But I know quite well that most
 people are not so; and for them it is safest to protect their own
 Bhakti!" (*CWSN* 1: 252)
@@ -970,7 +970,7 @@ Bhakti!" (*CWSN* 1: 252)
 contented simply to follow!" (Ibid., 252-53)
 
 *108.*     "Ramakrishna Paramahamsa used to begin every day by walking
-about in his room for a couple of hours, saying 'Satchidânanda!' or
+about in his room for a couple of hours, saying 'Satchidānanda!' or
 'Shivoham!' or some other holy word." (*CWSN* 1: 255)
 
 *109.     A few months before his passing away, Swami Vivekananda said:*
@@ -982,7 +982,7 @@ them; for without his absence they cannot develop themselves!" (*CWSN*
 
 *110.     A few days before his passing away, the Swami said:*
 
-"I am making ready for death. A great Tapasyâ and meditation has come
+"I am making ready for death. A great Tapasyā and meditation has come
 upon me, and I am making ready for death." (CWSN 1: 261-62)
 
 *111.     In Kashmir after an illness, Swami Vivekananda said as he

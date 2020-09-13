@@ -17,7 +17,7 @@ XXIX
 
 \[Place: *Belur Math*. Year: *1902*.\]
 
-Today is the first of Âshârh (June-July). The disciple has come to the
+Today is the first of Âshārh (June-July). The disciple has come to the
 Math before dusk from Bally, with his office-dress on, as he has not
 found time to change it. Coming to the Math, he prostrated himself at
 the feet of Swamiji and inquired about his health. Swamiji replied that
@@ -114,10 +114,10 @@ Disciple: You encourage me in many ways. But shall I be blessed with a
 vision of the Truth? Shall I get freedom by attaining true knowledge?
 
 Swamiji: Yes, of course. Everybody will attain Mukti, from a worm up to
-Brahmâ, and shall you alone fail? These are weaknesses of the mind;
+Brahmā, and shall you alone fail? These are weaknesses of the mind;
 never think of such things.
 
-After this, he said again: "Be possessed of Shraddhâ (faith), of Virya
+After this, he said again: "Be possessed of Shraddhā (faith), of Virya
 (courage), attain to the knowledge of the Atman, and sacrifice your life
 for the good of others — this is my wish and blessing."
 
@@ -125,7 +125,7 @@ The bell for the meal ringing at this moment, Swamiji asked the disciple
 to go and partake of it. The disciple, prostrating himself at the feet
 of Swamiji, prayed for his blessings. Swamiji putting his hand on his
 head blessed him and said, "If my blessings be of any good to you, I say
-— may Bhagavân Shri Ramakrishna give you his grace! I know of no
+— may Bhagavān Shri Ramakrishna give you his grace! I know of no
 blessing higher than this." After meals, the disciple did not go
 upstairs to Swamiji, who had retired early that night. Next morning the
 disciple, having to return to Calcutta in the interests of his business

@@ -12,7 +12,7 @@ title: THE FREE SOUL
 
 (*Delivered in New York, 1896*)
 
-The analysis of the Sânkhyas stops with the duality of existence —
+The analysis of the Sānkhyas stops with the duality of existence —
 Nature and souls. There are an infinite number of souls, which, being
 simple, cannot die, and must therefore be separate from Nature. Nature
 in itself changes and manifests all these phenomena; and the soul,
@@ -149,7 +149,7 @@ now, and it will cause no bondage, no more pain, nor grief, nor misery.
 Whenever anything miserable will come, the mind will be able to say, "I
 know you as hallucination." When a man has reached that state, he is
 called Jivanmukta, living-free", free even while living. The aim and end
-in this life for the Jnâna-Yogi is to become this Jivanmukta,
+in this life for the Jnāna-Yogi is to become this Jivanmukta,
 "living-free". He is Jivanmukta who can live in this world without being
 attached. He is like the lotus leaves in water, which are never wetted
 by the water. He is the highest of human beings, nay, the highest of all
@@ -175,7 +175,7 @@ poverties, its miseries, its wickedness, and its goodness will cease to
 disturb us. If they do not exist, for whom and for what shall we take
 trouble? This is what the Jnana-Yogis teach. Therefore, dare to be free,
 dare to go as far as your thought leads, and dare to carry that out in
-your life. It is very hard to come to Jnâna. It is for the bravest and
+your life. It is very hard to come to Jnāna. It is for the bravest and
 most daring, who dare to smash all idols, not only intellectual, but in
 the senses. This body is not I; it must go. All sorts of curious things
 may come out of this. A man stands up and says, "I am not the body,
@@ -191,7 +191,7 @@ If in thousands of bodies I am suffering misery, in thousands of bodies
 I am happy. Who shall blame whom, who praise whom? Whom to seek, whom to
 avoid? I seek none, nor avoid any, for I am all the universe. I praise
 myself, I blame myself, I suffer for myself, I am happy at my own will,
-I am free. This is the Jnâni, the brave and daring. Let the whole
+I am free. This is the Jnāni, the brave and daring. Let the whole
 universe tumble down; he smiles and says it never existed, it was all a
 hallucination. He sees the universe tumble down. Where was it! Where has
 it gone!
@@ -250,7 +250,7 @@ by the Advaitists.
 It may then be asked: What becomes of all these various forms of
 worship? They will remain; they are simply groping in the dark for
 light, and through this groping light will come. We have just seen that
-the Self cannot see Itself. Our knowledge is within the network of Mâyâ
+the Self cannot see Itself. Our knowledge is within the network of Māyā
 (unreality), and beyond that is freedom. Within the network there is
 slavery, it is all under law; beyond that there is no law. So far as the
 universe is concerned, existence is ruled by law, and beyond that is
@@ -344,7 +344,7 @@ equipped with these requisites: First, renunciation of all fruits of
 work and of all enjoyments in this life or another life. If you are the
 creator of this universe, whatever you desire you will have, because you
 will create it for yourself. It is only a question of time. Some get it
-immediately; with others the past Samskâras (impressions) stand in the
+immediately; with others the past Samskāras (impressions) stand in the
 way of getting their desires. We give the first place to desires for
 enjoyment, either in this or another life. Deny that there is any life
 at all; because life is only another name for death. Deny that you are a
@@ -360,7 +360,7 @@ allowing it to get into waves from external or internal causes,
 controlling the mind perfectly, just by the power of will. The
 Jnana-Yogi does not take any one of these physical helps or mental
 helps: simply philosophic reasoning, knowledge, and his own will, these
-are the instrumentalities he believes in. Next comes Titikshâ,
+are the instrumentalities he believes in. Next comes Titikshā,
 forbearance, bearing all miseries without murmuring, without
 complaining. When an injury comes, do not mind it. If a tiger comes,
 stand there. Who flies? There are men who practice Titiksha, and succeed

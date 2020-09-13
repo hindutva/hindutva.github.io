@@ -60,7 +60,7 @@ their own past always aroused his contempt. But on this occasion of
 telling the story, he gave a glimpse of it from a very different point
 of view.
 
-"Shankarâchârya", he was saying, "had caught the rhythm of the Vedas,
+"Shankarāchārya", he was saying, "had caught the rhythm of the Vedas,
 the national cadence. Indeed I always imagine", he went on suddenly with
 dreamy voice and far-away look, "I always imagine that he had some
 vision such as mine when he was young, and recovered the ancient music
@@ -85,7 +85,7 @@ Most of the afternoon we were compelled by a storm to spend indoors; and
 a new chapter was opened at Dulai in our knowledge of Hinduism, for the
 Swami told us gravely and frankly of its modern abuses and spoke of his
 own uncompro mising hostility to those evil practices which pass under
-the name of Vâmâchâra.
+the name of Vāmāchāra.
 
 When we asked how Shri Ramakrishna — who never could bear to condemn the
 hope of any man — had looked at these things, he told us that "the old
@@ -98,7 +98,7 @@ JUNE 19.
 We took it in turns to drive with the Swami in his tonga, and this next
 day seemed full of reminiscence.
 
-He talked of Brahmavidyâ, the vision of the One, the Alone — Real, and
+He talked of Brahmavidyā, the vision of the One, the Alone — Real, and
 told how love was the only cure for evil. He had had a schoolfellow who
 grew up and became rich, but lost his health. It was an obscure disease,
 sapping his energy and vitality daily, yet altogether baffling the skill
@@ -132,7 +132,7 @@ This, he said, never failed of its effect. The prayer would remind him
 of his exile, and he would say to himself, "No, no, not this time
 again!" and so return to quiet and obedience.
 
-He had a surpassing love for Mahâdeva, and once he said of the Indian
+He had a surpassing love for Mahādeva, and once he said of the Indian
 women of the future that if, amidst their new tasks, they would only
 remember now and then to say "Shiva! Shiva!" it would be worship enough.
 The very air of the Himalayas was charged for him with the image of that
@@ -160,7 +160,7 @@ women of his own country. The whole of life has been a subconscious
 education to enable one to understand in these every faintest ripple of
 expression in face and form.
 
-And again we passed a group of Sannyâsins going on foot, and he broke
+And again we passed a group of Sannyāsins going on foot, and he broke
 out into fierce invective against asceticism as "savagery" . . . . But
 the sight of wayfarers doing slow miles on foot in the name of their
 ideals seemed to rouse in his mind a train of painful associations, and

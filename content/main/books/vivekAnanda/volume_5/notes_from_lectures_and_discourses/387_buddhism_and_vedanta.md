@@ -40,7 +40,7 @@ that the very position that will created this universe is impossible.
 How could it? Have you ever known will without external stimulus? Desire
 cannot arise without stimulus, or in modern philosophic language, of
 nerve stimulus. Will is a sort of reaction of the brain, what the
-Sânkhya philosophers call Buddhi. This reaction must be preceded by
+Sānkhya philosophers call Buddhi. This reaction must be preceded by
 action, and action presupposes an external universe. When there is no
 external universe, naturally there will be no will; and yet, according
 to your theory, it is will that created the universe. Who creates the

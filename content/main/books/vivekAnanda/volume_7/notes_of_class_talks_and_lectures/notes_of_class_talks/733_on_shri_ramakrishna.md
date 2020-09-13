@@ -22,7 +22,7 @@ ordinary sense of the term, though I could not understand it. I used to
 say that he was Brahman in the Vedantic sense; but just before his
 passing away, when he was suffering from the characteristic difficulty
 in breathing, he said to me as I was cogitating in my mind whether he
-could even in that pain say that he was an Incarnation, "He who was Râma
+could even in that pain say that he was an Incarnation, "He who was Rāma
 and Krishna has now actually become Ramakrishna — but not in your
 Vedantic sense!" He used to love me intensely, which made many quite
 jealous of me. He knew one's character by sight, and never changed his
@@ -48,7 +48,7 @@ allowed to sleep in his room. It is not true that those who have not
 seen him will not attain salvation; neither is it true that a man who
 has seen him thrice will attain Mukti (liberation).
 
-Devotion as taught by Nârada, he used to preach to the masses, those who
+Devotion as taught by Nārada, he used to preach to the masses, those who
 were incapable of any higher training.
 
 He used generally to teach dualism. As a rule, he never taught

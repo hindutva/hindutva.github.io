@@ -218,10 +218,10 @@ Therefore Sattva or absolute purity is now far away from us. Those
 amongst us who are not yet fit, but who hope to be fit, to reach to that
 absolutely pure Paramahamsa state — for them the acquirement of Rajas or
 intense activity is what is most beneficial now. Unless a man passes
-through Rajas, can he ever attain to that perfect Sâttvika state? How
+through Rajas, can he ever attain to that perfect Sāttvika state? How
 can one expect Yoga or union with God, unless one has previously
 finished with his thirst for Bhoga or enjoyment? How can renunciation
-come where there is no Vairâgya or dispassion for all the charms of
+come where there is no Vairāgya or dispassion for all the charms of
 enjoyment?
 
 On the other hand, the quality of Rajas is apt to die down as soon as it
@@ -268,7 +268,7 @@ invigorating is immortal. Who can destroy that?
 How many gushing springs and roaring cataracts, how many icy rivulets
 and ever-flowing streamlets, issuing from the eternal snow-capped peaks
 of the Himalayas, combine and flow together to form the gigantic river
-of the gods, the Gangâ, and rush impetuously towards the ocean! So what
+of the gods, the Gangā, and rush impetuously towards the ocean! So what
 a variety of thoughts and ideas, how many currents of forces, issuing
 from innumerable saintly hearts, and from brains of geniuses of various
 lands have already enveloped India, the land of Karma, the arena for the
@@ -287,7 +287,7 @@ withstand that. And why is there no power? Is truth really powerless?
 "Truth alone conquers and not falsehood." — Is this Divine Vedic saying
 false? Or who knows but that those very customs which are being swept
 away by the deluge of the power of Western sovereignty or of Western
-education were not real Âchâras, but were Anâchâras after all. This also
+education were not real Âchāras, but were Anāchāras after all. This also
 is a matter for serious consideration.
 
 बहुजनहिताय बहुजनसुखाय — "For the good of the many, as well as for the

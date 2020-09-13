@@ -12,7 +12,7 @@ CHAPTER V
 
 ## THE CONTROL OF PSYCHIC PRANA
 
-We have now to deal with the exercises in Prânâyâma. We have seen that
+We have now to deal with the exercises in Prānāyāma. We have seen that
 the first step, according to the Yogis, is to control the motion of the
 lungs. What we want to do is to feel the finer motions that are going on
 in the body. Our minds have become externalised, and have lost sight of
@@ -55,18 +55,18 @@ calmness comes over the face. Next comes beautiful voice. I never saw a
 Yogi with a croaking voice. These signs come after a few months'
 practice. After practicing the above mentioned breathing for a few days,
 you should take up a higher one. Slowly fill the lungs with breath
-through the Idâ, the left nostril, and at the same time concentrate the
+through the Idā, the left nostril, and at the same time concentrate the
 mind on the nerve current. You are, as it were, sending the nerve
 current down the spinal column, and striking violently on the last
 plexus, the basic lotus which is triangular in form, the seat of the
 Kundalini. Then hold the current there for some time. Imagine that you
 are slowly drawing that nerve current with the breath through the other
-side, the Pingalâ, then slowly throw it out through the right nostril.
+side, the Pingalā, then slowly throw it out through the right nostril.
 This you will find a little difficult to practice. The easiest way is to
 stop the right nostril with the thumb, and then slowly draw in the
 breath through the left; then close both nostrils with thumb and
 forefinger, and imagine that you are sending that current down, and
-striking the base of the Sushumnâ; then take the thumb off, and let the
+striking the base of the Sushumnā; then take the thumb off, and let the
 breath out through the right nostril. Next inhale slowly through that
 nostril, keeping the other closed by the forefinger, then close both, as
 before. The way the Hindus practice this would be very difficult for
@@ -114,9 +114,9 @@ reasoning cannot reach. To open that Sushumna is the prime object of the
 Yogi. According to him, along this Sushumna are ranged these centres,
 or, in more figurative language, these lotuses, as they are called. The
 lowest one is at the lower end of the spinal cord, and is called
-Mulâdhâra, the next higher is called Svâdhishthâna, the third Manipura,
-the fourth Anâhata, the fifth Vishuddha, the sixth Âjnâ and the last,
-which is in the brain, is the Sahasrâra, or "the thousand-petalled". Of
+Mulādhāra, the next higher is called Svādhishthāna, the third Manipura,
+the fourth Anāhata, the fifth Vishuddha, the sixth Âjnā and the last,
+which is in the brain, is the Sahasrāra, or "the thousand-petalled". Of
 these we have to take cognition just now of two centres only, the
 lowest, the Muladhara, and the highest, the Sahasrara. All energy has to
 be taken up from its seat in the Muladhara and brought to the Sahasrara.

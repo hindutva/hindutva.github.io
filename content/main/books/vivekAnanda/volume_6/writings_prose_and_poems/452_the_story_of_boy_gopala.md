@@ -12,7 +12,7 @@ title: THE STORY OF THE BOY GOPALA
 
 "O mother! I am so afraid to go to school through the woods alone; other
 boys have servants or somebody to bring them to school or take them home
-— why cannot I have someone to bring me home?" — thus said Gopâla, a
+— why cannot I have someone to bring me home?" — thus said Gopāla, a
 little Brahmin boy, to his mother one winter afternoon when he was
 getting ready for school. The school hours were in the morning and
 afternoon. It was dark when the school closed in the afternoon, and the
@@ -38,8 +38,8 @@ She was up long before the rosy dawn touched the tufted heads of the
 palms, long before the birds had begun to warble in their nests, and
 sitting on her bed — a mat on the ground covered with a blanket —
 repeated the sacred names of the holy women of the past, saluted the
-ancient sages, recited the sacred names of Nârâyana the Refuge of
-mankind, of Shiva the merciful, of Târâ the Saviour Mother; and above
+ancient sages, recited the sacred names of Nārāyana the Refuge of
+mankind, of Shiva the merciful, of Tārā the Saviour Mother; and above
 all, (she) prayed to Him whom her heart most loved, Krishna, who had
 taken the form of Gopala, a cowherd, to teach and save mankind, and
 rejoiced that by one day she was nearer to him who had gone ahead, and
@@ -94,7 +94,7 @@ For love behold the Lord of all,
 Is made to take the human form  
     To play and live with thee.
 
-What learning, they of Vrindâ's groves,  
+What learning, they of Vrindā's groves,  
     The herdsmen, ever got?  
 What science, girls that milked the kine?  
     They loved, and Me they bought.
@@ -121,7 +121,7 @@ there were some, and even those cost many a day of hard work to the poor
 mother.
 
 How for days she toiled over her wheel to buy Gopala a new cotton Dhoti
-and a piece of cotton Châdar, the under and upper coverings, the small
+and a piece of cotton Chādar, the under and upper coverings, the small
 mat in which Gopala was to put his bundle of palm leaves for writing and
 his reed pens, and which he was to carry rolled up under his arm to be
 used as his seat at school — and the inkstand. And what joy to her it

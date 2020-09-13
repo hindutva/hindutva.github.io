@@ -120,7 +120,7 @@ Its name and form vanish, but its substance remains. All the
 differentiation in substance is made by name and form. There are not
 real, because they vanish. What we call nature is not the substance,
 unchanging and indestructible. Nature is time, space and causation.
-Nature is name and form. Nature is Mâyâ. Maya means name and form, into
+Nature is name and form. Nature is Māyā. Maya means name and form, into
 which everything is cast. Maya is not real. We could not destroy it or
 change it if it were real. The substance is the noumenon, Maya is
 phenomena. There is the real "me" which nothing can destroy, and there
@@ -173,7 +173,7 @@ free, nature becomes his slave.
 The awakening of the soul to its bondage and its effort to stand up and
 assert itself — this is called life. Success in this struggle is called
 evolution. The eventual triumph, when all the slavery is blown away, is
-called salvation, Nirvâna, freedom. Everything in the universe is
+called salvation, Nirvāna, freedom. Everything in the universe is
 struggling for liberty. When I am bound by nature, by name and form, by
 time, space and causality, I do not know what I truly am. But even in
 this bondage my real Self is not completely lost. I strain against the

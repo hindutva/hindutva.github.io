@@ -16,7 +16,7 @@ CHAPTER XIV
 
 According to the Advaita philosophy, there is only one thing real in the
 universe, which it calls Brahman; everything else is unreal, manifested
-and manufactured out of Brahman by the power of Mâyâ. To reach back to
+and manufactured out of Brahman by the power of Māyā. To reach back to
 that Brahman is our goal. We are, each one of us, that Brahman, that
 Reality, plus this Maya. If we can get rid of this Maya or ignorance,
 then we become what we really are. According to this philosophy, each
@@ -52,7 +52,7 @@ Self acts through the mind and the body, and where they are, its action
 is visible.
 
 Each work we do, each thought we think, produces an impression, called
-in Sanskrit Samskâra, upon the mind and the sum total of these
+in Sanskrit Samskāra, upon the mind and the sum total of these
 impressions becomes the tremendous force which is called "character".
 The character of a man is what he has created for himself; it is the
 result of the mental and physical actions that he has done in his life.
@@ -68,7 +68,7 @@ the meeting-point become united and go on rotating; as they rotate, they
 form a body of dust, drawing in bits of paper, straw, etc., at one
 place, only to drop them and go on to another, and so go on rotating,
 raising and forming bodies out of the materials which are before them.
-Even so the forces, called Prâna in Sanskrit, come together and form the
+Even so the forces, called Prāna in Sanskrit, come together and form the
 body and the mind out of matter, and move on until the body falls down,
 when they raise other materials to make another body, and when this
 falls, another rises, and thus the process goes on. Force cannot travel

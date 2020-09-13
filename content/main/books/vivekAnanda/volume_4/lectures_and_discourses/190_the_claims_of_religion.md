@@ -71,7 +71,7 @@ as it were, only one portion, one bit of that infinite spiritual
 universe projected into the plane of sense consciousness. How can this
 little bit of projection be explained, be understood, without knowing
 that which is beyond? It is said of Socrates that one day while
-lecturing at Athens, he met a Brâhmana who had travelled into Greece,
+lecturing at Athens, he met a Brāhmana who had travelled into Greece,
 and Socrates told the Brahmana that the greatest study for mankind is
 man. And the Brahmana sharply retorted, "How can you know man until you
 know God?" This God, this eternally Unknowable, or Absolute, or

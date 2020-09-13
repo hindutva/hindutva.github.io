@@ -14,9 +14,9 @@ CHAPTER IV
 
 (*Delivered in London, 20th October 1896*)
 
-We have seen how the idea of Mâyâ, which forms, as it were, one of the
+We have seen how the idea of Māyā, which forms, as it were, one of the
 basic doctrines of the Advaita Vedanta, is, in its germs, found even in
-the Samhitâs, and that in reality all the ideas which are developed in
+the Samhitās, and that in reality all the ideas which are developed in
 the Upanishads are to be found already in the Samhitas in some form or
 other. Most of you are by this time familiar with the idea of Maya, and
 know that it is sometimes erroneously explained as illusion, so that
@@ -233,7 +233,7 @@ we are gods in this Maya. Stretch your ideas as far as you can make them
 higher and higher, call them infinite or by any other name you please,
 even these ideas are within this Maya. It cannot be otherwise, and the
 whole of human knowledge is a generalization of this Maya trying to know
-it as it appears to be. This is the work of Nâma-Rupa — name and form.
+it as it appears to be. This is the work of Nāma-Rupa — name and form.
 Everything that has form, everything that calls up an idea in your mind,
 is within Maya; for everything that is bound by the laws of time, space,
 and causation is within Maya.
@@ -294,7 +294,7 @@ shall presume that was not true! But in religion, we find atheists,
 materialists, and Buddhists, creeds, opinions, and speculations of every
 phase and variety, some of a most startling character, living side by
 side. Preachers of all sects go about reaching and getting adherents,
-and at the very gates of the temples of gods, the Brâhmins — to their
+and at the very gates of the temples of gods, the Brāhmins — to their
 credit be it said — allow even the materialists to stand and give forth
 their opinions.
 
@@ -306,7 +306,7 @@ India. This great Buddha travelled all over India, denouncing her gods
 and even the God of the universe, and yet he lived to a good old age.
 For eighty years he lived, and had converted half the country.
 
-Then, there were the Chârvâkas, who preached horrible things, the most
+Then, there were the Chārvākas, who preached horrible things, the most
 rank, undisguised materialism, such as in the nineteenth century they
 dare not openly preach. These Charvakas were allowed to preach from
 temple to temple, and city to city, that religion was all nonsense, that

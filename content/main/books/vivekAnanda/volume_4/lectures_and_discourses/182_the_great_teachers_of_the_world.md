@@ -267,7 +267,7 @@ and women should be ashamed to go on quarrelling in that way!
 These great Messengers and Prophets are great and true. Why? Because,
 each one has come to preach a great idea. Take the Prophets of India,
 for instance. They are the oldest of the founders of religion. We takes
-first, Krishna. You who have read the Gitâ see all through the book that
+first, Krishna. You who have read the Gitā see all through the book that
 the one idea is non-attachment. Remain unattached. The heart's love is
 due to only One. To whom? To Him who never changeth. Who is that One? It
 is God. Do not make the mistake of giving the heart to anything that is

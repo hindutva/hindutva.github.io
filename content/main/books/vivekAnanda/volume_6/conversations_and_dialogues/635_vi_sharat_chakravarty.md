@@ -15,7 +15,7 @@ title: VI
 (From the Diary of a Disciple)
 
 (The disciple is Sharatchandra Chakravarty, who published his records in
-a Bengali book, *Swami-Shishya-Samvâda*, in two parts. The present
+a Bengali book, *Swami-Shishya-Samvāda*, in two parts. The present
 series of "Conversations and Dialogues" is a revised translation from
 this book. Five dialogues of this series have already appeared in the
 *Complete Works*, [Vol.
@@ -109,7 +109,7 @@ I take the opposing attitude and warn you.
 Swamiji: You see, the fact is that Shri Ramakrishna is not exactly what
 the ordinary followers have comprehended him to be. He had infinite
 moods and phases. Even if you might form an idea of the limits of
-Brahmajnâna, the knowledge of the Absolute, you could not have any idea
+Brahmajnāna, the knowledge of the Absolute, you could not have any idea
 of the unfathomable depths of his mind! Thousands of Vivekanandas may
 spring forth through one gracious glance of his eyes! But instead of
 doing that, he has chosen to get things done this time through me as his
@@ -121,7 +121,7 @@ and Swami Yogananda went on praising Swamiji's versatile gifts.
 Meanwhile Swamiji returned and asked the disciple, "Do the people in
 your part of the country know much of Shri Ramakrishna?"
 
-Disciple: Only one man, Nâg Mahâshaya, came to Shri Ramakrishna from our
+Disciple: Only one man, Nāg Mahāshaya, came to Shri Ramakrishna from our
 part of Bengal;[1](#fn1) it is from him that many came to hear of him
 and had their curiosity excited to know more. But that Shri Ramakrishna
 was the Incarnation of God, the people there have not yet come to know
@@ -156,7 +156,7 @@ of him, a saint, or a knower of Brahman, or anything. But take it from
 me, never did come to this earth such an all-perfect man as Shri
 Ramakrishna! In the utter darkness of the world, this great man is like
 the shining pillar of illumination in this age! And by his light alone
-will man now cross the ocean of Samsâra!
+will man now cross the ocean of Samsāra!
 
 Disciple: To me it seems, sir, that true faith comes only after actually
 seeing or hearing something. Mathur[3](#fn3) Babu, I have heard,
@@ -222,7 +222,7 @@ lust and lucre, must discriminate always between the real and the unreal
 — must settle down into the mood of bodilessness with the brooding
 thought that you are not this body, and must always have the realisation
 that you are the all-pervading Atman. This persevering practice is
-called Purushakâra (self-exertion — as distinguished from grace). By
+called Purushakāra (self-exertion — as distinguished from grace). By
 such self-exertion will come true reliance on Him, and that is the goal
 of human achievement.
 

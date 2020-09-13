@@ -35,7 +35,7 @@ like you should pay no heed to what he says. Shall we, children of Shri
 Ramakrishna, nourished with his heart's blood, be afraid of worm-bites?
 "The wicked criticise the conduct of the magnanimous, which is
 extraordinary and whose motives are difficult to fathom" (Kalidasa's
-*Kumârasambhavam*.) — remember all this and forgive this fool. It is the
+*Kumārasambhavam*.) — remember all this and forgive this fool. It is the
 will of the Lord that people of this land have their power of
 introspection roused, and does it lie in anybody to check His progress?
 I want no name — I want to be a voice without a form. I do not require
@@ -62,7 +62,7 @@ into a cab, you have to pay three rupees, a coat costs a hundred rupees;
 the hotel charge is nine rupees a day. The Lord provides everything. . .
 . The Lord be praised, I know nothing. "सत्यमेव जयते नानृतम्, सत्येन
 पन्था विततो देवयानः — Truth alone triumphs, not falsehood. Through Truth
-alone lies the path of Devayâna." You must be fearless. It is the coward
+alone lies the path of Devayāna." You must be fearless. It is the coward
 who fears and defends himself. Let no one amongst us come forward to
 defend me. I get all news of Madras and Rajputana from time to time. . .
 . There are eyes that can see at a distance of fourteen thousand miles.
@@ -99,7 +99,7 @@ bigotry — this is what we have got to show. Through His grace everything
 will go all right. . . . Everybody wants to be a leader, but it is the
 failure to grasp that he is *born*, that causes all this mischief. ...
 
-Our matrons are all hale and hearty, I hope? Where is Gour-Mâ? We want a
+Our matrons are all hale and hearty, I hope? Where is Gour-Mā? We want a
 thousand such Mothers with that noble stirring spirit. ... We want all.
 It is not at all necessary that all should have the same faith in our
 Lord as we have, but we want to unite all the powers of goodness against

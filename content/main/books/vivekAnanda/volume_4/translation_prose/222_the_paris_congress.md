@@ -63,7 +63,7 @@ for the Swami was all the greater as they had already gone through many
 of his lectures on the Vedanta.
 
 At the Congress, Mr. Gustav Oppert, a German Pandit, read a paper on the
-origin of the Shâlagrâma-Shilâ. He traced the origin of the Shalagrama
+origin of the Shālagrāma-Shilā. He traced the origin of the Shalagrama
 worship to that of the emblem of the female generative principle.
 According to him, the Shiva-Linga is the phallic emblem of the male and
 the Shalagrama of the female generative principle. And thus he wanted to
@@ -75,7 +75,7 @@ of the Shalagrama-Shila was quite new and strange, and seemed groundless
 to him.
 
 The Swami said that the worship of the Shiva-Linga originated from the
-famous hymn in the Atharva-Veda Samhitâ sung in praise of the
+famous hymn in the Atharva-Veda Samhitā sung in praise of the
 Yupa-Stambha, the sacrificial post. In that hymn a description is found
 of the beginningless and endless Stambha or Skambha, and it is shown
 that the said Skambha is put in place of the eternal Brahman. As
@@ -88,9 +88,9 @@ in time to the Shiva-Linga, and was deified to the high Devahood of Shri
 Shankara. In the Atharva-Veda Samhita, the sacrificial cakes are also
 extolled along with the attributes of the Brahman.
 
-In the *Linga Purâna*, the same hymn is expanded in the shape of
+In the *Linga Purāna*, the same hymn is expanded in the shape of
 stories, meant to establish the glory of the great Stambha and the
-superiority of Mahâdeva.
+superiority of Mahādeva.
 
 Again, there is another fact to be considered. The Buddhists used to
 erect memorial topes consecrated to the memory of Buddha; and the very
@@ -106,7 +106,7 @@ copied them on a reduced scale, and afterwards the miniature memorials
 of the poor Hindus became a new addition to the Skambha.
 
 One of the names of the Buddhist Stupas (memorial topes) is
-Dhâtu-garbha, that is, "metal-wombed". Within the Dhatu-garbha, in small
+Dhātu-garbha, that is, "metal-wombed". Within the Dhatu-garbha, in small
 cases made of stone, shaped like the present Shalagrama, used to be
 preserved the ashes, bones, and other remains of the distinguished
 Buddhist Bhikshus, along with gold, silver, and other metals. The
@@ -114,10 +114,10 @@ Shalagrama-Shilas are natural stones resembling in form these
 artificially-cut stone-cases of the Buddhist Dhatu-garbha, and thus
 being first worshipped by the Buddhists, gradually got into Vaishnavism,
 like many other forms of Buddhistic worship that found their way into
-Hinduism. On the banks of the Narmadâ and in Nepal, the Buddhistic
+Hinduism. On the banks of the Narmadā and in Nepal, the Buddhistic
 influence lasted longer than in other parts of India; and the remarkable
 coincidence that the Narmadeshvara Shiva-Linga, found on the banks of
-the Narmadâ and hence so called, and the Shalagrama-Shilas of Nepal are
+the Narmadā and hence so called, and the Shalagrama-Shilas of Nepal are
 given preference to by the Hindus to those found elsewhere in India is a
 fact that ought to be considered with respect to this point of
 contention.
@@ -127,7 +127,7 @@ imaginary invention and, from the very beginning, beside the mark. The
 explanation of the Shiva-Linga as a phallic emblem was brought forward
 by the most thoughtless, and was forthcoming in India in her most
 degraded times, those of the downfall of Buddhism. The filthiest
-Tântrika literature of Buddhism of those times is yet largely found and
+Tāntrika literature of Buddhism of those times is yet largely found and
 practiced in Nepal and Tibet.
 
 The Swami gave another lecture in which he dwelt on the historic
@@ -143,7 +143,7 @@ expanded at one place or more or less contracted at another.
 
 He said a few words about the priority of Shri Krishna to Buddha. He
 also told the Western scholars that as the histories of the royal
-dynasties described in the *Vishnu Purâna* were by degrees being
+dynasties described in the *Vishnu Purāna* were by degrees being
 admitted as proofs throwing light on the ways of research of the
 antiquarian, so, he said, the traditions of India were all true, and
 desired that Western Sanskrit scholars, instead of writing fanciful
@@ -182,8 +182,8 @@ from Sanskrit roots. The Swami could not understand what right the
 Western scholars had to trace those words to a Greek source, thus
 ignoring their direct etymology.
 
-In the same manner, if on finding mention of the word Yavanikâ (curtain)
-in the dramas of Kâlidâsa and other Indian poets, the Yâvanika (Ionian
+In the same manner, if on finding mention of the word Yavanikā (curtain)
+in the dramas of Kālidāsa and other Indian poets, the Yāvanika (Ionian
 or Greek) influence on the whole of the dramatic literature of the time
 is ascertained, then one should first stop to compare whether the Aryan
 dramas are at all like the Greek. Those who have studied the mode of
@@ -208,8 +208,8 @@ Likewise, to see Greek influence in Indian sculpture is also entirely
 unfounded.
 
 The Swami also said that the worship of Shri Krishna is much older than
-that of Buddha, and if the Gitâ be not of the same date as the
-Mahâbhârata, it is surely much earlier and by no means later. The style
+that of Buddha, and if the Gitā be not of the same date as the
+Mahābhārata, it is surely much earlier and by no means later. The style
 of language of the Gita is the same as that of the Mahabharata. Most of
 the adjectives used in the Gita to explain matters spiritual are used in
 the Vana and other Parvans of the Mahabharata, respecting matters

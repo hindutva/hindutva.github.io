@@ -49,7 +49,7 @@ on a pile of ashes instead of in the sacred fire. When Gunanidhi comes,
 move from door to door of the poor and the destitute in every village of
 Rajputana. If people object to the kind of food you take, give it up
 immediately. It is preferable to live on grass for the sake of doing
-good to others. The Geruâ robe is not for enjoyment. It is the banner of
+good to others. The Geruā robe is not for enjoyment. It is the banner of
 heroic work. You must give your body, mind, and speech to "the welfare
 of the world". You have read — "मातृदेवो भव, पितृदेवो भव — Look upon
 your mother as God, look upon your father as God" — but I say 

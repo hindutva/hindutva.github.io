@@ -15,7 +15,7 @@ title: XI
 (From the Diary of a Disciple)
 
 (The disciple is Sharatchandra Chakravarty, who published his records in
-a Bengali book, *Swami-Shishya-Samvâda*, in two parts. The present
+a Bengali book, *Swami-Shishya-Samvāda*, in two parts. The present
 series of "Conversations and Dialogues" is a revised translation from
 this book. Five dialogues of this series have already appeared in the
 *Complete Works*, [Vol.
@@ -49,7 +49,7 @@ The wife of Navagopal Babu prostrated herself before Swamiji with the
 other female members of the house and then took to fanning him. Hearing
 Swamiji speaking highly of every arrangement, she addressed him and
 said, "What have we got to entitle us to the privilege of worshipping
-Thâkur (the Master, Lord)? — A poor home and poor means! Do bless us
+Thākur (the Master, Lord)? — A poor home and poor means! Do bless us
 please by installing him here out of your own kindness!
 
 In reply to this, Swamiji jocosely said, "Your Thakur never had in his

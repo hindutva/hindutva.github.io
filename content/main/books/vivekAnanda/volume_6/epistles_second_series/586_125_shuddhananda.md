@@ -86,7 +86,7 @@ some day' and if you find your illness shows no improvement, you may go
 to Calcutta." He will do as he pleases.
 
 At Almora, every evening Achyutananda gathers the people together and
-reads to them the Gita and other Shâstras. Many residents of the town,
+reads to them the Gita and other Shāstras. Many residents of the town,
 as also soldiers from the cantonment, come there daily. I learn also
 that he is appreciated by all.
 

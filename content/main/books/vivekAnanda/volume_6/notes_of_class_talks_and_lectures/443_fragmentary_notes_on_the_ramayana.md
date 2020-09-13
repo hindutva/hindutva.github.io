@@ -14,14 +14,14 @@ Worship Him who alone stands by us, whether we are doing good or are
 doing evil; who never leaves us even; as love never pulls down, as love
 knows no barter, no selfishness.
 
-Râma was the soul of the old king; but he was a king, and he could not
+Rāma was the soul of the old king; but he was a king, and he could not
 go back on his word.
 
 "Wherever Rama goes, there go I", says Lakshmana, the younger brother
 
 The wife of the elder brother to us Hindus is just like a mother.
 
-At last he found Sitâ, pale and thin, like a bit of the moon that lies
+At last he found Sitā, pale and thin, like a bit of the moon that lies
 low at the foot of the horizon.
 
 Sita was chastity itself; she would never touch the body of another man

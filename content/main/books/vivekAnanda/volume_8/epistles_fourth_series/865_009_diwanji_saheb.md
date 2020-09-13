@@ -35,7 +35,7 @@ I am very glad that your joint has now been nearly perfectly cured.
 Kindly tell your noble brother to excuse my promise-breaking as I have
 got here some Sanskrit books and help, too, to read, which I do not hope
 to get elsewhere, and am anxious to finish them. Yesterday I saw your
-friend Mr. Manahsukharam who has lodged a Sannyâsin friend with him. He
+friend Mr. Manahsukharam who has lodged a Sannyāsin friend with him. He
 is very kind to me and so is his son.
 
 After remaining here for 15 to 20 days I would proceed toward
@@ -68,7 +68,7 @@ sorts of mummery and tomfoolery as the very gist of the Vedas and
 Hinduism (mind you, neither these rascals of priests nor their
 forefathers have so much as *seen* a volume of the Vedas for the last
 400 generations) — they follow and degrade themselves. Lord help them
-from the Râkshasas in the shape of the Brahmins of the Kaliyuga.
+from the Rākshasas in the shape of the Brahmins of the Kaliyuga.
 
 I have sent a Bengali boy to you. Hope he would be treated kindly.
 

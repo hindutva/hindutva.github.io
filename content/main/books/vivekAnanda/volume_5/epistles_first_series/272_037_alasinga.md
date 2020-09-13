@@ -25,7 +25,7 @@ majority do not care much about religion. . . . Christianity holds its
 ground as a mere patriotism, and nothing more.
 
 . . . Now my son, do not lose courage. . . . Send me the
-*Vedanta-Sutras* and the Bhâshyas (commentaries) of all the sects.... I
+*Vedanta-Sutras* and the Bhāshyas (commentaries) of all the sects.... I
 am in His hands. What is the use of going back to India? India cannot
 further my ideas. This country takes kindly to my ideas. I will go back
 when I get the Command. In the meanwhile, do you all gently and

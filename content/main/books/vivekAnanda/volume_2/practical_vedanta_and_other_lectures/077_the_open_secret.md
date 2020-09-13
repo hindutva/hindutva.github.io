@@ -214,7 +214,7 @@ thy lost empire! Arise and walk and stop not!" And I would rise up,
 reinvigorated, and here am I, living, today. Thus, whenever darkness
 comes, assert the reality and everything adverse must vanish. For, after
 all, it is but a dream. Mountain-high though the difficulties appear,
-terrible and gloomy though all things seem, they are but Mâyâ. Fear not
+terrible and gloomy though all things seem, they are but Māyā. Fear not
 — it is banished. Crush it, and it vanishes. Stamp upon it, and it dies.
 Be not afraid. Think not how many times you fail. Never mind. Time is
 infinite. Go forward: assert yourself again and again, and light must

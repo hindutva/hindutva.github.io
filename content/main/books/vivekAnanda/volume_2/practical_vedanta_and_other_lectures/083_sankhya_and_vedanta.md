@@ -10,7 +10,7 @@ title: SANKHYA AND VEDANTA
 
 ## SANKHYA AND VEDANTA
 
-I shall give you a résumé of the Sânkhya philosophy, through which we
+I shall give you a résumé of the Sānkhya philosophy, through which we
 have been going. We, in this lecture, want to find where its defects
 are, and where Vedanta comes in and supplements it. You must remember
 that according to Sankhya philosophy, nature is the cause of all these
@@ -24,20 +24,20 @@ recombine and manifest as the universe. The first manifestation is what
 the Sankhya calls the Mahat or Intelligence, and out of that comes
 consciousness. According to Sankhya, this is an element (Tattva). And
 out of consciousness are evolved Manas or mind, the organs of the
-senses, and the Tanmâtras (particles of sound, touch, etc.). All the
+senses, and the Tanmātras (particles of sound, touch, etc.). All the
 fine particles are evolved from consciousness, and out of these fine
 particles come the gross elements which we call matter. The Tanmatras
 cannot be perceived; but when they become gross particles, we can feel
 and sense them.
 
 The Chitta, in its threefold function of intelligence, consciousness,
-and mind, works and manufactures the forces called Prâna. You must at
+and mind, works and manufactures the forces called Prāna. You must at
 once get rid of the idea that Prana is breath. Breath is one effect of
 Prana. By Prana are meant the nervous forces governing and moving the
 whole body, which also manifest themselves as thought. The foremost and
 most obvious manifestation of Prana is the breathing motion. Prana acts
 upon air, and not air upon it. Controlling the breathing motion is
-prânâyâma. Pranayama is practised to get mastery over this motion; the
+prānāyāma. Pranayama is practised to get mastery over this motion; the
 end is not merely to control the breath or to make the lungs strong.
 That is Delsarte, not Pranayama. These Pranas are the vital forces which
 manipulate the whole body, while they in their turn are manipulated by
@@ -170,7 +170,7 @@ off in a room, in a jar, and so on. And that real knowledge is not what
 we know, not intuition, nor reason, nor instinct. When that degenerates
 and is confused, we call it intuition; when it degenerates more, we call
 it reason; and when it degenerates still more, we call it instinct. That
-knowledge itself is Vijnâna, neither intuition, nor reason nor instinct.
+knowledge itself is Vijnāna, neither intuition, nor reason nor instinct.
 The nearest expression for it is all-knowingness. There is no limit to
 it, no combination in it. That bliss, when it gets clouded over, we call
 love, attraction for gross bodies or fine bodies, or for ideas. This is

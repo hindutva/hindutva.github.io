@@ -21,7 +21,7 @@ XII
 Today Swamiji is walking round the new Math grounds in the afternoon in
 company with the disciple. Standing at a little distance off the Bael
 tree Swamiji took to singing slowly a Bengali song: (This is one of the
-songs sung in the homes of Bengal on the eve of Durgâ Pujâ.) "O
+songs sung in the homes of Bengal on the eve of Durgā Pujā.) "O
 Himalaya, Ganesh is auspicious to me" etc., ending with the line — "And
 many Dandis (Sannyasins) and Yogis with matted hair will also come."
 While singing the song Swamiji repeated this line to the disciple and
@@ -59,7 +59,7 @@ overcome without the performance of work in some form or other,
 therefore indirectly work stands as a means to knowledge.
 
 Swamiji: From the standpoint of the causal chain, it so appears *prima
-facie*. Taking up this view it is stated in the Purva-Mimâmsâ that work
+facie*. Taking up this view it is stated in the Purva-Mimāmsā that work
 for a definite end infallibly produces a definite result. But the vision
 of the Atman which is Absolute is not to be compassed by means of work.
 For the rule with regard to a seeker of the Atman is that he should
@@ -105,7 +105,7 @@ work for the welfare of others? Whatever work he does without attachment
 for its fruits brings only good to the world — it is all "for the good
 of the many, for the happiness of the many". Shri Ramakrishna used to
 say, "They never take a false step". Haven't you read in the
-*Uttara-Râma-Charita*, "ऋषिणाम् पुनराद्यानां वाचमर्थोऽनुधावति — The
+*Uttara-Rāma-Charita*, "ऋषिणाम् पुनराद्यानां वाचमर्थोऽनुधावति — The
 words of the ancient Rishis have always some meaning, they are never
 false?" When the mind is merged in the Atman by the suppression of all
 modifications, it produces "a dispassion for the enjoyment of fruits of
@@ -136,7 +136,7 @@ other day, "Work, work, work — there is no other way."
 
 Swamiji: Going round the whole world, I find that people of this country
 are immersed in great Tamas (inactivity), compared with people of other
-countries. On the outside, there is a simulation of the Sâttvika (calm
+countries. On the outside, there is a simulation of the Sāttvika (calm
 and balanced) state, but inside, downright inertness like that of stocks
 and stones — what work will be done in the world by such people? How
 long can such an inactive, lazy, and sensual people live in the world?
@@ -155,7 +155,7 @@ power of Vedic Mantras. I am born to proclaim to them that fearless
 message — "Arise! Awake!" Be you my helpers in this work! Go from
 village to village, from one portion of the country to another, and
 preach this message of fearlessness to all, from the Brahmin to the
-Chandâla. Tell each and all that infinite power resides within them,
+Chandāla. Tell each and all that infinite power resides within them,
 that they are sharers of immortal Bliss. Thus rouse up the Rajas within
 them — make them fit for the struggle for existence, and then speak to
 them about salvation. First make the people of the country stand on

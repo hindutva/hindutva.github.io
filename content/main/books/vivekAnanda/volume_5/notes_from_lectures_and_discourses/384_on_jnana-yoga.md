@@ -73,9 +73,9 @@ towards that ocean of Life, Perfection, and God. We may struggle to go
 back, or float against the current and play all sorts of pranks, but in
 the long run we must go and join this great ocean of Life and Bliss.
 
-Jnâna (knowledge) is "creedlessness"; but that does not mean that it
+Jnāna (knowledge) is "creedlessness"; but that does not mean that it
 despises creeds. It only means that a stage above and beyond creeds has
-been gained. The Jnâni (true philosopher) strives to destroy nothing but
+been gained. The Jnāni (true philosopher) strives to destroy nothing but
 to help all. All rivers roll their waters into the sea and become one.
 So all creeds should lead to Jnana and become one. Jnana teaches that
 the world should be renounced but not on that account abandoned. To live
@@ -96,7 +96,7 @@ can come to. For instance, there must be this oneness in everything,
 even in common things. There is the human generalisation, for example.
 We say that all the variety is created by name and form; yet when we
 want to grasp and separate it, it is nowhere. We can never see name or
-form or causes standing by themselves. So this phenomenon is Mâyâ —
+form or causes standing by themselves. So this phenomenon is Māyā —
 something which depends on the noumenon and apart from it has no
 existence. Take a wave in the ocean. That wave exists so long as that
 quantity of water remains in a wave form; but as soon as it goes down

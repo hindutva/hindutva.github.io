@@ -15,7 +15,7 @@ title: 'RECORDED BY MISS S. E. WALDO
 SATURDAY, *June 29, 1895*. (*The Swami came this morning with a Gita in
 his hand*.)
 
-Krishna, the "Lord of souls", talks to Arjuna or Gudâkesha, "lord of
+Krishna, the "Lord of souls", talks to Arjuna or Gudākesha, "lord of
 sleep" (he who has conquered sleep). The "field of virtue" (the
 battlefield) is this world; the five brothers (representing
 righteousness) fight the hundred other brothers (all that we love and
@@ -55,7 +55,7 @@ We are heirs to all the good thoughts of the universe, if we open
 ourselves to them.
 
 The book is all in us. Fool, hearest not thou? In thine own heart day
-and night is singing that Eternal Music — *Sachchidânanda*, *soham*,
+and night is singing that Eternal Music — *Sachchidānanda*, *soham*,
 *soham* — Existence-Knowledge-Bliss Absolute, I am He, I am He.
 
 The fountain of all knowledge is in every one of us, in the ant as in

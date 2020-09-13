@@ -10,14 +10,14 @@ Classes](notes_of_lectures_and_classes_contents.htm) /
 
 
 
-*\[Mr. Frank Rhodehamel's notes of a Bhagavad-Gitâ lecture delivered
+*\[Mr. Frank Rhodehamel's notes of a Bhagavad-Gitā lecture delivered
 Saturday, May 26, 1900, in San Francisco, California\]*
 
-The Gitâ is to the Hindus what the New Testament is to the Christians.
+The Gitā is to the Hindus what the New Testament is to the Christians.
 It is about five thousand years old, and the day of religious
 celebrations with the Hindus is the anniversary of the Battle of
 Kurukshetra about five thousand years ago. As I said, the Vedas are
-divided into two great divisions, the philosophical and the Karmakânda,
+divided into two great divisions, the philosophical and the Karmakānda,
 or work portion.
 
 Between the kings, who promulgated the philosophic portion, and the

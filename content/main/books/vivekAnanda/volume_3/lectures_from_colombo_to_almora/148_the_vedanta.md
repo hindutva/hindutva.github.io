@@ -24,11 +24,11 @@ ideas of God and worship, and most rapturous expressions of the
 beautiful. Sublime ideas came from the external world indeed. But the
 other, opening out for humanity later, laid out before him a universe
 yet sublimer, yet more beautiful, and infinitely more expansive. In the
-Karma Kânda portion of the Vedas, we find the most wonderful ideas of
+Karma Kānda portion of the Vedas, we find the most wonderful ideas of
 religion inculcated, we find the most wonderful ideas about an
 overruling Creator, Preserver, and Destroyer of the universe presented
 before us in language sometimes the most soul-stirring. Most of you
-perhaps remember that most wonderful Shloka in the Rig-Veda Samhitâ
+perhaps remember that most wonderful Shloka in the Rig-Veda Samhitā
 where you get the description of chaos, perhaps the sublimest that has
 ever been attempted yet. In spite of all this, we find it is only a
 painting of the sublime outside, we find that yet it is gross, that
@@ -36,7 +36,7 @@ something of matter yet clings to it. Yet we find that it is only the
 expression of the Infinite in; the language of matter, in the language
 of the finite, it is,. the infinite of the muscles and not of the mind;
 it is the infinite of space and not of thought. Therefore in the second
-portion of Jnâna Kânda, we find there is altogether a different
+portion of Jnāna Kānda, we find there is altogether a different
 procedure. The first was a search in external nature for the truths of
 the universe; it was an attempt to get the solution of the deep problems
 of life from the material world. यस्यैते हिमवन्तो महित्वा — "Whose glory
@@ -63,12 +63,12 @@ noblest truths that have ever been preached to humanity, without any
 compromise, without any fear. This, my countrymen, I want to lay before
 you. Even the Jnana Kanda of the Vedas is a vast ocean; many lives are
 necessary to understand even a little of it. Truly has it been said of
-the Upanishads by Râmânuja that they form the head, the shoulders, the
+the Upanishads by Rāmānuja that they form the head, the shoulders, the
 crest of the Vedas, and surely enough the Upanishads have become the
 Bible of modern India. The Hindus have the greatest respect for the
 Karma Kanda of the Vedas, but, for all practical purposes, we know that
 for ages by Shruti has been meant the Upanishads, and the Upanishads
-alone. We know that all our great philosophers, whether Vyâsa,
+alone. We know that all our great philosophers, whether Vyāsa,
 Patanjali, or Gautama, and even the father of all philosophy, the great
 Kapila himself, whenever they wanted an authority for what they wrote,
 everyone of them found it in the Upanishads, and nowhere else, for
@@ -95,7 +95,7 @@ use the word Vedanta.
 
 Unfortunately there is the mistaken notion in modern India that the word
 Vedanta has reference only to the Advaita system; but you must always
-remember that in modern India the three Prasthânas are considered
+remember that in modern India the three Prasthānas are considered
 equally important in the study of all the systems of religion. First of
 all there are the Revelations, the Shrutis, by which I mean the
 Upanishads. Secondly, among our philosophies, the Sutras of Vyasa have
@@ -107,11 +107,11 @@ Vyasa. Then, between the Upanishads and the Sutras, which are the
 systematising of the marvellous truths of the Vedanta, comes in the
 Gita, the divine commentary of the Vedanta.
 
-The Upanishads, the *Vyâsa-Sutras*, and the Gita, therefore, have been
+The Upanishads, the *Vyāsa-Sutras*, and the Gita, therefore, have been
 taken up by every sect in India that wants to claim authority for
-orthodoxy, whether dualist, or Vishishtâdvaitist, or Advaitist; the
+orthodoxy, whether dualist, or Vishishtādvaitist, or Advaitist; the
 authorities of each of these are the three Prasthanas. We find that a
-Shankaracharya, or a Râmânuja, or a Madhvâchârya, or a Vallabhâcharya,
+Shankaracharya, or a Rāmānuja, or a Madhvāchārya, or a Vallabhācharya,
 or a Chaitanya — any one who wanted to propound a new sect —had to take
 up these three systems and write only a new commentary on them.
 Therefore it would be wrong to confine the word Vedanta only to one
@@ -147,7 +147,7 @@ need not go into text-torturing, we need not go into any sort of
 religious dishonesty, we need not go into any sort of grammatical
 twaddle, we need not go about trying to put our own ideas into texts
 which were never meant for them, but the work is plain and becomes
-easier, once you understand the marvellous doctrine of Adhikârabheda.
+easier, once you understand the marvellous doctrine of Adhikārabheda.
 
 It is true that the Upanishads have this one theme before them:
 कस्मिन्नु भगवो विज्ञाते सर्वमिदं विज्ञातं भवति। — "What is that knowing
@@ -164,12 +164,12 @@ matter and spirit — each thought differing from every other thought,
 each form differing from every other form. Yet, to harmonise these many
 planes and unending Lokas, in the midst of this infinite variety to find
 unity, is the theme of the Upanishads. On the other hand, the old idea
-of Arundhati Nyâya applies. To show a man the fine star Arundhati, one
+of Arundhati Nyāya applies. To show a man the fine star Arundhati, one
 takes the big and brilliant nearest to it, upon which he is asked to fix
 his eyes first, and then it becomes quite easy to direct his sight to
 Arundhati. This is the task before us, and to prove my idea I have
 simply to show you the Upanishads, and you will see it. Nearly every
-chapter begins with dualistic teaching, Upâsanâ. God is first taught as
+chapter begins with dualistic teaching, Upāsanā. God is first taught as
 some one who is the Creator of this universe, its Preserver, and unto
 whom everything goes at last. He is one to be worshipped, the Ruler, the
 Guide of nature, external and internal, yet appearing as if He were
@@ -202,7 +202,7 @@ expressing themselves as heat, or electricity, or magnetism, are nothing
 but the variations of that unit energy. Whether they express themselves
 as thought, reflected from Antahkarana, the inner organs of man, or as
 action from an external organ, the unit from which they spring is what
-is called Prâna. Again, what is Prana? Prana is Spandana or vibration.
+is called Prāna. Again, what is Prana? Prana is Spandana or vibration.
 When all this universe shall have resolved back into its primal state,
 what becomes of this infinite force? Do they think that it becomes
 extinct? Of course not. If it became extinct, what would be the cause of
@@ -217,12 +217,12 @@ ready to spring forth again. That is Srishti, projection. And what
 becomes of all these forces, the Pranas? They are resolved back into the
 primal Prana, and this Prana becomes almost motionless — not entirely
 motionless; and that is what is described in the Vedic Sukta: "It
-vibrated without vibrations" — Ânidavâtam. There are many technical
+vibrated without vibrations" — Ânidavātam. There are many technical
 phrases in the Upanishads difficult to understand. For instance, take
-this word Vâta; many times it means air and many times motion, and often
+this word Vāta; many times it means air and many times motion, and often
 people confuse one with the other. We must guard against that. And what
 becomes of what you call matter? The forces permeate all matter; they
-all dissolve into Âkâsha, from which they again come out; this Akasha is
+all dissolve into Âkāsha, from which they again come out; this Akasha is
 the primal matter. Whether you translate it as ether or anything else,
 the idea is that this Akasha is the primal form of matter. This Akasha
 vibrates under the action of Prana, and when the next Srishti is coming
@@ -237,7 +237,7 @@ projected. Yadidam Kincha — whatever in this universe.
 This is a part of the cosmological side. There are many details working
 into it. For instance, how the process takes place, how there is first
 ether, and how from the ether come other things, how that ether begins
-to vibrate, and from that Vâyu comes. But the one idea is here that it
+to vibrate, and from that Vāyu comes. But the one idea is here that it
 is from the finer that the grosser has come. Gross matter is the last to
 emerge and the most external, and this gross matter had the finer matter
 before it. Yet we see that the whole thing has been resolved into two,
@@ -249,7 +249,7 @@ just as it has been slowly finding the same old Prana and the same
 ancient Akasha, it will have to move along the same lines.
 
 The next unity is the omnipresent impersonal Being known by its old
-mythological name as Brahmâ, the four­headed Brahma and psychologically
+mythological name as Brahmā, the four­headed Brahma and psychologically
 called Mahat. This is where the two unite. What is called your mind is
 only a bit of this Mahat caught in the trap of the brain, and the sum
 total of all minds caught in the meshes of brains is what you call
@@ -287,7 +287,7 @@ assumption that by vision is not meant the external vision. The real
 vision belongs to the internal organs, the brain-centres inside. You may
 call them what you like, but it is not that the Indriyas are the eyes,
 or the nose, or the ears. And the sum total of all these Indriyas plus
-the Manas, Buddhi, Chitta, Ahamkâra, etc., is what is called the mind,
+the Manas, Buddhi, Chitta, Ahamkāra, etc., is what is called the mind,
 and if the modern physiologist comes to tell you that the brain is what
 is called the mind, and that the brain is formed of so many organs, you
 need not be afraid at all; tell him that your philosophers knew it
@@ -354,7 +354,7 @@ imagination, and call it the same river. What do we call the river?
 Every moment the water is changing, the shore is changing, every moment
 the environment is changing, what is the river then? It is the name of
 this series of changes. So with the mind. That is the great Kshanika
-Vijnâna Vâda doctrine, most difficult to understand, but most rigorously
+Vijnāna Vāda doctrine, most difficult to understand, but most rigorously
 and logically worked out in the Buddhistic philosophy; and this arose in
 India in opposition to some part of the Vedanta. That had to be answered
 and we shall see later on how it could only be answered by Advaitism and
@@ -403,7 +403,7 @@ admitting another soul, for it must be a soul which acts in contact all
 the different souls, and in and through matter — one Soul which covers
 and interpenetrates all the infinite number of souls in the world, in
 and through which they live, in and through which they sympathise, and
-love, and work for one another. And this universal Soul is Paramâtman,
+love, and work for one another. And this universal Soul is Paramātman,
 the Lord God of the universe. Again, it follows that because the soul is
 not made of matter, since it is spiritual, it cannot obey the laws of
 matter, it cannot be judged by the laws of matter. It is, therefore,
@@ -433,10 +433,10 @@ same series; that from the lowest worm to the highest and the most
 saintly man it is but one — the one changing into the other, and so on,
 going up and up, higher and higher, until it attains perfection. We had
 that idea also. Declares our Yogi Patanjali — जात्यन्तरपरिणामः
-प्रकृत्यापूरात्। One species — the Jâti is species — changes into
-another species — evolution; Parinâma means one thing changing into
+प्रकृत्यापूरात्। One species — the Jāti is species — changes into
+another species — evolution; Parināma means one thing changing into
 another, just as one species changes into another. Where do we differ
-from the Europeans? Patanjali says, Prakrityâpurât, "By the infilling of
+from the Europeans? Patanjali says, Prakrityāpurāt, "By the infilling of
 nature". The European says, it is competition, natural and sexual
 selection, etc. that forces one body to take the form of another. But
 here is another idea, a still better analysis, going deeper into the
@@ -527,7 +527,7 @@ get the body of a sage or a Rishi, and the Vedas will come out, eternal
 laws expressing themselves. This is the one great idea to understand
 that our power is already ours, our salvation is already within us. Say
 either that it has become contracted, or say that it has been covered
-with the veil of Mâyâ, it matters little; the idea is there already; you
+with the veil of Māyā, it matters little; the idea is there already; you
 must have to believe in that, believe in the possibility of everybody —
 that even in the lowest man there is the same possibility as in the
 Buddha. This is the doctrine of the Atman.
@@ -547,12 +547,12 @@ and that each one is an individual.
 
 So far we have seen that the idea of dualism is all right; for there is
 the body, there is then the fine body — the mind — there is this Atman,
-and in and through all the Atmans is that Paramâtman, God. The
+and in and through all the Atmans is that Paramātman, God. The
 difficulty is here that this Atman and Paramatman are both called
 substance, to which the mind and body and so-called substances adhere
 like so many qualities. Nobody has ever seen a substance, none can ever
 conceive; what is the use of thinking of this substance? Why not become
-a Kshanikavâdin and say that whatever exists is this succession of
+a Kshanikavādin and say that whatever exists is this succession of
 mental currents and nothing more? They do not adhere to each other, they
 do not form a unit, one is chasing the other, like waves in the ocean,
 never complete, never forming one unit-whole. Man is a succession of
@@ -562,7 +562,7 @@ before this; it is impossible that it can bring up any argument, and the
 dualistic God also cannot be retained here. The idea of a God that is
 omnipresent, and yet is a person who creates without hands, and moves
 without feet, and so on, and who has created the universe as a
-Kumbhakâra (potter) creates a Ghata (pot), the Buddhist declares, is
+Kumbhakāra (potter) creates a Ghata (pot), the Buddhist declares, is
 childish, and that if this is God, he is going to fight this God and not
 worship it. This universe is full of misery; if it is the work of a God,
 we are going to fight this God. And secondly, this God is illogical and
@@ -572,7 +572,7 @@ so this Personal God fell to pieces.
 
 Truth, and nothing but truth, is the watchword of the Advaitist. सत्यमेव
 जयते नानृतं। सत्येन पन्था विततो देवयानः — "Truth alone triumphs, and
-not, untruth. Through truth alone the way to gods, Devayâna, lies."
+not, untruth. Through truth alone the way to gods, Devayāna, lies."
 Everybody marches forward under that banner; ay, but it is only to crush
 the weaker man's position by his own. You come with your dualistic idea
 of God to pick a quarrel with a poor man who is worshipping an image,
@@ -714,7 +714,7 @@ differentiating marks, certain qualities. And where qualities do not
 exist, how can there be differentiation? Therefore there are not two
 souls, there is but One, and your Paramatman is unnecessary, it is this
 very soul. That One is called Paramatman, that very One is called
-Jivâtman, and so on; and you dualists, such as the Sânkhyas and others,
+Jivātman, and so on; and you dualists, such as the Sānkhyas and others,
 who say that the soul is Vibhu, omnipresent, how can you make two
 infinities? There can be only one. What else? This One is the one
 Infinite Atman, everything else is its manifestation. There the Buddhist
@@ -726,7 +726,7 @@ them away, that is all; but he propounds his own position. He is the
 only one that criticises, and does not stop with criticism and showing
 books. Here you are. You say the universe is a thing of continuous
 motion. In Vyashti (the finite) everything is moving; you are moving,
-the table is moving, motion everywhere; it is Samsâra, continuous
+the table is moving, motion everywhere; it is Samsāra, continuous
 motion; it is Jagat. Therefore there cannot be an individuality in this
 Jagat, because individuality means that which does not change; there
 cannot be any changeful individuality, it is a contradiction in terms.
@@ -777,7 +777,7 @@ instance of the oyster making a pearl and see how knowledge is
 limitation, gathering a thing, bringing it into Consciousness, and not
 knowing it as a whole. This is true about all knowledge, and can it be
 less so about the Infinite? Can you thus limit Him who is the substance
-of all knowledge, Him who is the Sâkshi, the witness, without whom you
+of all knowledge, Him who is the Sākshi, the witness, without whom you
 cannot have any knowledge, Him who has no qualities, who is the Witness
 of the whole universe, the Witness in our own souls? How can you know
 Him? By what means can you bind Him up? Everything, the whole universe,
@@ -787,11 +787,11 @@ gods, are like so many mirrors to reflect Himself in, and He is taking
 up still others, finding them insufficient, until in the human body He
 comes to know that it is the finite of the finite, all is finite, there
 cannot be any expression of the Infinite in the finite. Then comes the
-retrograde march, and this is what is called renunciation, Vairâgya.
+retrograde march, and this is what is called renunciation, Vairāgya.
 Back from the senses, back! Do not go to the senses is the watchword of
 Vairagya. This is the watchword of all morality, this is the watchword
 of all well-being; for you must remember that with us the universe
-begins in Tapasyâ, in renunciation, and as you go back and back, all the
+begins in Tapasyā, in renunciation, and as you go back and back, all the
 forms are being manifested before you, and they are left aside one after
 the other until you remain what you really are. This is Moksha or
 liberation.
@@ -816,14 +816,14 @@ without any idea of blame, without any idea of praise. The witness alone
 enjoys, and none else.
 
 Coming to the moral aspect, there is one thing between the metaphysical
-and the moral aspect of Advaitism; it is the theory of Mâyâ. Everyone of
+and the moral aspect of Advaitism; it is the theory of Māyā. Everyone of
 these points in the Advaita system requires years to understand and
 months to explain. Therefore you will excuse me if I only just touch
 them *en passant*. This theory of Maya has been the most difficult thing
 to understand in all ages. Let me tell you in a few words that it is
 surely no theory, it is the combination of the three ideas
-Desha-Kâla-Nimitta — space, time, and causation — and this time and
-space and cause have been further reduced into Nâma-Rupa. Suppose there
+Desha-Kāla-Nimitta — space, time, and causation — and this time and
+space and cause have been further reduced into Nāma-Rupa. Suppose there
 is a wave in the ocean. The wave is distinct from the ocean only in its
 form and name, and this form and this name cannot have any separate
 existence from the wave; they exist only with the wave. The wave may
@@ -861,7 +861,7 @@ only one and take the logical consequences. We read in the *Chandi*: "We
 salute Thee, O Divine Mother, who lives in every being as peace. We
 salute Thee, O Divine Mother, who lives in all beings as purity." At the
 same time we must take the whole consequence of calling Him the
-All-formed. "All this is bliss, O Gârgi; wherever there is bliss there
+All-formed. "All this is bliss, O Gārgi; wherever there is bliss there
 is a portion of the Divine," You may use it how you like. In this light
 before me, you may give a poor man a hundred rupees, and another man may
 forge your name, but the light will be the same for both. This is the
@@ -883,8 +883,8 @@ has taken it off?
 "One that is present always as consciousness, the bliss absolute, beyond
 all bounds, beyond all compare, beyond all qualities, ever-free,
 limitless as the sky, without parts, the absolute, the perfect — such a
-Brahman, O sage, O learned one, shines in the heart of the Jnâni in
-Samâdhi. (*Vivekachudamani*, 408).
+Brahman, O sage, O learned one, shines in the heart of the Jnāni in
+Samādhi. (*Vivekachudamani*, 408).
 
 "Where all the changes of nature cease for ever, who is thought beyond
 all thoughts, who is equal to all yet having no equal, immeasurable,
@@ -893,7 +893,7 @@ the perfect — such a Brahman, O sage, O learned one, shines in the heart
 of the Jnani in Samadhi. (Ibid., 409)
 
 "Beyond all birth and death, the Infinite One, incomparable, like the
-whole universe deluged in water in Mahâpralaya — water above, water
+whole universe deluged in water in Mahāpralaya — water above, water
 beneath, water on all sides, and on the face of that water not a wave,
 not a ripple — silent and calm, all visions have died out, all fights
 and quarrels and the war of fools and saints have ceased for ever — such
@@ -1173,7 +1173,7 @@ to drink when they have been dying of thirst and while the perennial
 river of water was flowing past, the unnumbered millions whom we have
 allowed to starve in sight of plenty, the unnumbered millions to whom we
 have talked of Advaita and whom we have hated with all our strength, the
-unnumbered millions for whom we have invented the doctrine of Lokâchâra
+unnumbered millions for whom we have invented the doctrine of Lokāchāra
 (usage), to whom we have talked theoretically that we are all the same
 and all are one with the same Lord, without even an ounce of practice.
 "Yet, my friends, it must be only in the mind and never in practice!"

@@ -18,15 +18,15 @@ ancient. Of course, there are hundreds of other epic poems. The Sanskrit
 language and literature have been continued down to the present day,
 although, for more than two thousand years, it has ceased to be a spoken
 language. I am now going to speak to you of the two most ancient epics,
-called the Râmâyana and the Mahâbhârata. They embody the manners and
+called the Rāmāyana and the Mahābhārata. They embody the manners and
 customs, the state of society, civilisation, etc., of the ancient
 Indians. The oldest of these epics is called Ramayana, "The Life of
-Râma". There was some poetical literature before this — most of the
+Rāma". There was some poetical literature before this — most of the
 Vedas, the sacred books of the Hindus, are written in a sort of metre —
 but this book is held by common consent in India as the very beginning
 of poetry.
 
-The name of the poet or sage was Vâlmiki. Later on, a great many
+The name of the poet or sage was Vālmiki. Later on, a great many
 poetical stories were fastened upon that ancient poet; and subsequently,
 it became a very general practice to attribute to his authorship very
 many verses that were not his. Notwithstanding all these interpolations,
@@ -37,7 +37,7 @@ There was a young man that could not in any way support his family. He
 was strong and vigorous and, finally, became a highway robber; he
 attacked persons in the street and robbed them, and with that money he
 supported his father, mother, wife, and children. This went on
-continually, until one day a great saint called Nârada was passing by,
+continually, until one day a great saint called Nārada was passing by,
 and the robber attacked him. The sage asked the robber, "Why are you
 going to rob me? It is a great sin to rob human beings and kill them.
 What do you incur all this sin for?" The robber said, "Why, I want to
@@ -100,7 +100,7 @@ began. The first verse sprang out of pits from the mouth of Valmiki, the
 first poet. And it was after that, that he wrote the beautiful Ramayana,
 "The Life of Rama".
 
-There was an ancient Indian town called Ayodhyâ — and it exists even in
+There was an ancient Indian town called Ayodhyā — and it exists even in
 modern times. The province in which it is still located is called Oudh,
 and most of you may have noticed it in the map of India. That was the
 ancient Ayodhya. There, in ancient times, reigned a king called
@@ -112,10 +112,10 @@ good time, four sons were born. The eldest of them was Rama.
 Now, as it should be, these four brothers were thoroughly educated in
 all branches of learning. To avoid future quarrels there was in ancient
 India a custom for the king in his own lifetime to nominate his eldest
-son as his successor, the Yuvarâja, young king, as he is called.
+son as his successor, the Yuvarāja, young king, as he is called.
 
 Now, there was another king, called Janaka, and this king had a
-beautiful daughter named Sitâ. Sita was found in a field; she was a
+beautiful daughter named Sitā. Sita was found in a field; she was a
 daughter of the Earth, and was born without parents. The word "Sita" in
 ancient Sanskrit means the furrow made by a plough. In the ancient
 mythology of India you will find persons born of one parent only, or
@@ -179,7 +179,7 @@ full of unknown dangers!" But Sita replied, "Wherever Rama goes, there
 goes Sita. How can you talk of 'princess' and 'royal birth' to me? I go
 before you!" So, Sita went. And the younger brother, he also went with
 them. They penetrated far into the forest, until they reached the river
-Godâvari. On the banks of the river they built little cottages, and Rama
+Godāvari. On the banks of the river they built little cottages, and Rama
 and Lakshmana used to hunt deer and collect fruits. After they had lived
 thus for some time, one day there came a demon giantess. She was the
 sister of the giant king of Lanka (Ceylon). Roaming through the forest
@@ -221,7 +221,7 @@ helpless, nobody, was there to come to her aid. As the giant was
 carrying her away, she took off a few of the ornaments from her arms and
 at intervals dropped them to the grounds
 
-She was taken by Râvana to his kingdom, Lanka, the island of Ceylon. He
+She was taken by Rāvana to his kingdom, Lanka, the island of Ceylon. He
 made peals to her to become his queen, and tempted her in many ways to
 accede to his request. But Sita who was chastity itself, would not even
 speak to the giant; and he to punish her, made her live under a tree,
@@ -231,7 +231,7 @@ When Rama and Lakshmana returned to the cottage and found that Sita was
 not there, their grief knew no bounds. They could not imagine what had
 become of her. The two brothers went on, seeking, seeking everywhere for
 Sita, but could find no trace of her. After long searching, they came
-across a group of "monkeys", and in the midst of them was Hanumân, the
+across a group of "monkeys", and in the midst of them was Hanumān, the
 "divine monkey". Hanuman, the best of the monkeys, became the most
 faithful servant of Rama and helped him in rescuing Sita, as we shall
 see later on. His devotion to Rama was so great that he is still
@@ -254,7 +254,7 @@ in this episode a touch of the old Indian custom. Then, the monkeys told
 Rama who this demon king was and where he lived, and then they all went
 to seek for him.
 
-Now, the monkey-king Vâli and his younger brother Sugriva were then
+Now, the monkey-king Vāli and his younger brother Sugriva were then
 fighting amongst themselves for the kingdom. The younger brother was
 helped by Rama, and he regained the kingdom from Vali, who had driven
 him away; and he, in return, promised to help Rama. They searched the
@@ -353,7 +353,7 @@ Valmiki. The sage found poor Sita weeping and forlorn, and hearing her
 sad story, sheltered her in his Âshrama. Sita was expecting soon to
 become a mother, and she gave birth to twin boys. The poet never told
 the children who they were. He brought them up together in the
-Brahmachârin life. He then composed the poem known as Ramayana, set it
+Brahmachārin life. He then composed the poem known as Ramayana, set it
 to music, and dramatised it.
 
 The drama, in India, was a very holy thing. Drama and music are
@@ -370,7 +370,7 @@ Yajna, such as the old kings used to celebrate. But no ceremony in India
 can be performed by a married man without his wife: he must have the
 wife with him, the Sahadharmini, the "co-religionist" — that is the
 expression for a wife. The Hindu householder has to perform hundreds of
-ceremonies, but not one can be duly performed according to the Shâstras,
+ceremonies, but not one can be duly performed according to the Shāstras,
 if he has not a wife to complement it with her part in it.
 
 Now Rama's wife was not with him then, as she had been banished. So, the
@@ -413,7 +413,7 @@ West has solved the problem of how much a man can have: India has solved
 the problem of how little a man can have. The two extremes, you see.
 Sita is typical of India — the idealised India. The question is not
 whether she ever lived, whether the story is history or not, we know
-that the ideal is there. There is no other Paurânika story that has so
+that the ideal is there. There is no other Paurānika story that has so
 permeated the whole nation, so entered into its very life, and has so
 tingled in every drop of blood of the race, as this ideal of Sita. Sita
 is the name in India for everything that is good, pure and holy —

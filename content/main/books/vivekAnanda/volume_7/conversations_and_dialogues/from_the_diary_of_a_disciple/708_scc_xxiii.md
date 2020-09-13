@@ -36,7 +36,7 @@ taking my fitness into consideration, then I will consider myself
 fortunate.
 
 Swamiji: Always remember that renunciation is the root idea. Unless one
-is initiated into this idea, not even Brahmâ and the World-Gods have the
+is initiated into this idea, not even Brahmā and the World-Gods have the
 power to attain Mukti.
 
 Disciple: It is a matter of deep regret that even hearing this from you
@@ -44,7 +44,7 @@ almost every day, I have not been able to realise it.
 
 Swamiji: Renunciation must come, but in the fulness of time.
 "कालेनात्मनि विन्दति — In the fulness of time one attains to knowledge
-within himself." When the few Samskâras (tendencies) of the previous
+within himself." When the few Samskāras (tendencies) of the previous
 life are spent, then renunciation sprouts up in the heart.
 
 After some time he said, "Why should you go outside and see the big
@@ -80,7 +80,7 @@ Hearing these words Swamiji stood up holding the iron bars of the window
 and looked at the assembled crowd of devotees. After some time he sat
 down.
 
-Swamiji: You are the actors in the Divine Lilâ (play) of Shri
+Swamiji: You are the actors in the Divine Lilā (play) of Shri
 Ramakrishna. After this, not to speak of ours, people will take your
 names also. These hymns which you are writing will afterwards be read by
 people for the acquirement of love and knowledge. Know that the
@@ -134,7 +134,7 @@ Disciple: Have you ever had a vision of Shri Ramakrishna after his
 passing away?
 
 Swamiji: After his leaving the body, I associated for some time with
-Pavhâri Bâbâ of Ghazipur. There was a garden not far distant from his
+Pavhāri Bābā of Ghazipur. There was a garden not far distant from his
 Âshrama where I lived. People used to say it was a haunted garden, but
 as you know, I am a sort of demon myself and have not much fear of
 ghosts. In the garden there were many lemon trees which bore numerous

@@ -50,7 +50,7 @@ its extraordinary intensity, might not make good sense in English. . . .
 I have understood that a more literal rendering would be, "O Thou who
 art manifest only unto Thyself, manifest Thyself also unto us!" I now
 regard his translation as a rapid and direct transcript of the
-experience of Samâdhi itself. It tears the living heart out of the
+experience of Samādhi itself. It tears the living heart out of the
 Sanskrit, as it were, and renders it again in an English form.
 
 It was indeed an afternoon of translations, and he gave us fragments of
@@ -69,14 +69,14 @@ And then, the voice dying down into meditation:
 
 It is all bliss — all bliss — all bliss.
 
-And again we had Suradâsa's song, which the Swami heard from the
+And again we had Suradāsa's song, which the Swami heard from the
 nautch-girl at Khetri:
 
 O Lord, look not upon my evil qualities!  
 Thy name, O Lord, is Same-Sightedness.  
 Make of us both the same Brahman! . . .
 
-Was it that same day or some other that he told us of the old Sannyâsin
+Was it that same day or some other that he told us of the old Sannyāsin
 in Benares who saw him annoyed by troops of monkeys and, afraid that he
 might turn and run, shouted, "Always face the brute!"?
 

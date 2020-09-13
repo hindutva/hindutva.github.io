@@ -203,7 +203,7 @@ the time; that idea and that word are ever associated in the Hindu mind
 with Infinite Love, the mother's love being the nearest approach to
 God's love in this mortal world of ours. "Mother, O Mother, be merciful;
 I am wicked! Many children have been wicked, but there never was a
-wicked mother" — so says the great saint Râmprasâd.
+wicked mother" — so says the great saint Rāmprasād.
 
 There she is — the Hindu mother. The son's wife comes in as her
 daughter; just as the mother's own daughter married and went out, so her
@@ -416,7 +416,7 @@ sometimes has to make himself a beggar to get his daughter married. The
 father of the boy demands a very high price for his son, and this poor
 man sometimes has to sell everything just to get a husband for his
 daughter. The great difficulty of the Hindu's life is the daughter. And,
-curiously enough, the word daughter in Sanskrit is "duhitâ". The real
+curiously enough, the word daughter in Sanskrit is "duhitā". The real
 derivation is that, in ancient times, the daughter of the family was
 accustomed to milk the cows, and so the word "duhita" comes from "duh",
 to milk; and the word "daughter" really means a milkmaid. Later on, they
@@ -433,7 +433,7 @@ respectful, one is middling, and the lowest is just like *thou* and
 *thee*. To children and servants the last is addressed. The middling one
 is used with equals. You see, these are to be applied in all the
 intricate relations of life. For example, to my elder sister I always
-throughout my life use the pronoun *âpani*, but she never does in
+throughout my life use the pronoun *āpani*, but she never does in
 speaking to me; she says *tumi* to me. She should not, even by mistake,
 say *apani* to me, because that would mean a curse. Love, the love
 toward those that are superior, should always be expressed in that form

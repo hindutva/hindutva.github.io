@@ -426,9 +426,9 @@ once must go on and must have been going on.
 
 In India they have the same idea of the Incarnations of God. One of
 their great Incarnations, Krishna, whose grand sermon, the
-Bhagavad-Gitâ, some of you might have read, says, "Though I am unborn,
+Bhagavad-Gitā, some of you might have read, says, "Though I am unborn,
 of changeless nature, and Lord of beings, yet subjugating My Prakriti, I
-come into being by My own Mâyâ. Whenever virtue subsides and immorality
+come into being by My own Māyā. Whenever virtue subsides and immorality
 prevails, then I body Myself forth. For the protection of the good, for
 the destruction of the wicked, and for the establishment of Dharma, I
 come into being, in every age." Whenever the world goes down, the Lord

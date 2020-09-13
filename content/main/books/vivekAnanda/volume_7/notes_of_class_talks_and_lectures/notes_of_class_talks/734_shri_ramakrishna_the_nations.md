@@ -18,11 +18,11 @@ personages cannot be our ideal now is, that their days are gone; and in
 order that Vedanta may come to everyone, there must be a person who is
 in sympathy with the present generation. This is fulfilled in Shri
 Ramakrishna. So now you should place him before everyone. Whether one
-accepts him as a Sâdhu or an Avatâra does not matter.
+accepts him as a Sādhu or an Avatāra does not matter.
 
 He said he would come once more with us. Then, I think, he will embrace
 Videha-Mukti (Absolute Emancipation). If you wish to work, you must have
-such an Ishta-Devatâ, or Guardian Angel, as the Christian nations call
+such an Ishta-Devatā, or Guardian Angel, as the Christian nations call
 it. I sometimes imagine that different nations have different
 Ishta-Devatas, and these are each trying for supremacy. Sometimes I
 fancy, such an Ishta-Devata becomes powerless to do service to a nation.

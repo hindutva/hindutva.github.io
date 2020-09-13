@@ -14,9 +14,9 @@ title: JNANA YOGA - II
 Swami, Miss S. E. Waldo. Swami Saradananda, while he was in America
 (1896), copied them out from her notebook — *Ed*.)
 
-The greatest teacher of the Vedanta philosophy was Shankârachârya. By
+The greatest teacher of the Vedanta philosophy was Shankārachārya. By
 solid reasoning he extracted from the Vedas the truths of Vedanta, and
-on them built up the wonderful system of Jnâna that is taught in his
+on them built up the wonderful system of Jnāna that is taught in his
 commentaries. He unified all the conflicting descriptions of Brahman and
 showed that there is only one Infinite Reality. He showed too that as
 man can only travel slowly on the upward road, all the varied
@@ -81,7 +81,7 @@ us!
 
 Jnana is "creedlessness", but that does not mean that it despises
 creeds. It only means that a stage above and beyond creeds has been
-gained. The Jnâni seeks not to destroy, but to help all. As all rivers
+gained. The Jnāni seeks not to destroy, but to help all. As all rivers
 roll their waters into the sea and become one, so all creeds should lead
 to Jnana and become one.
 
@@ -89,7 +89,7 @@ The reality of everything depends upon Brahman, and only as we really
 grasp this truth, have we any reality. When we cease to see any
 differences, then we know that "I and the Father are One".
 
-Jnana is taught very clearly by Krishna in the Bhagavad-Gitâ. This great
+Jnana is taught very clearly by Krishna in the Bhagavad-Gitā. This great
 poem is held to be the Crown jewel of all Indian literature. It is a
 kind of commentary on the Vedas. It shows us that our battle for
 spirituality must be fought out in this life; so we must not flee from

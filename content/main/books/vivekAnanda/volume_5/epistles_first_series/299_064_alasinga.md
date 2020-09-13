@@ -38,7 +38,7 @@ sufficiently methodical and strict in keeping accounts etc.
 Secondly, entire devotion to the cause, knowing that your SALVATION
 depends upon making the *Brahmavadin* a success. Let this paper be your
 Ishtadevata, and then you will see how success comes. I have already
-sent for Abhedânanda from India. I hope there will be no delay with him
+sent for Abhedānanda from India. I hope there will be no delay with him
 as it was with the other Swami. On receipt of this letter you send me a
 clear account of all the income and the expenses of the *Brahmavadin* so
 that I may judge from it what best can be done. Remember that perfect
@@ -63,7 +63,7 @@ material, but a good deal more is needed from India.
 
 Work on! Hold on! Be brave! Dare anything and everything!
 
-. . . It is all misery, this Samsâra, don't you see!
+. . . It is all misery, this Samsāra, don't you see!
 
 Yours with blessings and love,
 

@@ -33,7 +33,7 @@ only point where, perhaps, all our sects agree is that we all believe in
 the scriptures — the Vedas. This perhaps is certain that no man can have
 a right to be called a Hindu who does not admit the supreme authority of
 the Vedas. All these Vedas, as you are aware, are divided into two
-portions — the Karma Kânda and the Jnâna Kânda. The Karma Kanda includes
+portions — the Karma Kānda and the Jnāna Kānda. The Karma Kanda includes
 various sacrifices and ceremonials, of which the larger part has fallen
 into disuse in the present age. The Jnana Kanda, as embodying the
 spiritual teachings of the Vedas known as the Upanishads and the
@@ -49,13 +49,13 @@ clearer, for of late it has become the custom of most people to identify
 the word Vedanta with the Advaitic system of the Vedanta philosophy. We
 all know that Advaitism is only one branch of the various philosophic
 systems that have been founded on the Upanishads. The followers of the
-Vishishtâdvaitic system have as much reverence for the Upanishads as the
+Vishishtādvaitic system have as much reverence for the Upanishads as the
 followers of the Advaita, and the Vishishtadvaitists claim as much
 authority for the Vedanta as the Advaitist. So do the dualists; so does
 every other sect in India. But the word Vedantist has become somewhat
 identified in the popular mind with the word Advaitist, and perhaps with
 some reason, because, although we have the Vedas for our scriptures, we
-have Smritis and Purânas — subsequent writings — to illustrate the
+have Smritis and Purānas — subsequent writings — to illustrate the
 doctrines of the Vedas; these of course have not the same weight as the
 Vedas. And the law is that wherever these Puranas and Smritis differ
 from any part of the Shruti, the Shruti must be followed and the Smriti
@@ -68,7 +68,7 @@ and more in the Smritis and less and less in the Shrutis; and as we go
 to the more and more dualistic sects, we find a proportionate quantity
 of the Smritis quoted, which is out of all proportion to what we should
 expect from a Vedantist. It is, perhaps, because these gave such
-predominance to the Paurânika authorities that the Advaitist came to be
+predominance to the Paurānika authorities that the Advaitist came to be
 considered as the Vedantist *par excellence*, if I may say so.
 
 However it might have been, the word Vedanta must cover the whole ground
@@ -130,8 +130,8 @@ reading the scriptures it is hard for him to understand that what he is
 doing has not the sanction of the scriptures, and that the giving up of
 them will not hurt him at all, but on the other hand will make him a
 better man. Secondly, there is the other difficulty. These scriptures of
-ours have been very vast. We read in the *Mahâbhâshya* of Patanjali,
-that great philological work, that the Sâma-Veda had one thousand
+ours have been very vast. We read in the *Mahābhāshya* of Patanjali,
+that great philological work, that the Sāma-Veda had one thousand
 branches. Where are they all? Nobody knows. So with each of the Vedas;
 the major portion of these books have disappeared, and it is only the
 minor portion that remains to us. They were all taken charge of by
@@ -160,7 +160,7 @@ Advaitic commentator, whenever an Advaitic text comes, preserves it just
 as it is; but the same commentator, as soon as a dualistic text presents
 itself, tortures it if he can, and brings the most queer meaning out of
 it. Sometimes the "Unborn" becomes a "goat", such are the wonderful
-changes effected. To suit the commentator, "Ajâ" the Unborn is explained
+changes effected. To suit the commentator, "Ajā" the Unborn is explained
 as "Aja" a she-goat. In the same way, if not in a still worse fashion,
 the texts are handled by the dualistic commentator. Every dualistic text
 is preserved, and every text that speaks of non-dualistic philosophy is
@@ -299,7 +299,7 @@ world is this adjective applied either to God or to man. Abhih,
 fearless! And in my mind rises from the past the vision of the great
 Emperor of the West, Alexander the Great, and I see, as it were in a
 picture, the great monarch standing on the bank of the Indus, talking to
-one of our Sannyâsins in the forest; the old man he was talking to,
+one of our Sannyāsins in the forest; the old man he was talking to,
 perhaps naked, stark naked, sitting upon a block of stone, and the
 Emperor, astonished at his wisdom, tempting him with gold and honour to
 come over to Greece. And this man smiles at his gold, and smiles at his
@@ -336,7 +336,7 @@ free from weakness! And it shows to you that you have this freedom
 already in you. That is another peculiarity of its teachings. You are a
 Dvaitist; never mind, you have got to admit that by its very nature the
 soul is perfect; only by certain actions of the soul has it become
-contracted. Indeed, Râmânuja's theory of contraction and expansion is
+contracted. Indeed, Rāmānuja's theory of contraction and expansion is
 exactly what the modern evolutionists call evolution and atavism. The
 soul goes back, becomes contracted as it were, its powers become
 potential; and by good deeds and good thoughts it expands again and
@@ -454,7 +454,7 @@ to preach Advaitism, or Dvaitism, or any *ism* in the world. The only
 eternal might, its eternal strength, its eternal purity, and its eternal
 perfection. If I had a child I would from its very birth begin to tell
 it, "Thou art the Pure One". You have read in one of the Puranas that
-beautiful story of queen Madâlasâ, how as soon as she has a child she
+beautiful story of queen Madālasā, how as soon as she has a child she
 puts her baby with her own hands in the cradle, and how as the cradle
 rocks to and fro, she begins to sing, "Thou art the Pure One the
 Stainless, the Sinless, the Mighty One, the Great One." Ay, there is
@@ -497,14 +497,14 @@ fire cannot burn; me the air cannot dry; I am the Omnipotent, I am the
 Omniscient." So repeat these blessed, saving words. Do not say we are
 weak; we can do anything and everything. What can we not do? Everything
 can be done by us; we all have the same glorious soul, let us believe in
-it. Have faith, as Nachiketâ. At the time of his father's sacrifice,
+it. Have faith, as Nachiketā. At the time of his father's sacrifice,
 faith came unto Nachiketa; ay, I wish that faith would come to each of
 you; and every one of you would stand up a giant, a world-mover with a
 gigantic intellect — an infinite God in every respect. That is what I
 want you to become. This is the strength that you get from the
 Upanishads, this is the faith that you get from there.
 
-Ay, but it was only for the Sannyâsin! Rahasya (esoteric)! The
+Ay, but it was only for the Sannyāsin! Rahasya (esoteric)! The
 Upanishads were in the hands of the Sannyasin; he went into the forest!
 Shankara was a little kind and said even Grihasthas (householders) may
 study the Upanishads, it will do them good; it will not hurt them. But

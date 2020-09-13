@@ -18,7 +18,7 @@ Fourth Vyasa Sutra. "Âtman (is) the aim of all."
 
 Ishvara is to be known from the Vedanta; all Vedas point to Him (Who is
 the Cause; the Creator, Preserver and Destroyer). Ishvara is the
-unification of the Trinity, known as Brahmâ, Vishnu, and Shiva, which
+unification of the Trinity, known as Brahmā, Vishnu, and Shiva, which
 stand at the head of the Hindu Pantheon. "Thou art our Father who takest
 us to the other shore of the dark ocean" (Disciple's words to the
 Master).
@@ -43,17 +43,17 @@ you had the experience in a previous existence, because experience is
 the only teacher.
 
 With all powers comes further misery, so kill desire. Getting any desire
-is like putting a stick into a nest of hornets. Vairâgya is finding, out
+is like putting a stick into a nest of hornets. Vairāgya is finding, out
 that desires are but gilded balls of poison.
 
-"Mind is not God" (Shankara). "Tat tvam asi" "Aham Brahmâsmi" ("That
+"Mind is not God" (Shankara). "Tat tvam asi" "Aham Brahmāsmi" ("That
 thou art", "I am Brahman"). When a man realises this, all the knots of
 his heart are cut asunder, all his doubts vanish". Fearlessness is not
 possible as long as we have even God *over us*; we must *be* God. What
 is disjoined will be for ever disjoined; if you are separate from God,
 then you can never be one with Him, and vice versa. If by virtue you are
 joined to God, when that ceases, disjunction will come. The junction is
-eternal, and virtue only helps to remove the veil. We are *âzâd* (free),
+eternal, and virtue only helps to remove the veil. We are *āzād* (free),
 we must realise it. "Whom the Self chooses" means we are the Self and
 choose ourselves.
 
@@ -82,7 +82,7 @@ unseen thought is aroused, and as a result a seen effect is produced.
 This is the claim of a certain sect of Karmis. They think that each one
 of us is a creator. Pronounce the words, the thought which corresponds
 will arise, and the result will become visible. "Thought is the power of
-the word, the word is the expression of the thought," say Mimâmsakas, a
+the word, the word is the expression of the thought," say Mimāmsakas, a
 Hindu philosophical sect.
 
 

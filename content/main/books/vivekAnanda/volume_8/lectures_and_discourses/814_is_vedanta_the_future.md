@@ -441,7 +441,7 @@ In this body, He resides, the Lord of souls and the King of kings. We do
 not see that, so we make stone images of Him and build temples over
 them. Vedanta has been in India always, but India is full of these
 temples — and not only temples, but also caves containing carved images.
-"The fool, dwelling on the bank of the Gangâ, digs a well for water!"
+"The fool, dwelling on the bank of the Gangā, digs a well for water!"
 Such are we! Living in the midst of God — we must go and make images. We
 project Him in the form of the image, while all the time He exists in
 the temple of our body. We are lunatics, and this is the great delusion.

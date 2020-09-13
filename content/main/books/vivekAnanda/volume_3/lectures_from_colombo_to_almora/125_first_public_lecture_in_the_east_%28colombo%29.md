@@ -62,7 +62,7 @@ The Swami gave a brief reply, expressing his appreciation of the kind
 welcome he had received. He took advantage of the opportunity to point
 out that the demonstration had not been made in honour of a great
 politician, or a great soldier, or a millionaire, but of a begging
-Sannyâsin, showing the tendency of the Hindu mind towards religion. He
+Sannyāsin, showing the tendency of the Hindu mind towards religion. He
 urged the necessity of keeping religion as the backbone of the national
 life if the nation were to live, and disclaimed any personal character
 for the welcome he had received, but insisted upon its being the
@@ -160,7 +160,7 @@ there has been a Sino-Japanese War? Very few of you, if any. That there
 are tremendous political movements and socialistic movements trying to
 transform Western society, how many of you know? Very few indeed, if
 any. But that there was a Parliament of Religions in America, and that
-there was a Hindu Sannyâsin sent over there, I am astonished to find
+there was a Hindu Sannyāsin sent over there, I am astonished to find
 that even the cooly knows of it. That shows the way the wind blows,
 where the national life is. I used to read books written by
 globe-trotting travellers, especially foreigners, who deplored the
@@ -287,7 +287,7 @@ more correctly speaking — projection, the wonderful law of cyclical
 procession, and so on — these are the eternal principles founded upon
 the universal laws in nature. The other set comprises the minor laws
 which guided the working of our everyday life They belong more properly
-to the Purânas, to the Smritis, and not to the Shrutis. These have
+to the Purānas, to the Smritis, and not to the Shrutis. These have
 nothing to do with the other principles. Even in our own nation these
 minor laws have been changing all the time. Customs of one age, of one
 Yuga, have not been the customs of another, and as Yuga comes after

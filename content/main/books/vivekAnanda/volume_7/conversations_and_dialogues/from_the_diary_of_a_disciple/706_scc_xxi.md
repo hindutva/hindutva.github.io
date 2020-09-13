@@ -39,7 +39,7 @@ good to themselves and the country at large. Otherwise, boys of the
 common run are coming in groups and will come. Dullness is written on
 their faces — their hearts are devoid of energy, their bodies feeble and
 unfit for work, and minds devoid of courage. What work will be done by
-these? If I get ten or twelve boys with the faith of Nachiketâ, I can
+these? If I get ten or twelve boys with the faith of Nachiketā, I can
 turn the thoughts and pursuits of this country in a new channel.
 
 Disciple: Sir, so many young men are coming to you, and do you find none
@@ -74,27 +74,27 @@ work like lions, keeping the ideal before us, without caring whether
 
 Disciple: What ideal should we follow now?
 
-Swamiji: You have now to make the character of Mahâvira your ideal. See
-how at the command of Râmachandra he crossed the ocean. He had no care
+Swamiji: You have now to make the character of Mahāvira your ideal. See
+how at the command of Rāmachandra he crossed the ocean. He had no care
 for life or death! He was a perfect master of his senses and wonderfully
 sagacious. You have now to build your life on this great ideal of
 personal service. Through that, all other ideals will gradually manifest
 in life. Obedience to the Guru without questioning, and strict
 observance of Brahmacharya — this is the secret of success. As on the
-one hand Hanumân represent the ideal of service, so on the other hand he
+one hand Hanumān represent the ideal of service, so on the other hand he
 represents leonine courage, striking the whole world with awe. He has
 not the least hesitation in sacrificing his life for the good of Rama. A
 supreme indifference to everything except the service of Rama, even to
-the attainment of the status of Brahmâ and Shiva, the great World-Gods!
+the attainment of the status of Brahmā and Shiva, the great World-Gods!
 Only the carrying out of Shri Rama's behest is the one vow of this life!
-Such whole-hearted devotion is wanted. Playing on the Khol and Kartâl
+Such whole-hearted devotion is wanted. Playing on the Khol and Kartāl
 and dancing in the frenzy of Kirtana has degenerated the whole people.
 They are, in the first place, a race of dyspeptics — and if in addition
 to this they dance and jump in that way, how can they bear the strain?
-In trying to imitate the highest Sâdhana, the preliminary qualification
+In trying to imitate the highest Sādhana, the preliminary qualification
 for which is absolute purity, they have been swallowed in dire Tamas. In
 every district and village you may visit, you will find only the sound
-of the Khol and Kartâl! Are not drums made in the country? Are not
+of the Khol and Kartāl! Are not drums made in the country? Are not
 trumpets and kettle-drums available in India? Make the boys hear the
 deep-toned sound of these instruments. Hearing from boyhood the sound of
 these effeminate forms of music and listening to the kirtana, the
@@ -105,8 +105,8 @@ hand.) and horn have to be sounded, drums are to be beaten so as to
 raise the deep and martial notes, and with "Mahavira, Mahavira" on your
 lips and shouting "Hara, Hara, Vyom, Vyom" , the quarters are to be
 reverberated. The music which awakens only the softer feelings of man is
-to be stopped now for some time. Stopping the light tunes such as Kheâl
-and Tappâ for some time, the people are to be accustomed to hear the
+to be stopped now for some time. Stopping the light tunes such as Kheāl
+and Tappā for some time, the people are to be accustomed to hear the
 Dhrupad music. Through the thunder-roll of the dignified Vedic hymns,
 life is to be brought back into the country. In everything the austere
 spirit of heroic manhood is to be revived. In following such an ideal
@@ -115,7 +115,7 @@ character after such an ideal, then a thousand others will follow. But
 take care that you do not swerve an inch from the ideal. Never lose
 heart. In eating, dressing, or lying, in singing or playing, in
 enjoyment or disease, always manifest the highest moral courage. Then
-only will you attain the grace of Mahâshakti, the Divine Mother.
+only will you attain the grace of Mahāshakti, the Divine Mother.
 
 Disciple: Sir, at times I am overcome by low spirits, I don't know how.
 
@@ -127,7 +127,7 @@ Brahman, a man of illumination." Be fully conscious of your dignity by
 remembering, "I am the disciple of such and such who is the
 companion-in-life of Shri Ramakrishna, the conqueror of lust and
 wealth." This will produce a good effect. He who has not this pride has
-no awakening of Brahman within him. Haven't you heard Râmprasâd's song?
+no awakening of Brahman within him. Haven't you heard Rāmprasād's song?
 He used to say, "Whom do I fear in the world, whose sovereign is the
 Divine Mother!" Keep such a pride always awake in the mind. Then
 weakness of mind and heart will no longer be able to approach you. Never

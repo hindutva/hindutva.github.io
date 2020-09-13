@@ -11,7 +11,7 @@ Poems](writings_prose_and_poems_contents.htm) /
 
 
 *This is Swami Vivekananda's free translation of verses from
-Bhartrihari's Sanskrit poem* Vairâgya Shatakam.
+Bhartrihari's Sanskrit poem* Vairāgya Shatakam.
 
 *The Swami's translation is from Sister Nivedita's* Unpublished Notes of
 Some Wanderings with the Swami Vivekananda — *selected verses recorded
@@ -198,7 +198,7 @@ To cross this ocean of life.
 
   
 
-. . . Living in whom gods like Indra, Brahmâ  
+. . . Living in whom gods like Indra, Brahmā  
       and others appear like a blade of grass,  
 Whose anger can destroy the worlds in a moment.  
 O sage, know Him, that One Supreme  
@@ -299,7 +299,7 @@ How can you get happiness?
 (Verse 70)
 
 What is there in the reading of Vedas,  
-The Shrutis, the Purânas and doing sacrifices?  
+The Shrutis, the Purānas and doing sacrifices?  
 Freedom alone takes off the weight  
 of this dreadful world,  
 And manifests Self-blessedness.  
@@ -472,7 +472,7 @@ Like a lamp in an empty house.
     cannot give it up —  
     Such is the power of delusion.  
     \[With rocks cooled by\] the spray of the Ganga's waters,  
-    Where the Vidyâdharas love to sport —  
+    Where the Vidyādharas love to sport —  
     Have such places in the Himalayas become extinct  
     That a man should beg (in disgrace) at other's doors?  
     (Verse 18, 24)  

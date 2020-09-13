@@ -21,18 +21,18 @@ incarnate on earth. But our views about Buddha are that he was not
 understood properly by his disciples. The relation between Hinduism (by
 Hinduism, I mean the religion of the Vedas) and what is called Buddhism
 at the present day is nearly the same as between Judaism and
-Christianity. Jesus Christ was a Jew, and Shâkya Muni was a Hindu. The
+Christianity. Jesus Christ was a Jew, and Shākya Muni was a Hindu. The
 Jews rejected Jesus Christ, nay, crucified him, and the Hindus have
-accepted Shâkya Muni as God and worship him. But the real difference
+accepted Shākya Muni as God and worship him. But the real difference
 that we Hindus want to show between modern Buddhism and what we should
 understand as the teachings of Lord Buddha lies principally in this:
-Shâkya Muni came to preach nothing new. He also, like Jesus, came to
+Shākya Muni came to preach nothing new. He also, like Jesus, came to
 fulfil and not to destroy. Only, in the case of Jesus, it was the old
 people, the Jews, who did not understand him, while in the case of
 Buddha, it was his own followers who did not realise the import of his
 teachings. As the Jew did not understand the fulfilment of the Old
 Testament, so the Buddhist did not understand the fulfilment of the
-truths of the Hindu religion. Again, I repeat, Shâkya Muni came not to
+truths of the Hindu religion. Again, I repeat, Shākya Muni came not to
 destroy, but he was the fulfilment, the logical conclusion, the logical
 development of the religion of the Hindus.
 
@@ -42,7 +42,7 @@ the spiritual. The spiritual portion is specially studied by the monks.
 In that there is no caste. A man from the highest caste and a man from
 the lowest may become a monk in India, and the two castes become equal.
 In religion there is no caste; caste is simply a social institution.
-Shâkya Muni himself was a monk, and it was his glory that he had the
+Shākya Muni himself was a monk, and it was his glory that he had the
 large-heartedness to bring out the truths from the hidden Vedas and
 through them broadcast all over the world. He was the first being in the
 world who brought missionarising into practice — nay, he was the first

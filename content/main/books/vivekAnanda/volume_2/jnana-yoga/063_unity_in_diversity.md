@@ -282,7 +282,7 @@ the root of all and has branched out until He has become this universe,
 and however far He extends, every one of these trunks and branches is
 connected.
 
-Various heavens are spoken of in the Brâhmana portions of the Vedas, but
+Various heavens are spoken of in the Brāhmana portions of the Vedas, but
 the philosophical teaching of the Upanishads gives up the idea of going
 to heaven. Happiness is not in this heaven or in that heaven, it is in
 the soul; places do not signify anything. Here is another passage which
@@ -314,7 +314,7 @@ mirror. The same idea is expressed again: "None sees Him, none sees His
 form with the eyes. It is in the mind, in the pure mind, that He is
 seen, and this immortality is gained."
 
-Those who were at the summer lectures on Râja-Yoga will be interested to
+Those who were at the summer lectures on Rāja-Yoga will be interested to
 know that what was taught then was a different kind of Yoga. The Yoga
 which we are now considering consists chiefly in controlling the senses.
 When the senses are held as slaves by the human soul, when they can no

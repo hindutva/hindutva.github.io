@@ -39,7 +39,7 @@ longer have any desire, the goal is attained.
 Cut down the banyan tree of desire with the axe of non-attachment, and
 it will vanish utterly. It is all illusion. "He from whom blight and
 delusion have fallen, he who has conquered the evils of association, he
-alone is *âzâd* (free)."
+alone is *āzād* (free)."
 
 To love anyone personally is bondage. Love all alike, then all desires
 fall off.
@@ -54,8 +54,8 @@ last. Do not be like that. Cut off all desire.
 
 \*            \*            \*
 
-Paramâtman as ruling Maya is Ishvara; Paramâtman as under Maya is
-Jivâtman. Maya is the sum total of manifestation and will utterly
+Paramātman as ruling Maya is Ishvara; Paramātman as under Maya is
+Jivātman. Maya is the sum total of manifestation and will utterly
 vanish.
 
 Tree-nature is Maya, it is really God-nature which we see under the veil

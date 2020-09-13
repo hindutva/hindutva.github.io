@@ -30,14 +30,14 @@ spirit, the real religion, and the truths in each of them, they are all
 alike. In some religions God is not worshipped, nay, His existence is
 not believed in, but good and worthy men are worshipped as if they were
 Gods. The example worthy of citation in this case is Buddhism. Bhakti is
-everywhere, whether directed to God or to noble persons. Upâsâna in the
+everywhere, whether directed to God or to noble persons. Upāsāna in the
 form of Bhakti is everywhere supreme, and Bhakti is more easily attained
-than Jnâna. The latter requires favourable circumstances and strenuous
+than Jnāna. The latter requires favourable circumstances and strenuous
 practice. Yoga cannot be properly practiced unless a man is physically
 very healthy and free from all worldly attachments. But Bhakti can be
-more easily practiced by persons in every condition of life. Shândilya
+more easily practiced by persons in every condition of life. Shāndilya
 Rishi, who wrote about Bhakti, says that extreme love for God is Bhakti.
-Prahlâda speaks to the same effect. If a man does not get food one day,
+Prahlāda speaks to the same effect. If a man does not get food one day,
 he is troubled; if his son dies, how agonising it is to him! The true
 Bhakta feels the same pangs in his heart when he yearns after God. The
 great quality of Bhakti is that it cleanses the mind, and the firmly
@@ -57,7 +57,7 @@ their idea that their Devi is the most omnipotent power in the universe.
 Leave inimical thoughts aside if you want to have permanent Bhakti.
 Hatred is a thing which greatly impedes the course of Bhakti, and the
 man who hates none reaches God. Even then the devotion for one's own
-ideal is necessary. Hanumân says, "Vishnu and Râma, I know, are one and
+ideal is necessary. Hanumān says, "Vishnu and Rāma, I know, are one and
 the same, but after all, the lotus-eyed Rama is my best treasure." The
 peculiar tendencies with which a person is born must remain with him.
 That is the chief reason why the world cannot be of one religion — and
@@ -106,9 +106,9 @@ advocates vice? The answer will be certainly in the negative, and such a
 religion ought to be expelled at once, because it is productive of harm.
 All religion is to be based upon morality, and personal purity is to be
 counted superior to Dharma. In this connection it ought to be known that
-Âchâra means purity inside and outside. External purity can be attained
+Âchāra means purity inside and outside. External purity can be attained
 by cleansing the body with water and other things which are recommended
-in the Shâstras. The internal man is to be purified by not speaking
+in the Shāstras. The internal man is to be purified by not speaking
 falsehood, by not drinking, by not doing immoral acts, and by doing good
 to others. If you do not commit any sin, if you do not tell lies, if you
 do not drink, gamble, or commit theft, it is good. But that is only your
@@ -144,7 +144,7 @@ to the sweets. We ought to improve, but instead of improving we have
 gone back. Manu says that we should not spit in water, but we throw all
 sorts of filth into the rivers. Considering all these things we find
 that the purification of one's outer self is very necessary. The
-Shâstrakâras knew that very well. But now the real spirit of this
+Shāstrakāras knew that very well. But now the real spirit of this
 observance of purity about food is lost and the letter only remains.
 Thieves, drunkards, and criminals can be our caste-fellows, but if a
 good and noble man eats food with a person of a lower caste, who is
@@ -198,9 +198,9 @@ forward such men and get them to do better. But there is no use in
 quarrelling about these various sorts of worship.
 
 Some persons worship God for the sake of obtaining wealth, others
-because they want to have a son, and they think themselves Bhâgavatas
+because they want to have a son, and they think themselves Bhāgavatas
 (devotees). This is no Bhakti, and they are not true Bhagavatas. When a
-Sâdhu comes who professes that he can make gold, they run to him, and
+Sādhu comes who professes that he can make gold, they run to him, and
 they still consider themselves Bhagavatas. It is not Bhakti if we
 worship God with the desire for a son; it is not Bhakti if we worship
 with the desire to be rich; it is not Bhakti even if we have a desire
@@ -212,7 +212,7 @@ die hundreds of times. What I want is that I should be ever engaged in
 Thy service." It is at this stage — and when a man sees God in
 everything, and everything in God — that he attains perfect Bhakti. It
 is then that he sees Vishnu incarnated in everything from the microbe to
-Brahmâ, and it is then that he sees God manifesting Himself in
+Brahmā, and it is then that he sees God manifesting Himself in
 everything, it is then that he feels that there is nothing without God,
 and it is then and then alone that thinking himself to be the most
 insignificant of all beings he worships God with the true spirit of a
@@ -225,7 +225,7 @@ relationships are conceived in order to strengthen Bhakti in us, and
 they make us feel nearer and dearer to God. Hence these names are
 justifiable in one way, and that is that the words are simply words of
 endearment, the outcome of the fond love which a true Bhagavata feels
-for God. Take the story of Râdhâ and Krishna in Râsalilâ. The story
+for God. Take the story of Rādhā and Krishna in Rāsalilā. The story
 simply exemplifies the true spirit of a Bhakta, because no love in the
 world exceeds that existing between a man and a woman. When there is
 such intense love, there is no fear, no other attachment save that one

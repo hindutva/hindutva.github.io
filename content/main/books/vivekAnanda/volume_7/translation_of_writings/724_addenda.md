@@ -55,7 +55,7 @@ Within the walls was the prison — a dreadful place. Next we met Woods
 Pasha and started for the Bosphorus. We had our dinner with the French
 chargé d'affaires and met a Greek Pasha and an Albanian gentleman. The
 Police have prohibited Père Hyacinthe's lectures; so I too cannot
-lecture. We saw Mr. Devanmall and Chobeji — a Gujarâti Brahmin. There
+lecture. We saw Mr. Devanmall and Chobeji — a Gujarāti Brahmin. There
 are a good many Indians here — Hindustanis, Mussalmans, etc. We had a
 talk on Turkish Philosophy and heard of Noor Bey, whose grandfather was
 a Frenchman. They say he is as handsome as a Kashmari. The women here

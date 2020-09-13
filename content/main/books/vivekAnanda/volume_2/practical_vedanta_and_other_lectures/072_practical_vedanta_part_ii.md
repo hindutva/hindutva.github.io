@@ -14,7 +14,7 @@ PART II
 
 (*Delivered in London, 12th November 1896*)
 
-I will relate to you a very ancient story from the Chhândogya Upanishad,
+I will relate to you a very ancient story from the Chhāndogya Upanishad,
 which tells how knowledge came to a boy. The form of the story is very
 crude, but we shall find that it contains a principle. A young boy said
 to his mother, "I am going to study the Vedas. Tell me the name of my
@@ -23,11 +23,11 @@ the child of a woman who has not been married is considered an outcast;
 he is not recognised by society and is not entitled to study the Vedas.
 So the poor mother said, "My child, I do not know your family name; I
 was in service, and served in different places; I do not know who your
-father is, but my name is Jabâlâ and your name is Satyakâma." The little
+father is, but my name is Jabālā and your name is Satyakāma." The little
 child went to a sage and asked to be taken as a student. The sage asked
 him, "What is the name of your father, and what is your caste?" The boy
 repeated to him what he had heard from his mother. The sage at once
-said, "None but a Brâhmin could speak such a damaging truth about
+said, "None but a Brāhmin could speak such a damaging truth about
 himself. You are a Brahmin and I will teach you. You have not swerved
 from truth." So he kept the boy with him and educated him.
 
@@ -84,7 +84,7 @@ practical every day. The truth was shown through everything with which
 the students were familiar. The fire they were worshipping was Brahman,
 the earth was a part of Brahman, and so on.
 
-The next story belongs to Upakosala Kâmalâyana, a disciple of this
+The next story belongs to Upakosala Kāmalāyana, a disciple of this
 Satyakama, who went to be taught by him and dwelt with him for some
 time. Now Satyakama went away on a journey, and the student became very
 downhearted; and when the teacher's wife came and asked him why he was
@@ -132,7 +132,7 @@ same light which shines in the planets, in the stars, and suns.
 
 I will now read to you some other doctrine of these ancient Upanishads,
 about birth and death and so on. Perhaps it will interest you.
-Shvetaketu went to the king of the Panchâlas, and the king asked him,
+Shvetaketu went to the king of the Panchālas, and the king asked him,
 "Do you know where people go when they die? Do you know how they come
 back? Do you know why the other world does not become full?" The boy
 replied that he did not know. Then he went to his father and asked him
@@ -223,7 +223,7 @@ terms, because everything that has name and form must begin in time,
 exist in time, and end in time. These are settled doctrines of the
 Vedanta, and as such the heavens are given up.
 
-We have seen in the Samhitâ that the idea of heaven was that it was
+We have seen in the Samhitā that the idea of heaven was that it was
 eternal, much the same as is prevalent among Mohammedans and Christians.
 The Mohammedans concretise it a little more. They say it is a place
 where there are gardens, beneath which rivers run. In the desert of
@@ -287,7 +287,7 @@ effect produced by a finite cause, which cannot be. If I do good all my
 life, I cannot have an infinite heaven; it would be making the same
 mistake. But there is a third course which applies to those who have
 known the Truth, to those who have realised It. This is the only way to
-get beyond this veil of Mâyâ — to realise what Truth is; and the
+get beyond this veil of Māyā — to realise what Truth is; and the
 Upanishads indicate what is meant by realising the Truth.
 
 It means recognising neither good nor bad, but knowing all as coming
@@ -315,7 +315,7 @@ is a misery; the man who sees death, his life is a misery. That man
 alone can live in this world, he alone can say, "I enjoy this life, and
 I am happy in this life", who has seen the Truth, and the Truth in
 everything. By the by, I may tell you that the idea of hell does not
-occur in the Vedas anywhere. It comes with the Purânas much later. The
+occur in the Vedas anywhere. It comes with the Purānas much later. The
 worst punishment according to the Vedas is coming back to earth, having
 another chance in this world. From the very first we see the idea is
 taking the impersonal turn. The ideas of punishment and reward are very

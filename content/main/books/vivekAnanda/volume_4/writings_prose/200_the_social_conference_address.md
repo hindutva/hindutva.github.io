@@ -23,10 +23,10 @@ of language that is truly admirable.
 
 The last part, however, which offers advice as to the creation of a body
 of teachers for the new movement strong in the Punjab, which we take for
-granted is the Ârya Samâj, founded by a Sannyâsin, leaves us wondering
+granted is the Ârya Samāj, founded by a Sannyāsin, leaves us wondering
 and asking ourselves the question:
 
-It seems God created the Brâhmin, God created the Kshatriya, but who
+It seems God created the Brāhmin, God created the Kshatriya, but who
 created the Sannyasin?
 
 There have been and are Sannyasins or monks in every known religion.
@@ -46,7 +46,7 @@ and similar manifestations haste run in parallel lines with the women,
 too — the nuns. Mr. Ranade is not only the President of the Indian
 Social Conference but a chivalrous gentleman also: the nuns of the
 Shrutis and Smritis seem to have been to his entire satisfaction. The
-ancient celibate Brahmavâdinis, who travelled from court to court
+ancient celibate Brahmavādinis, who travelled from court to court
 challenging great philosophers, do not seem to him to thwart the central
 plan of the Creator — the propagation of species; nor did they seem to
 have lacked in the variety and completeness of human experience, in Mr.
@@ -101,7 +101,7 @@ But they have not learnt the modern method of self-advertisement!!
 
 The Hindu drank in with his mother's milk that this life is as nothing —
 a dream! In this he is at one with the Westerners; but the Westerner
-sees no further and his conclusion is that of the Chârvâka — to "make
+sees no further and his conclusion is that of the Chārvāka — to "make
 hay while the sun shines". "This world being a miserable hole, let us
 enjoy to the utmost what morsels of pleasure are left to us." To the
 Hindu, on the other hand, God and soul are the only realities,
@@ -120,7 +120,7 @@ must lack the realisation of life "in all its fullness and in all its
 varied experience!" We hope this time the corpse will go for good into
 the Arabian Sea, especially in these days of plague, and notwithstanding
 the filial love one may suppose the foremost clan of Brahmins there may
-have for ancestors of great perfume, if the Paurânika accounts are of
+have for ancestors of great perfume, if the Paurānika accounts are of
 any value in tracing their ancestry.
 
 By the bye, in Europe, between the monks and nuns, they have brought up
@@ -136,7 +136,7 @@ What about these? Ought they also to be maintained at full steam,
 following the varied-experience theory or not? Of course the social
 reformers, being in intimate acquaintance with God Almighty and His
 purposes, must answer the query in the positive. Are we to follow
-Vishvâmitra, Atri, and others in their ferocity and the Vasishtha family
+Vishvāmitra, Atri, and others in their ferocity and the Vasishtha family
 in particular in their "full and varied experience" with womankind? For
 the majority of married Rishis are as celebrated for their liberality in
 begetting children wherever and whenever they could, as for their

@@ -99,7 +99,7 @@ shall remain free for ever. We never change, we never die, and we are
 never born. What are all these changes then? What becomes of this
 phenomenal world? This world is admitted as an apparent world, bound by
 time, space, and causation, and it comes to what is called the
-Vivarta-vâda in Sanskrit, evolution of nature, and manifestation of the
+Vivarta-vāda in Sanskrit, evolution of nature, and manifestation of the
 Absolute. The Absolute does not change, or re-evolve. In the little
 amoeba is that infinite perfection latent. It is called amoeba from its
 amoeba covering, and from the amoeba to the perfect man the change is
@@ -111,7 +111,7 @@ small hole in the screen through which we can only catch a glimpse of
 it. Suppose this hole begins to increase; as it grows larger and larger,
 more and more of the scenery comes into view, and when the screen has
 vanished, we come face to face with the whole of the scenery. This scene
-outside is the soul, and the screen between us and the scenery is Mâyâ —
+outside is the soul, and the screen between us and the scenery is Māyā —
 time, space, and causation. There is a little hole somewhere, through
 which I can catch only a glimpse of the soul. When the hole is bigger, I
 see more and more, and when the screen has vanished, I know that I am
@@ -339,7 +339,7 @@ say, it will take millions of years.
 There was a certain king who had a huge number of courtiers, and each
 one of these courtiers declared he was ready to sacrifice his life for
 his master, and that he was the most sincere being ever born. In course
-of time, a Sannyâsin came to the king. The king said to him that there
+of time, a Sannyāsin came to the king. The king said to him that there
 never was a king who had so many sincere courtiers as he had. The
 Sannyasin smiled and said he did not believe that. The king said the
 Sannyasin could test it if he liked. So the Sannyasin declared that he

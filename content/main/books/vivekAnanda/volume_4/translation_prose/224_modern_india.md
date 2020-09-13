@@ -17,7 +17,7 @@ The Vedic priests base their superior strength on the knowledge of the
 sacrificial Mantras. (Vedic hymns uttered by the priests to invoke the
 Devas at the time of sacrifice.) By the power of these Mantras, the
 Devas are made to come down from their heavenly abodes, accept the drink
-and food offerings, and grant the prayers of the Yajamânas. (The men who
+and food offerings, and grant the prayers of the Yajamānas. (The men who
 perform sacrifices.) The kings as well as their subjects are, therefore,
 looking up to these priests for their welfare during their earthly life.
 Raja Soma (The name of the Soma plant as commonly found in the Vedas.
@@ -49,10 +49,10 @@ the huge sacrifices lasting over many years, the performers of the
 Ashvamedha and so on — those who showered, like incessant rain in the
 rainy season, countless wealth on the priests — their names, thanks to
 the grace of priests, are emblazoned in the pages of history. The name
-of Priyadarshi Dharmâshoka, (The name given to the great king, Asoka,
+of Priyadarshi Dharmāshoka, (The name given to the great king, Asoka,
 after he embraced Buddhism) the beloved of the gods, is nothing but a
 name in the priestly world, while Janamejaya, (The performer of the
-great snake-sacrifice of Mahâbhârata.) son of Parikshit, is a household
+great snake-sacrifice of Mahābhārata.) son of Parikshit, is a household
 word in every Hindu family.
 
 To protect the State, to meet the expenses of the personal comforts and
@@ -65,9 +65,9 @@ prey — his milch cows — are the Vaishyas.
 Neither under the Hindu kings, nor under the Buddhist rule, do we find
 the common subject-people taking any part in expressing their voice in
 the affairs of the State. True, Yudhishthira visits the houses of
-Vaishyas and even Shudras when he is in Vâranâvata; true, the subjects
-are praying for the installation of Râmachandra to the regency of
-Ayodhyâ; nay, they are even criticising the conduct of Sitâ and secretly
+Vaishyas and even Shudras when he is in Vāranāvata; true, the subjects
+are praying for the installation of Rāmachandra to the regency of
+Ayodhyā; nay, they are even criticising the conduct of Sitā and secretly
 making plans for the bringing about of her exile: but as a recognised
 rule of the State they have no direct voice in the supreme government.
 The power of the populace is struggling to express itself in indirect
@@ -101,7 +101,7 @@ the Rishi responsible for their prosperity and progress?
 Again, all those laws are in books. Between laws as codified in books
 and their operation in practical life, there is a world of difference.
 One Ramachandra is born after thousands of Agnivarnas[1](#fn1) pass
-away! Many kings show us the life of Chandâshoka[2](#fn2); Dharmâshokas
+away! Many kings show us the life of Chandāshoka[2](#fn2); Dharmāshokas
 are rare! The number of kings like Akbar, in whom the subjects find
 their life, is far less than that of kings like Aurangzeb who live on
 the blood of their people!
@@ -124,7 +124,7 @@ state of dependence and protection continues long, it becomes the cause
 of the destruction of the nation, and its ruin is not far to seek.
 
 Of course, it can be reasonably concluded that, when the government a
-country, is guided by codes of laws enjoined by Shâstras which are the
+country, is guided by codes of laws enjoined by Shāstras which are the
 outcome of knowledge inspired by the divine genius of great sages, such
 a government must lead to the unbroken welfare of the rich and the poor,
 the wise and the ignorant, the king and the subjects alike. But we have
@@ -140,7 +140,7 @@ independent small States scattered all over this country, and references
 are also found to this effect in many places of the Buddhistic
 literature. And there cannot be the least doubt about it that the germ
 of self-government was at least present in the shape of the village
-Panchâyat, (Literally, "government by five", in which the village-men
+Panchāyat, (Literally, "government by five", in which the village-men
 sit together and decide among themselves, all disputes.) which is still
 to be found in existence in many places of India. But the germ remained
 for ever the germ; the seed though put in the ground never grew into a
@@ -151,7 +151,7 @@ In the religious communities, among Sannyasins in the Buddhist
 monasteries, we have ample evidence to show that self-government was
 fully developed. Even now, one wonders to see how the power of the
 Panchayat system of the principles of self-government, is working
-amongst the Nâgâ Sannyasins — what deep respect the "Government by the
+amongst the Nāgā Sannyasins — what deep respect the "Government by the
 Five" commands from them, what effective individual rights each Naga can
 exercise within his own sect, what excellent working of the power of
 organisation and concerted action they have among themselves!
@@ -166,7 +166,7 @@ any remnant of such a will, its fulfilment has now become an
 impossibility. For Buddhism has shaken the thrones of all the
 oblation-eating gods and brought them down from their heavenly
 positions. The state of being a Buddha is superior to the heavenly
-positions of many a Brahmâ or an Indra, who vie with each other in
+positions of many a Brahmā or an Indra, who vie with each other in
 offering their worship at the feet of the Buddha, the God-man! And to
 this Buddhahood, every man has the privilege to attain; it is open to
 all even in this life. From the descent of the gods, as a natural
@@ -176,22 +176,22 @@ is gone.
 Accordingly, the reins of that mighty sacrificial horse — the royal
 power — are no longer held in the firm grasp of the Vedic priest; and
 being now free, it can roam anywhere by its unbridled will. The centre
-of power in this period is neither with the priests chanting the Sâma
+of power in this period is neither with the priests chanting the Sāma
 hymns and performing the Yajnas according to the Yajur-Veda; nor is the
 power vested in the hands of Kshatriya kings separated from each other
 and ruling over small independent States. But the centre of power in
 this age is in emperors whose unobstructed sway extend over vast areas
 bounded by the ocean, covering the whole of India from one end to the
-other. The leaders of this age are no longer Vishvâmitra or Vasishtha,
+other. The leaders of this age are no longer Vishvāmitra or Vasishtha,
 but emperors like Chandragupta, Dharmashoka, and others. There never
 were emperors who ascended the throne of India and led her to the
 pinnacle of her glory such as those lords of the earth who ruled over
 her in paramount sway during the Buddhistic period. The end of this
-period is characterised by the appearance of Râjput power on the scene
+period is characterised by the appearance of Rājput power on the scene
 and the rise of modern Hinduism. With the rise of Rajput power, on the
 decline of Buddhism, the sceptre of the Indian empire, dislodged from
 its paramount power, was again broken into a thousand pieces and wielded
-by small powerless hands. At this time, the Brâhminical (priestly) power
+by small powerless hands. At this time, the Brāhminical (priestly) power
 again succeeded in raising its head, not as an adversary as before, but
 this time as an auxiliary to the royal supremacy.
 
@@ -209,7 +209,7 @@ common opponents, especially the Buddhists of the time, and on similar
 other deeds. Being steeped in all the vices consequent on such a union,
 e.g., the sucking of the blood of the masses, taking revenge on the
 enemy, spoliation of others' property, etc., they in vain tried to
-imitate the Râjasuya and other Vedic sacrifices of the ancient kings,
+imitate the Rājasuya and other Vedic sacrifices of the ancient kings,
 and only made a ridiculous farce of them. The result was that they were
 bound hand and foot by a formidable train of sycophantic attendance and
 its obsequious flatteries, and being entangled in an interminable net of
@@ -218,9 +218,9 @@ became a cheap and ready prey to the Mohammeden invaders from the West.
 
 That priestly power which began its strife for superiority with the
 royal power from the Vedic times and continued it down the ages, that
-hostility against the Kshatra power, Bhagavân Shri Krishna succeeded by
+hostility against the Kshatra power, Bhagavān Shri Krishna succeeded by
 his super-human genius in putting a stop to, at least for the tired
-being, during his earthly existence. That Brâhmanya power was almost
+being, during his earthly existence. That Brāhmanya power was almost
 effaced from its field of work in India during the Jain and Buddhist
 revolutions, or, perhaps, was holding its feeble stand by being
 subservient to the strong antagonistic religions. That Brahmanya power,
@@ -234,7 +234,7 @@ itself to the easy means to dupe ignorant barbarians, brought into vogue
 mysterious rites and ceremonies backed by its new Mantras and the like;
 and in doing so, itself lost its former wisdom, its former vigour and
 vitality, and its own chaste habits of long acquirement. Thus it turned
-the whole Âryâvarta into a deep and vast whirlpool of the most vicious,
+the whole Âryāvarta into a deep and vast whirlpool of the most vicious,
 the most horrible, the most abominable, barbarous customs; and as the
 inevitable consequence of countenancing these detestable customs and
 superstitions, it soon lost all its own internal strength and stamina
@@ -266,7 +266,7 @@ On one side, the royal power is now centred in kings professing a
 different religion and given to different customs. On the other, the
 priestly power has been entirely displaced from its influential position
 as the controller and lawgiver of the society. The Koran and its code of
-laws have taken the place of the Dharma Shâstras of Manu and others. The
+laws have taken the place of the Dharma Shāstras of Manu and others. The
 Sanskrit language has made room for the Persian and the Arabic. The
 Sanskrit language has to remain confined only to the purely religious
 writings and religious matters of the conquered and detested Hindu, and,
@@ -292,10 +292,10 @@ days.
 Crushing the Brahminical supremacy under his feet the Mussulman king was
 able to restore to a considerable extent the lost glories of such
 dynasties of emperors as the Maurya, the Gupta, the Andhra, and the
-Kshâtrapa. (The Persian governors of Âryâvarta and Gujarat.)
+Kshātrapa. (The Persian governors of Âryāvarta and Gujarat.)
 
-Thus the priestly power — which sages like Kumârila, Shankara, and
-Râmânuja tried to re-establish, which for some time was supported by the
+Thus the priestly power — which sages like Kumārila, Shankara, and
+Rāmānuja tried to re-establish, which for some time was supported by the
 sword of the Rajput power, and which tried to rebuild its structure on
 the fall of its Jain and Buddhist adversaries — was under Mohammedan
 rule laid to sleep for ever, knowing no awakening. In this period, the
@@ -522,7 +522,7 @@ distress, fear, anger, malice, spirit of retaliation, and the like
 passions of man, leaving the palpable force of arms, leaving the gross
 material methods to gain the end in view which every one can understand,
 substitute in their stead the mysterious mental processes like
-Stambhana, Uchchâtana, Vashikarana, and Mârana[3](#fn3) for their
+Stambhana, Uchchātana, Vashikarana, and Mārana[3](#fn3) for their
 fructification — there a cloud of smoky indistinctness, as it were,
 naturally envelops the mental atmosphere of these men who often live and
 move in such hazy worlds of obscure mysticism. No straight line of
@@ -589,7 +589,7 @@ trammelled in the shackles of priesthood, rend this net and take to the
 profession of other castes in order to earn money thereby — them, the
 society immediately dispossesses of their priestly rights. Society has
 no faith in the Brahminhood of the so-called Brahmins who, instead of
-keeping the Shikhâ, (The sacred tuft or lock of hair left on the crown
+keeping the Shikhā, (The sacred tuft or lock of hair left on the crown
 of the head at tonsure.) part their hair, who, giving up their ancient
 habits and ancestral customs, clothe themselves in semi European dress
 and adopt the newly introduced usages from the West in a hybrid fashion.
@@ -606,11 +606,11 @@ In Gujarat, each secondary sect of the Brahmins is divided into two
 subdivisions, one being those who still stick to the priestly
 profession, while the other lives by other professions. There only the
 first subdivisions, carrying on the priestly profession, are called
-"Brâhmanas", and though the other subdivisions are by lineage
+"Brāhmanas", and though the other subdivisions are by lineage
 descendants from Brahmin fathers, yet the former do not link themselves
 in matrimonial relation with the latter. For example, by the name of
-"Nâgara Brâhmana" are meant only those Brahmins who are priests living
-on alms; and by the name "Nâgara" only are meant those Brahmins who have
+"Nāgara Brāhmana" are meant only those Brahmins who are priests living
+on alms; and by the name "Nāgara" only are meant those Brahmins who have
 accepted service under the Government, or those who have been carrying
 on the Vaishya's profession. But it appears that such distinctions will
 not long continue in these days in Gujarat. Even the sons of the "Nagara
@@ -618,7 +618,7 @@ Brahmanas" are nowadays getting English education, and entering into
 Government service, or adopting some mercantile business. Even orthodox
 Pandits of the old school, undergoing pecuniary difficulties, are
 sending their sons to the colleges of the English universities or making
-them choose the callings of Vaidyas, Kâyasthas, and other non-Brahmin
+them choose the callings of Vaidyas, Kāyasthas, and other non-Brahmin
 castes. If the current of affairs goes on running in this course, then
 it is a question of most serious reflection, no doubt, how long more
 will the priestly class continue on India's soil. Those who lay the
@@ -659,7 +659,7 @@ They are the centres where all the forces of society, otherwise loosely
 scattered about, are made to converge, and from which they start and
 course through the body politic and animate society.
 
-As during the Brâhminical supremacy, at the first stage is the awakening
+As during the Brāhminical supremacy, at the first stage is the awakening
 of the first impulse for search after knowledge, and later the continual
 and careful fostering of the growth of that impulse still in its infancy
 — so, during the Kshatriya supremacy, a strong desire for pleasure
@@ -741,9 +741,9 @@ on its victory or defeat in this conflict.
 Such changes, revolutionizing society, have been happening in India
 again and again, only in this country they have been effected in the
 name of religion, for religion is the life of India, religion is the
-language of this country, the symbol of all its movements. The Chârvâka,
-the Jain, the Buddhist, Shankara, Ramanuja, Kabir, Nânak, Chaitanya, the
-Brâhmo Samâj, the Arya Samaj — of all these and similar other sects, the
+language of this country, the symbol of all its movements. The Chārvāka,
+the Jain, the Buddhist, Shankara, Ramanuja, Kabir, Nānak, Chaitanya, the
+Brāhmo Samāj, the Arya Samaj — of all these and similar other sects, the
 wave of religion, foaming, thundering, surging, breaks in the front,
 while in the rear follows the filling-up of social wants. If all desires
 can be accomplished by the mere utterance of some meaningless syllables,
@@ -968,7 +968,7 @@ power of his wisdom were employed for the benefit of an alien caste —
 and his own caste-people reaped no benefits of his attainments; and not
 only so, the good-for-nothing people, the scum and refuse of the higher
 castes, were cast off and thrown into the Shudra class to swell their
-number. Vasishtha, Nârada, Satyakâma Jâbâla, Vyâsa, Kripa, Drona, Karna,
+number. Vasishtha, Nārada, Satyakāma Jābāla, Vyāsa, Kripa, Drona, Karna,
 and others of questionable parentage[7](#fn7) were raised to the
 position of a Brahmin or a Kshatriya, in virtue of their superior
 learning or valour; but it remains to be seen how the prostitute,
@@ -993,7 +993,7 @@ monopolise learning or wield the power of riches or arms, the source of
 its power is always the subject masses. By so much as the class in power
 severs itself from this source, by so much is it sure to become weak.
 But such is the strange irony of fate, such is the queer working of
-Mâyâ, that they from whom this power is directly or indirectly drawn, by
+Māyā, that they from whom this power is directly or indirectly drawn, by
 fair means or foul — by deceit, stratagem, force, or by voluntary gift —
 they soon cease to be taken into account by the leading class. When in
 course of time, the priestly power totally estranged itself from the
@@ -1042,7 +1042,7 @@ conceivable; this is the last rung of the ladder of India's life!
 
 The present government of India has certain evils attendant on it, and
 there are some very great and good parts in it as well. Of highest good
-is this, that after the fall of the Pâtaliputra Empire till now, India
+is this, that after the fall of the Pātaliputra Empire till now, India
 was never under the guidance of such a powerful machinery of government
 as the British, wielding the sceptre throughout the length and breadth
 of the land. And under this Vaishya supremacy, thanks to the strenuous
@@ -1106,7 +1106,7 @@ their limbs"? That recently in Eastern Aryavarta, the different
 caste-people seem to develop a feeling of united sympathy amidst
 themselves with a view to ameliorating their present social condition —
 that in the Mahratta country, the Brahmins have begun to sing paeans in
-praise of the "Marâthâ" race — these, the lower castes cannot yet
+praise of the "Marāthā" race — these, the lower castes cannot yet
 believe to be the outcome of pure disinterestedness.
 
 But gradually the idea is being formed in the minds of the English
@@ -1162,8 +1162,8 @@ splendid apparel, magnificent palaces, new modes of conveyance, new
 manners, new fashions dressed in which moves about the well-educated
 girl in shameless freedom — all these are arousing unfelt desires.
 Again, the scene changes, and in its place appear, with stern presence,
-Sitâ, Sâvitri, austere religious vows, fastings, the forest retreat, the
-matted locks and orange garb of the semi-naked Sannyasin, Samâdhi and
+Sitā, Sāvitri, austere religious vows, fastings, the forest retreat, the
+matted locks and orange garb of the semi-naked Sannyasin, Samādhi and
 the search after the Self. On one side is the independence of Western
 societies based on self-interest; on the other is the extreme
 self-sacrifice of the Aryan society. In this violent conflict, is it
@@ -1212,7 +1212,7 @@ already in the jaws of death. Yes, learn we must many things from the
 West: but there are fears as well.
 
 A certain young man of little understanding used always to blame the
-Hindu Shâstras before Shri Ramakrishna. One day he praised the
+Hindu Shāstras before Shri Ramakrishna. One day he praised the
 Bhagavad-Gita, on which Shri Ramakrishna said, "Methinks, some European
 Pandit has praised the Gita, and so he has also followed suit."
 
@@ -1279,7 +1279,7 @@ means of thy disgraceful cowardice, that freedom deserved only by the
 brave and the heroic? O India! Forget not that the ideal of thy
 womanhood is Sita, Savitri, Dama yanti; forget not that the God thou
 worshippest is the great Ascetic of ascetics, the all-renouncing
-Shankara, the Lord of Umâ; forget not that thy marriage, thy wealth, thy
+Shankara, the Lord of Umā; forget not that thy marriage, thy wealth, thy
 life are not for sense-pleasure, are not for thy individual personal
 happiness; forget not that thou art born as a sacrifice to the Mother's
 altar; forget not that thy social order is but the reflex of the
@@ -1312,13 +1312,13 @@ take away my unmanliness, and make me a Man!"
     person's ruin, removing him from a position, subduing and getting
     mastery over him, and killing him by means of magical incantations.
 4.  [](#txt4)[^](#txt4)Taken from one of the well-known didactic verses
-    of the statesman-Pandit, Chânakya, which runs thus: "Let the father
+    of the statesman-Pandit, Chānakya, which runs thus: "Let the father
     treat with tenderness the child till he is five, let him (the
     father) reprove him (the child) for the next ten years; when the son
     attains the age of sixteen, the father ought to deal with him as his
     friend."
-5.  [^](#txt5)His story occurs in the Bhâgavata. The King Vena thought
-    himself higher than Brahmâ, Vishnu, and Maheshvara, and declared
+5.  [^](#txt5)His story occurs in the Bhāgavata. The King Vena thought
+    himself higher than Brahmā, Vishnu, and Maheshvara, and declared
     accordingly that all worship should be offered to him. The Rishis
     once sought him and tried by good advice to make him give up such
     egoism, but he in return insulted them and ordered them to worship
@@ -1327,19 +1327,19 @@ take away my unmanliness, and make me a Man!"
 6.  [^](#txt6)Socialism took its birth in 1835 A.D. The initiator of
     Anarchism was Bakunin, who was born in 1814 A.D. Nihilism was first
     inaugurated in Russia in 1862.
-7.  [](#txt7)[^](#txt7)(1) Vasishtha's father was Brahmâ and mother
+7.  [](#txt7)[^](#txt7)(1) Vasishtha's father was Brahmā and mother
     unknown. (2) Narada's mother was a maidservant and father
     unknown. (3) Satyakama Jabala's mother was a maidservant, by name
-    Jabâlâ, and father unknown. (4) Vyasa's father was a Brahmin sage
-    Parâshara, and mother Matsyagandhâ, the virgin daughter of a
-    fisherman. (5) Kripa's father was a Brahmin sage, Sharadvân Gautama,
-    and mother the goddess Jânapadi. (6) Drona's father was the Brahmin
-    sage, Bharadvâja, and mother the goddess Ghritâchi. (7) Karna's
+    Jabālā, and father unknown. (4) Vyasa's father was a Brahmin sage
+    Parāshara, and mother Matsyagandhā, the virgin daughter of a
+    fisherman. (5) Kripa's father was a Brahmin sage, Sharadvān Gautama,
+    and mother the goddess Jānapadi. (6) Drona's father was the Brahmin
+    sage, Bharadvāja, and mother the goddess Ghritāchi. (7) Karna's
     mother was Kunti, who conceived during her maidenhood, and father
     the god sun. For detailed information vide the accounts of their
     births: for (1), see chapter 174, Âdiparva, Mahabharata, or in
     Rigveda, 7, 33, 11-13; for (2), chapter 6, Skandha I, Srimad
-    Bhagavata, for (3) section 4 Prapâthaka iv, Chhândogya Upanishad;
+    Bhagavata, for (3) section 4 Prapāthaka iv, Chhāndogya Upanishad;
     for (4), (5), (6) and (7) chapters 105, 130, 130 and 111,
     respectively of the Âdiparva of the Mahabharata.
 8.  [^](#txt8)In her anxiety to save her reputation, Kunti threw the

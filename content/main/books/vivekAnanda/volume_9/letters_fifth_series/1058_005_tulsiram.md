@@ -20,7 +20,7 @@ Premananda\] is here, going up in a day or two to Allahabad. I too am
 going off from this place very soon. I go perhaps to Bareilly and up.
 What is Balaram Babu \[Balaram Bose\] doing?
 
-My Pranâms etc. to you all.
+My Pranāms etc. to you all.
 
 Yours affectionately,  
 NARENDRA

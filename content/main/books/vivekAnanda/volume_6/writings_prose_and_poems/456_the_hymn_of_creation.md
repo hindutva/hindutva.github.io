@@ -10,7 +10,7 @@ title: THE HYMN OF CREATION
 
 ## THE HYMN OF CREATION
 
-(A translation of the *Nâsadiya-Sukta*, Rig-Veda, X. 129.)
+(A translation of the *Nāsadiya-Sukta*, Rig-Veda, X. 129.)
 
 Existence was not then, nor non-existence,  
 The world was not, the sky beyond was neither.  

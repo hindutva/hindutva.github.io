@@ -16,7 +16,7 @@ given by the Swami to questions
 There have also been added notes and selections from unpublished
 lectures and discourses.)
 
-In the matter of the projection of Akâsha and Prâna into manifested form
+In the matter of the projection of Akāsha and Prāna into manifested form
 and the return to fine state, there is a good deal of similarity between
 Indian thought and modern science. The moderns have their evolution, and
 so have the Yogis. But I think that the Yogis' explanation of evolution

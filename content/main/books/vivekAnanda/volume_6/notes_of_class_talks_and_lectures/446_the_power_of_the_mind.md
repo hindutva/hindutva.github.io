@@ -55,7 +55,7 @@ could be angry or fight in his presence. Even the animals, ferocious
 animals, would be peaceful before him.
 
 I once knew a Yogi, a very old man, who lived in a hole in the ground
-all by himself. (Pavhâri Bâbâ of Ghazipur. ([See Vol.
+all by himself. (Pavhāri Bābā of Ghazipur. ([See Vol.
 IV.](../../volume_4/writings_prose/sketch_of_the_life_of_pavhari_baba.htm)
 )) All he had was a pan or two to cook his meals in. He ate very little,
 and wore scarcely anything, and spent most of his time meditating.

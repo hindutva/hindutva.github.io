@@ -14,9 +14,9 @@ title: JNANA YOGA - III
 Swami, Miss S. E. Waldo. Swami Saradananda, while he was in America
 (1896), copied them out from her notebook — *Ed*.)
 
-Jnâna teaches that the world should be given up, but not on that account
+Jnāna teaches that the world should be given up, but not on that account
 to be abandoned. To be *in* the world, but not *of* it, is the true test
-of the Sannyâsin. This idea of renunciation has been in some form common
+of the Sannyāsin. This idea of renunciation has been in some form common
 to nearly all religions. Jnana demands that we look upon all alike, that
 we see only "sameness". Praise and blame, good and bad, even heat and
 cold, must be equally acceptable to us. In India there are many holy men
@@ -36,8 +36,8 @@ Real Existence, the Soul of our soul, the Self of the universe, the Life
 of our life, our true Self. As long as we believe ourselves to be even
 the least different from God, fear remains with us; but when we know
 ourselves to be the One, fear goes: of what can we be afraid? By sheer
-force of will the Jnâni rises beyond body, beyond mind, making this
-universe zero. Thus he destroys Avidyâ and knows his true Self, the
+force of will the Jnāni rises beyond body, beyond mind, making this
+universe zero. Thus he destroys Avidyā and knows his true Self, the
 Âtman. Happiness and misery are only in the senses, they cannot touch
 our real Self. The soul is beyond time, space, and causality — therefore
 unlimited, omnipresent.
@@ -71,7 +71,7 @@ himself day and night, "There are no beliefs, no sacred words, no
 heaven, no hell, no creed, no church — there is only Atman." When
 everything has been thrown away until what cannot be thrown away is
 reached, that is the Self. The Jnani takes nothing for granted; he
-analyses by pure reason and force of will, until he reaches Nirvâna
+analyses by pure reason and force of will, until he reaches Nirvāna
 which is the extinction of all relativity. No description or even
 conception of this state is possible. Jnana is never to be judged by any
 earthly result. Be not like the vulture which soars almost beyond sight,
@@ -79,7 +79,7 @@ but which is ever ready to swoop downwards at the sight of a bit of
 carrion. Ask not for healing, or longevity, or prosperity, ask only to
 be free.
 
-We are "Existence, Knowledge, Bliss" (Sachchidânanda). Existence is the
+We are "Existence, Knowledge, Bliss" (Sachchidānanda). Existence is the
 last generalisation in the universe; so we exist, we know it; and bliss
 is the natural result of existence without alloy. Now and then we know a
 moment of supreme bliss, when we ask nothing, give nothing, and know

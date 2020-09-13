@@ -34,7 +34,7 @@ my nature tends towards scholarship and meditation. I think I have
 worked enough, now I want rest and to teach a little to those that have
 come to me from my Gurudeva (venerable Guru). You have known now what
 you can do, for it is really you, young men of Madras, that have done
-all; I am only the figurehead. I am a Tyâgi (detached) monk. I only want
+all; I am only the figurehead. I am a Tyāgi (detached) monk. I only want
 one thing. I do not believe in a God or religion which cannot wipe the
 widow's tears or bring a piece of bread to the orphan's mouth. However
 sublime be the theories, however well-spun may be the philosophy — I do
@@ -49,7 +49,7 @@ everything will come right. Love never fails, my son; today or tomorrow
 or ages after, truth will conquer. Love shall win the victory. Do you
 love your fellow men? Where should you go to seek for God — are not all
 the poor, the miserable, the weak, Gods? Why not worship them first? Why
-go to dig a well on the shores of the Gangâ? Believe in the omnipotent
+go to dig a well on the shores of the Gangā? Believe in the omnipotent
 power of love. Who cares for these tinsel puffs of name? I never keep
 watch of what the newspapers are saying. Have you love? — You are
 omnipotent. Are you perfectly unselfish? If so, you are irresistible. It

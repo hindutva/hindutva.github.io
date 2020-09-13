@@ -29,7 +29,7 @@ intense misery because he has not attained to God, has not known that
 which is the only thing worthy to be known, and becomes in consequence
 very dissatisfied and almost mad — then there is Viraha; and this state
 of the mind makes him feel disturbed in the presence of anything other
-than the beloved (Ekarativichikitsâ). In earthly love we see how often
+than the beloved (Ekarativichikitsā). In earthly love we see how often
 this Viraha comes. Again, when men are really and intensely in love with
 women or women with men, they feel a kind of natural annoyance in the
 presence of all those whom they do not love. Exactly the same state of
@@ -43,7 +43,7 @@ reached when life itself is maintained for the sake of the one Ideal of
 Love, when life itself is considered beautiful and worth living only on
 account of that Love (तदर्थप्राणसंस्थानं). Without it, such a life would
 not remain even for a moment. Life is sweet, because it thinks of the
-Beloved. Tadiyatâ (*His-ness*) comes when a man becomes perfect
+Beloved. Tadiyatā (*His-ness*) comes when a man becomes perfect
 according to Bhakti — when he has become blessed, when he has attained
 God, when he has touched the feet of God, as it were. Then his whole
 nature is purified and completely changed. All his purpose in life then

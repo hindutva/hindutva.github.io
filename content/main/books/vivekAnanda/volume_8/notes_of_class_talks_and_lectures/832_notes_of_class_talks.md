@@ -14,7 +14,7 @@ WHEN WILL CHRIST COME AGAIN?
 
 I never take much notice of these things. I have come to deal with
 principles. I have only to preach that God comes again and again, and
-that He came in India as Krishna, Râma, and Buddha, and that He will
+that He came in India as Krishna, Rāma, and Buddha, and that He will
 come again. It can almost be demonstrated that after each 500 years the
 world sinks, and a tremendous spiritual wave comes, and on the top of
 the wave is a Christ.

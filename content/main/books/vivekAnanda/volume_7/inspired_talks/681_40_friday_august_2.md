@@ -14,13 +14,13 @@ title: 'RECORDED BY MISS S. E. WALDO
 
 FRIDAY, *August 2, 1895*.
 
-Nishthâ (devotion to one ideal) is the beginning of realisation. "Take
+Nishthā (devotion to one ideal) is the beginning of realisation. "Take
 the honey out of all flowers; sit and be friendly with all, pay
 reverence to all, say to all, 'Yes, brother, yes, brother', but keep
 firm in your own way." A higher stage is actually to take the position
 of the other. If I am all, why can I not really and actively sympathise
 with my brother and see with his eyes? While I am weak, I must stick to
-one course (Nishthâ), but when I am strong, I can feel with every other
+one course (Nishthā), but when I am strong, I can feel with every other
 and perfectly sympathise with his ideas.
 
 The old idea was: "Develop one idea at the expense of all the rest". The

@@ -37,7 +37,7 @@ neo-Platonists, we can find traces of Indian thought.
 The Swami then traced in detail the influence of Indian thought on
 Europe and showed how at different periods Spain, Germany, and other
 European countries were greatly influenced by it. The Indian prince,
-Dârâ- Shuko, translated the Upanishads into Persian, and a Latin
+Dārā- Shuko, translated the Upanishads into Persian, and a Latin
 translation of the same was seen by Schopenhauer, whose philosophy was
 moulded by these. Next to him, the philosophy of Kant also shows traces
 of the teachings of the Upanishads. In Europe it is the interest in
@@ -65,9 +65,9 @@ severe written in language archaic and simple; their grammar was very
 crude, so much so that it was said that some part of the Vedas had no
 meaning.
 
-He then dilated on the two portions of the Vedas — the Karma Kânda and
-the Jnâna Kânda. The Karma Kanda, he said, were the Samhitâs and the
-Brâhmanas. The Brahmanas dealt with sacrifices. The Samhitas were songs
+He then dilated on the two portions of the Vedas — the Karma Kānda and
+the Jnāna Kānda. The Karma Kanda, he said, were the Samhitās and the
+Brāhmanas. The Brahmanas dealt with sacrifices. The Samhitas were songs
 composed in Chhandas known as Anushtup, Trishtup, Jagati, etc. Generally
 they praised deities such as Varuna or Indra; and the question arose who
 were these deities; and if any theories were raised about them, they
@@ -108,7 +108,7 @@ again, adjectives such as all-powerful, all-pervading, were attributed
 to him; the same was the case with Varuna. In this way it went on, and
 some of these Mantras depicting the characteristics of these gods were
 marvellous, and the language was exceedingly grand. The speaker here
-repeated the famous *Nâsadiya Sukta* which describes the Pralaya state
+repeated the famous *Nāsadiya Sukta* which describes the Pralaya state
 and in which occurs the idea of "Darkness covering darkness", and asked
 if the persons that described these sublime ideas in such poetic thought
 were uncivilised and uncultured, then what we should call ourselves. It
@@ -165,7 +165,7 @@ theories, and reconciled them by saying that each one of these was like
 a step by which one passed before the other was reached; the final
 evolution to Advaitism was the natural outcome, and the last step was
 "Tattvamasi". He pointed out where even the great commentators
-Shankarâchârya, Râmânujâchârya, and Madhvâchârya had committed mistakes.
+Shankarāchārya, Rāmānujāchārya, and Madhvāchārya had committed mistakes.
 Each one believed in the Upanishads as the sole authority, but thought
 that they preached one thing, one path only. Thus Shankaracharya
 committed the mistake in supposing that the whole of the Upanishads
@@ -177,8 +177,8 @@ true that the Upanishads had one thing to teach, but that was taught as
 a going up from one step to another. Swamiji regretted that in modern
 India the spirit of religion is gone; only the externals remain. The
 people are neither Hindus nor Vedantists. They are merely
-don't-touchists; the kitchen is their temple and Hândi Bartans (cooking
-pots) are their Devatâ (object of worship). This state of things must
+don't-touchists; the kitchen is their temple and Hāndi Bartans (cooking
+pots) are their Devatā (object of worship). This state of things must
 go. The sooner it is given up the better for our religion. Let the
 Upanishads shine in their glory, and at the same time let not quarrels
 exist amongst different sects.

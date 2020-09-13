@@ -14,7 +14,7 @@ title: THE DANCE OF SHIVA
 
 Lo, the God is dancing  
 — Shiva the all-destroyer and Lord of creation,  
-The Master of Yoga and the wielder of Pinâka. (Trident.)  
+The Master of Yoga and the wielder of Pināka. (Trident.)  
 His flaming locks have filled the sky,  
 Seven worlds play the rhythm  
 As the trembling earth sways almost to dissolution,  

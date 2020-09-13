@@ -40,7 +40,7 @@ I felt that the sun, moon, space, time, ether, and all had been reduced
 to a homogeneous mass and then melted far away into the unknown; the
 body-consciousness had almost vanished, and I had nearly merged in the
 Supreme. But I had just a trace of the feeling of Ego, so I could again
-return to the world of relativity from the Samâdhi. In this state of
+return to the world of relativity from the Samādhi. In this state of
 Samadhi all the difference between "I" and the "Brahman" goes away,
 everything is reduced into unity, like the waters of the Infinite Ocean
 — water everywhere, nothing else exists — language and thought, all fail
@@ -62,7 +62,7 @@ Swamiji: Shri Ramakrishna used to say that the Avataras alone can
 descend to the ordinary plane from that state of Samadhi, for the good
 of the world. Ordinary Jivas do not; immersed in that state, they remain
 alive for a period of twenty-one days; after that, their body drops like
-a sere leaf from the tree of Samsâra (world).
+a sere leaf from the tree of Samsāra (world).
 
 Disciple: When in Samadhi the mind is merged, and there remain no waves
 on the surface of consciousness, where then is the possibility of mental
@@ -83,7 +83,7 @@ in that state all the modifications of the mind and all desires are
 stamped out.
 
 Swamiji: How then can there be projection of the universe after
-Mahâpralaya (final dissolution)? At Maha pralaya everything is merged in
+Mahāpralaya (final dissolution)? At Maha pralaya everything is merged in
 the Brahman. But even after that, one hears and reads of creation in the
 scriptures, that projection and contraction (of the universe) go on in
 wave forms. Like the fresh creation and dissolution of the universe
@@ -136,7 +136,7 @@ duality of the knower, knowledge, and the instrument of knowledge etc.
 When the mind is merged, that state is perceived. I say it is
 "perceived," because there is no other word to express that state.
 Language cannot express that state. Shankaracharya has styled it
-"Transcendent Perception" (Aparokshânubhuti). Even after that
+"Transcendent Perception" (Aparokshānubhuti). Even after that
 transcendent perception Avataras descend to the relative plane and give
 glimpses of that — therefore it is said that the Vedas and other
 scriptures have originated from the perception of Seers. The case of

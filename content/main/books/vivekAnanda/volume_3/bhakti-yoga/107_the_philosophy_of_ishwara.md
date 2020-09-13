@@ -12,14 +12,14 @@ CHAPTER II
 
 ## THE PHILOSOPHY OF ISHVARA
 
-Who is Ishvara? Janmâdyasya yatah — "From whom is the birth,
+Who is Ishvara? Janmādyasya yatah — "From whom is the birth,
 continuation, and dissolution of the universe," — He is Ishvara — "the
 Eternal, the Pure, the Ever-Free, the Almighty, the All-Knowing, the
 All-Merciful, the Teacher of all teachers"; and above all, Sa Ishvarah
 anirvachaniya-premasvarupah — "He the Lord is, of His own nature,
 inexpressible Love." These certainly are the definitions of a Personal
 God. Are there then two Gods — the "Not this, not this," the
-Sat-chit-ânanda, the Existence-Knowledge-Bliss of the philosopher, and
+Sat-chit-ānanda, the Existence-Knowledge-Bliss of the philosopher, and
 this God of Love of the Bhakta? No, it is the same Sat-chit-ananda who
 is also the God of Love, the impersonal and personal in one. It has
 always to be understood that the Personal God worshipped by the Bhakta
@@ -39,18 +39,18 @@ the highest manifestation of the Absolute Reality, or in other words,
 the highest possible reading of the Absolute by the human mind. Creation
 is eternal, and so also is Ishvara.
 
-In the fourth Pâda of the fourth chapter of his *Sutras*, after stating
+In the fourth Pāda of the fourth chapter of his *Sutras*, after stating
 the almost infinite power and knowledge which will come to the liberated
-soul after the attainment of Moksha, Vyâsa makes the remark, in an
+soul after the attainment of Moksha, Vyāsa makes the remark, in an
 aphorism, that none, however, will get the power of creating, ruling,
 and dissolving the universe, because that belongs to God alone. In
 explaining the Sutra it is easy for the dualistic commentators to show
 how it is ever impossible for a subordinate soul, Jiva, to have the
 infinite power and total independence of God. The thorough dualistic
-commentator Madhvâchârya deals with this passage in his usual summary
-method by quoting a verse from the *Varâha Purâna*.
+commentator Madhvāchārya deals with this passage in his usual summary
+method by quoting a verse from the *Varāha Purāna*.
 
-In explaining this aphorism the commentator Râmânuja says, "This doubt
+In explaining this aphorism the commentator Rāmānuja says, "This doubt
 being raised, whether among the powers of the liberated souls is
 included that unique power of the Supreme One, that is, of creation etc.
 of the universe and even the Lordship of all, or whether, without that,
@@ -79,10 +79,10 @@ boy, alone, in the beginning there existed the One without a second.
 That saw and felt, "I will give birth to the many." That projected
 heat.' — 'Brahman indeed alone existed in the beginning. That One
 evolved. That projected a blessed form, the Kshatra. All these gods are
-Kshatras: Varuna, Soma, Rudra, Parjanya, Yama, Mrityu, Ishâna.' — 'Atman
+Kshatras: Varuna, Soma, Rudra, Parjanya, Yama, Mrityu, Ishāna.' — 'Atman
 indeed existed alone in the beginning; nothing else vibrated; He thought
 of projecting the world; He projected the world after.' — 'Alone
-Nârâyana existed; neither Brahmâ, nor Ishana, nor the Dyâvâ-Prithivi,
+Nārāyana existed; neither Brahmā, nor Ishana, nor the Dyāvā-Prithivi,
 nor the stars, nor water, nor fire, nor Soma, nor the sun. He did not
 take pleasure alone. He after His meditation had one daughter, the ten
 organs, etc.' — and in others as, 'Who living in the earth is separate
@@ -110,11 +110,11 @@ consonance with the high destiny of divine humanity. Those who aspire to
 retain their individual mind even after liberation and to remain
 distinct will have ample opportunity of realising their aspirations and
 enjoying the blessing of the qualified Brahman. These are they who have
-been spoken of in the *Bhâgavata Purâna* thus: "O king, such are the,
+been spoken of in the *Bhāgavata Purāna* thus: "O king, such are the,
 glorious qualities of the Lord that the sages whose only pleasure is in
 the Self, and from whom all fetters have fallen off, even they love the
 Omnipresent with the love that is for love's sake." These are they who
-are spoken of by the Sânkhyas as getting merged in nature in this cycle,
+are spoken of by the Sānkhyas as getting merged in nature in this cycle,
 so that, after attaining perfection, they may come out in the next as
 lords of world-systems. But none of these ever becomes equal to God
 (Ishvara). Those who attain to that state where there is neither
@@ -126,7 +126,7 @@ who is seen by whom?" — such persons have gone beyond everything to
 as "Not this, not this"; but for those who cannot, or will not reach
 this state, there will inevitably remain the triune vision of the one
 undifferentiated Brahman as nature, soul, and the interpenetrating
-sustainer of both — Ishvara. So, when Prahlâda forgot himself, he found
+sustainer of both — Ishvara. So, when Prahlāda forgot himself, he found
 neither the universe nor its cause; all was to him one Infinite,
 undifferentiated by name and form; but as soon as he remembered that he
 was Prahlada, there was the universe before him and with it the Lord of
@@ -151,7 +151,7 @@ unlimited because of the scriptural texts, 'They attain their own
 kingdom', 'To him all the gods offer worship', 'Their desires are
 fulfilled in all the worlds'. As an answer to this, Vyasa writes,
 'Without the power of ruling the universe.' Barring the power of
-creation etc. of the universe, the other powers such as Animâ etc. are
+creation etc. of the universe, the other powers such as Animā etc. are
 acquired by the liberated. As to ruling the universe, that belongs to
 the eternally perfect Ishvara. Why? Because He is the subject of all the
 scriptural texts as regards creation etc., and the liberated souls are

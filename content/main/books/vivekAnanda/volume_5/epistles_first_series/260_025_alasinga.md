@@ -78,8 +78,8 @@ ignorance? Where is the way out? Who feels for them? They cannot find
 light or education. Who will bring the light to them — who will travel
 from door to door bringing education to them? Let these people be your
 God — think of them, work for them, pray for them incessantly — the Lord
-will show you the way. Him I call a Mahâtman (great soul) whose heart
-bleeds for the poor, otherwise he is a Durâtman (wicked soul). Let us
+will show you the way. Him I call a Mahātman (great soul) whose heart
+bleeds for the poor, otherwise he is a Durātman (wicked soul). Let us
 unite our wills in continued prayer for their good. We may die unknown,
 unpitied, unbewailed, without accomplishing anything — but not one
 thought will be lost. It will take effect, sooner or later. My heart is

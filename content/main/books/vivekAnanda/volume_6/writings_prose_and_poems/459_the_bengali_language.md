@@ -65,9 +65,9 @@ claims to superiority of your own district or village.
 Language is the vehicle of ideas. It is the ideas that are of prime
 importance, language comes after. Does it look well to place a monkey on
 a horse that has trappings of diamonds and pearls? Just look at
-Sanskrit. Look at the Sanskrit of the Brâhmanas, at Shabara Swâmi's
-commentary on the Mimâmsâ philosophy, the *Mahâbhâshya* of Patanjali,
-and, finally, at the great Commentary of Achârya Shankara: and look also
+Sanskrit. Look at the Sanskrit of the Brāhmanas, at Shabara Swāmi's
+commentary on the Mimāmsā philosophy, the *Mahābhāshya* of Patanjali,
+and, finally, at the great Commentary of Achārya Shankara: and look also
 at the Sanskrit of comparatively recent times. You will at once
 understand that so long as a man is alive, he talks a living language,
 but when he is dead, he speaks a dead language. The nearer death

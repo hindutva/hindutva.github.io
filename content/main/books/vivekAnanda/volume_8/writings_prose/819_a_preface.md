@@ -24,7 +24,7 @@ the great soul who had renounced all for his love of Christ. That great
 soul whose words, living and burning, have cast such a spell for the
 last four hundred years over the hearts of myriads of men and women;
 whose influence today remains as strong as ever and is destined to
-endure for all time to come; before whose genius and Sâdhanâ (spiritual
+endure for all time to come; before whose genius and Sādhanā (spiritual
 effort) hundred of crowned heads have bent down in reverence; and before
 whose matchless purity the jarring sects of Christendom, whose name is
 legion, have sunk their differences of centuries in common veneration to
@@ -55,10 +55,10 @@ sects will be completely removed if we but once read this great book
 with the attention it deserves.
 
 All wise men think alike. The reader, while reading this book, will hear
-the echo of the Bhagavad-Gitâ over and over again. Like the
+the echo of the Bhagavad-Gitā over and over again. Like the
 Bhagavad-Gita it says, "Give up all Dharmas and follow Me". The spirit
 of humility, the panting of the distressed soul, the best expression of
-Dâsya Bhakti (devotion as a servant) will be found imprinted on every
+Dāsya Bhakti (devotion as a servant) will be found imprinted on every
 line of this great book and the reader's heart will be profoundly
 stirred by the author's thoughts of burning renunciation, marvelous
 surrender, and deep sense of dependence on the will of God. To those of
@@ -67,11 +67,11 @@ belittle this book because it is the work of a Christian, I shall quote
 only one aphorism of *Vaisheshika Darshana* and say nothing more. The
 aphorism is this: आप्तोपदेशं शब्दः — which means that the teachings of
 Siddha Purushas (perfected souls) have a probative force and this is
-technically known as Shabda Pramâna (verbal evidence). Rishi Jaimini,
+technically known as Shabda Pramāna (verbal evidence). Rishi Jaimini,
 the commentator, says that such Âpta Purushas (authorities) may be born
 both among the Aryans and the Mlechchhas.
 
-If in ancient times Greek astronomers like Yavanâchârya could have been
+If in ancient times Greek astronomers like Yavanāchārya could have been
 so highly esteemed by our Aryan ancestors, then it is incredible that
 this work of the lion of devotees will fail to be appreciated by my
 countrymen.

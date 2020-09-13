@@ -14,18 +14,18 @@ title: OUR PRESENT SOCIAL PROBLEMS
 ## OUR PRESENT SOCIAL PROBLEMS
 
 (Translated from a [Bengali letter](b8518e4trans_prose_social.pdf)
-written to Shrimati Mrinalini Bose from Deoghar (Vaidyanâth), on 23rd
+written to Shrimati Mrinalini Bose from Deoghar (Vaidyanāth), on 23rd
 December, 1898.)
 
 स ईशोऽनिर्वचनीयप्रेमस्वरूपः — "The Lord whose nature is unspeakable
-love." That this characteristic of God mentioned by Nârada is manifest
+love." That this characteristic of God mentioned by Nārada is manifest
 and admitted on all hands is the firm conviction of my life. The
 aggregate of many individuals is called Samashti (the whole), and each
 individual is called Vyashti (a part). You and I — each is Vyashti,
 society is Samashti. You, I, an animal, a bird, a worm, an insect, a
 tree, a creeper, the earth, a planet, a star — each is Vyashti, while
-this universe is Samashti, which is called Virât, Hiranyagarbha, or
-Ishvara in Vedânta, and Brahmâ, Vishnu, Devi, etc., in the Purânas.
+this universe is Samashti, which is called Virāt, Hiranyagarbha, or
+Ishvara in Vedānta, and Brahmā, Vishnu, Devi, etc., in the Purānas.
 Whether or not Vyashti has individual freedom, and if it has, what
 should be its measure, whether or not Vyashti should completely
 sacrifice its own will, its own happiness for Samashti — are the
@@ -39,7 +39,7 @@ individualism.
 Our motherland is a glowing example of the results and consequence of
 the eternal subjection of the individual to society and forced
 self-sacrifice by dint of institution and discipline. In this country
-men are born according to Shâstric injunctions, they eat and drink by
+men are born according to Shāstric injunctions, they eat and drink by
 prescribed rules throughout life, they go through marriage and kindred
 functions in the same way; in short, they even die according to Shastric
 injunctions. The hard discipline, with the exception of one great good
@@ -121,7 +121,7 @@ another such custom possible! Can there be anything but love between
 husband and wife in such a marriage!" such is the whine going round
 nowadays. But as to the men, the masters of the situation, there is no
 need of self-denial for them! Is there a virtue higher than serving
-others? But the same does not apply to Brâhmins — you others do it! The
+others? But the same does not apply to Brāhmins — you others do it! The
 truth is that in this country parents and relatives can ruthlessly
 sacrifice the best interests of their children and others for their own
 selfish ends to save themselves by compromise to society; and the
@@ -161,7 +161,7 @@ realisation of Brahman everywhere and in everything. Then —
 न हिनस्त्यात्मनात्मानं ततो याति परां गतिम् ॥
 
 — "Verily, seeing the same God equally existent every where, he does not
-injure the Self by the self, and so goes to the Supreme Goal" (Gitâ,
+injure the Self by the self, and so goes to the Supreme Goal" (Gitā,
 XIII. 28).
 
 

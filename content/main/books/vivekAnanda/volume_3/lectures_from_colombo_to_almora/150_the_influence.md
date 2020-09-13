@@ -102,8 +102,8 @@ does not matter much. But let me draw your attention to one thing which
 unfortunately we always forget: that is — "O man, have faith in
 yourself." That isle the way by which we can have faith in God. Whether
 you are an Advaitist or a dualist, whether you are a believer in the
-system of Yoga or a believer in Shankarâchârya, whether you are a
-follower of Vyâsa or Vishvâmitra, it does not matter much. But the thing
+system of Yoga or a believer in Shankarāchārya, whether you are a
+follower of Vyāsa or Vishvāmitra, it does not matter much. But the thing
 is that on this point Indian thought differs from that of all the rest
 of the world. Let us remember for a moment that, whereas in every other
 religion and in every other country, the power of the soul is entirely
@@ -149,15 +149,15 @@ to an old Mohammedan lady I asked her in a mild voice, "What religion is
 yours?" She replied in her own language, "Praise the Lord! By the mercy
 of God, I am a Mussulman." And then I asked a Hindu, "What is your
 religion?" He plainly replied, "I am a Hindu." I remember that grand
-word of the Katha Upanishad — Shraddhâ or marvellous faith. An instance
-of Shraddha can be found in the life of Nachiketâ. To preach the
+word of the Katha Upanishad — Shraddhā or marvellous faith. An instance
+of Shraddha can be found in the life of Nachiketā. To preach the
 doctrine of Shraddha or genuine faith is the mission of my life. Let me
 repeat to you that this faith is one of the potent factors of humanity
 and of all religions. First, have faith in yourselves. Know that though
 one may be a little bubble and another may be a mountain-high wave, yet
 behind both the bubble and the wave there is the infinite ocean.
 Therefore there is hope for every one. There is salvation for every one.
-Every one must sooner or later get rid of the bonds of Mâyâ. This is the
+Every one must sooner or later get rid of the bonds of Māyā. This is the
 first thing to do. Infinite hope begets infinite aspiration. If that
 faith comes to us, it will bring back our national life as it was in the
 days of Vyasa and Arjuna — the days when all our sublime doctrines of

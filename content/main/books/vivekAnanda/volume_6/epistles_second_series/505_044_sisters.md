@@ -90,7 +90,7 @@ the body, mind, and soul. I give them over to You. Deign to accept, Lord
 of the Universe, and refuse them not." — So have I given over my life
 and soul once for all. One thing — they are a dry sort of people here —
 and as to that very few in the whole world are there that are not. They
-do not understand "Mâdhava", the Sweet One. They are either intellectual
+do not understand "Mādhava", the Sweet One. They are either intellectual
 or go after faith cure, table turning, witchcraft, etc., etc. Nowhere
 have I heard so much about "love, life, and liberty" as in this country,
 but nowhere is it less understood. Here God is either a terror or a

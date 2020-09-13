@@ -51,7 +51,7 @@ a new religion in America."
 "That is true. It is contrary to our principles to multiply
 organizations, since, in all conscience, there are enough of them. And
 when organizations are created they need individuals to look after them.
-Now, those who have made Sannyâsa — that is, renunciation of all worldly
+Now, those who have made Sannyāsa — that is, renunciation of all worldly
 position, property, and name — whose aim is to seek spiritual knowledge,
 cannot undertake this work, which is, besides, in other hands."
 
@@ -60,7 +60,7 @@ cannot undertake this work, which is, besides, in other hands."
 "It might convey a more definite idea to call it the kernel of all forms
 of religion, stripping from them the non-essential, and laying stress on
 that which is the real basis. I am a disciple of Ramakrishna
-Paramahamsa, a perfect Sannyâsin whose influence and ideas I fell under.
+Paramahamsa, a perfect Sannyāsin whose influence and ideas I fell under.
 This great Sannyasin never assumed the negative or critical attitude
 towards other religions, but showed their positive side — how they could
 be carried into life and practiced. To fight, to assume the antagonistic

@@ -13,7 +13,7 @@ trip and the Darshana[2](#fn2) was glorious.
 
 I will be here about a month more, then I return to the plains. Kindly
 ask Jagmohan to write to the Dewan Saheb of Kishangarh to get for me the
-copies of Nimbârka Bhâshya which he promised.
+copies of Nimbārka Bhāshya which he promised.
 
 With all love,
 

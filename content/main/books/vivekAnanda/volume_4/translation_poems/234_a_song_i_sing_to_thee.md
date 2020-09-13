@@ -62,7 +62,7 @@ Thou art my Master! Thou my soul's real mate.
 Many a time I see Thee — I am Thee!  
 Ay, I am Thee, and Thou, my Lord, art me!  
 Thou art within my speech. Within my throat  
-Art Thou, as Vinâpâni, (Goddess of learning) learned, wise.  
+Art Thou, as Vināpāni, (Goddess of learning) learned, wise.  
 On the flow of Thy current and its force  
 Humanity is carried as Thou wilt.  
 The thunder of Thy Voice is borne upon the boom  
@@ -91,7 +91,7 @@ Teeming with birth and life, decay and death,
 Whose arms are "The External" and "The Internal",  
 All things that are, down to the ocean's depths,  
 Up to sun, moon, and stars in spanless space —  
-The Mind, the Buddhi, Chitta, Ahamkâr,  
+The Mind, the Buddhi, Chitta, Ahamkār,  
 The Deva, Yaksha, man and demon, all,  
 The quadruped, the bird, the worm, all insect life,  
 The atom and its compound, all that is,  
@@ -148,7 +148,7 @@ Knowledge, the knower and the known, dissolved;
 The world no more distinguishable, now,  
 No more conceivable; when sun and moon  
 And all the outspent stars, remain no more —  
-Then is the state of Mahâ-Nirvâna,  
+Then is the state of Mahā-Nirvāna,  
 When action, act, and actor, are no more,  
 When instrumentality is no more;  
 Great darkness veils the bosom of the dark —  

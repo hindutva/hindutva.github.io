@@ -21,7 +21,7 @@ MY DEAR JAGAMOHANLAL,
 . . . Leave words when you start for Bombay to somebody to take care of
 three Sannyasins I am sending to Jaipur. Give them food and good
 lodging. They will be there till I come. They are fellows — innocent,
-not learned. They belong to me, and one is my Gurubhâi
+not learned. They belong to me, and one is my Gurubhāi
 (brother-disciple). If they like, take them to Khetri where I will come
 soon. I am travelling now quietly. I will not even lecture much this
 year. I have no more faith in all this noise and humbug which brings no

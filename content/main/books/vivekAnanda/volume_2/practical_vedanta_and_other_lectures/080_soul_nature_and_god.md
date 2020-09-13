@@ -43,7 +43,7 @@ organ, which is only the instrument, is in the body, and behind that is
 the internal organ which is finer; then there is the mind, then the
 intellectual faculty, then egoism, which says, "I" — I see, I hear, and
 so forth. The whole process is carried on by certain forces; you may
-call them vital forces; in Sanskrit they are called Prâna. This gross
+call them vital forces; in Sanskrit they are called Prāna. This gross
 part of man, this body, in which are the external instruments, is called
 in Sanskrit, Sthula Sharira, the gross body; behind it comes the series,
 beginning with the organs, the mind, the intellect, the egoism. These
@@ -84,7 +84,7 @@ form which we call this universe of ours, there must be a universe of
 finer matter, which we call thought, and behind that there must be a
 Soul, which makes all this thought possible, which commands, which is
 the enthroned king of this universe. That soul which is behind each mind
-and each body is called Pratyagâtman, the individual Atman, and that
+and each body is called Pratyagātman, the individual Atman, and that
 Soul which is behind the universe as its guide, ruler, and governor, is
 God.
 
@@ -123,7 +123,7 @@ another will come out. So this universe will go back to its causes, and
 again its materials will come together and take form, like the wave that
 goes down, rises again, and takes shape. The acts of going back to
 causes and coming out again, taking form, are called in Sanskrit
-Sankocha and Vikâsha, which mean shrinking and expanding. The whole
+Sankocha and Vikāsha, which mean shrinking and expanding. The whole
 universe, as it were, shrinks, and then it expands again. To use the
 more accepted words of modern science, they are involved and evolved.
 You hear about evolution, how all forms grow from lower ones, slowly
@@ -157,7 +157,7 @@ waves rising and falling, and God is directing this eternal process. As
 the universe is without beginning and without end, so is God. We see
 that it must necessarily be so, because if we say there was a time when
 there was no creation, either in a gross or a fine form, then there was
-no God, because God is known to us as Sâkshi, the Witness of the
+no God, because God is known to us as Sākshi, the Witness of the
 universe. When the universe did not exist, neither did He. One concept
 follows the other. The idea of the cause we get from the idea of the
 effect, and if there is no effect, there will be no cause. It naturally
@@ -226,7 +226,7 @@ effect, God Himself must have become the universe and the souls, and he
 is but a particle of which God is the whole. We are but little beings,
 sparks of that mass of fire, and the whole universe is a manifestation
 of God Himself. This is the next step. In Sanskrit, it is called
-Vishishtâdvaita. Just as I have this body and this body covers the soul,
+Vishishtādvaita. Just as I have this body and this body covers the soul,
 and the soul is in and through this body, so this whole universe of
 infinite souls and nature forms, as it were, the body of God. When the
 period of involution comes, the universe becomes finer and finer, yet

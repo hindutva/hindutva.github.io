@@ -67,7 +67,7 @@ religion.
 On the other hand, there are scholars who from the ancient Aryan
 literature show that religion originated in nature worship. Although in
 India we find proofs of ancestor worship everywhere, yet in the oldest
-records there is no trace of it whatsoever. In the Rig-Veda Samhitâ, the
+records there is no trace of it whatsoever. In the Rig-Veda Samhitā, the
 most ancient record of the Aryan race, we do not find any trace of it.
 Modern scholars think, it is the worship of nature that they find there.
 The human mind seems to struggle to get a peep behind the scenes. The

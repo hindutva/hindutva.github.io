@@ -16,12 +16,12 @@ title: XXXI
 BROOKLYN,  
 *20th January, 1895*.
 
-(*Written to Mrs. Ole Bull whom Swamiji called "Dhirâ Mâtâ", the "Steady
+(*Written to Mrs. Ole Bull whom Swamiji called "Dhirā Mātā", the "Steady
 Mother" on the occasion of the loss of her father.*)
 
 . . . I had a premonition of your father's giving up the old body and it
 is not my custom to write to anyone when a wave of would-be inharmonious
-Mâyâ strikes him. But these are the great turning points in life, and I
+Māyā strikes him. But these are the great turning points in life, and I
 know that you are unmoved. The surface of the sea rises and sinks
 alternately, but to the observant soul — the child of light — each
 sinking reveals more and more of the depth and of the beds of pearls and

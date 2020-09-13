@@ -20,7 +20,7 @@ such as music and so on. Everyone tries to put himself foremost. The
 jostling at railway or steamer station is another illustration of this.
 A friend of Swamiji had a talk with him one day at the Math on this
 subject. Swamiji remarked, "You see, we have an old adage: 'If your son
-is not inclined to study, put him in the Durbars (Sâbha).' The word
+is not inclined to study, put him in the Durbars (Sābha).' The word
 Sabha here does not mean social meetings, such as take place
 occasionally at people's houses — it means royal Durbars. In the days of
 the independent kings of Bengal, they used to hold their courts mornings
@@ -50,7 +50,7 @@ On the other hand, owing to the undue domination exercised by the
 parents, our boys do not get free scope for growth. The parents consider
 singing as improper. But the son, when he hears a fine piece of music,
 at once sets his whole mind on how to learn it, and naturally he must
-look out for an Âddâ. (Something like a club. The word has got a bad
+look out for an Âddā. (Something like a club. The word has got a bad
 odour about it in Bengali.) Then again, "It is a sin to smoke!" So what
 else can the young man do than mix with the servants of the house, to
 indulge in this habit in secret? In everyone there are infinite

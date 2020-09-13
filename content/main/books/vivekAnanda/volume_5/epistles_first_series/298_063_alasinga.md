@@ -18,7 +18,7 @@ SWITZERLAND,
 
 DEAR ALASINGA,
 
-I learnt from your letter the bad financial state the *Brahmavâdin* is
+I learnt from your letter the bad financial state the *Brahmavādin* is
 in. I will try to help you when I go back to London. You must not lower
 the tone. Keep up the paper. Very soon I will be able to help you in
 such a manner as to make you free of this nonsense teacher business. Do
@@ -44,7 +44,7 @@ There is a big London work waiting for me from next month. In winter I
 am going back to India and will try to set things on their feet there.
 
 My love to all. Work on, brave hearts, fail not — no saying nay; work on
-— the Lord is behind the work. Mahâshakti is with you.
+— the Lord is behind the work. Mahāshakti is with you.
 
 Yours with love and blessings,
 

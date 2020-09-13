@@ -44,7 +44,7 @@ take it?" Keshta agreed to it. Then at orders of Swamiji, bread, curry,
 sweets, curd, etc. were arranged for the Santals, and he made them sit
 before him to eat. While eating, Keshta said, "Whence have you got such
 a thing? We never tasted anything like this." Feeding them sumptuously,
-Swamiji said, "You are Nârâyanas, God manifest; today I have offered
+Swamiji said, "You are Nārāyanas, God manifest; today I have offered
 food to Narayana." The service of "Daridra Narayana" — God in the poor —
 about which Swamiji spoke, he himself performed one day like this.
 

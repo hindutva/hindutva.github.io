@@ -59,7 +59,7 @@ ideas and words are in their nature inseparable. The symbols to
 represent ideas may be sound symbols or colour symbols. Deaf and dumb
 people have to think with other than sound symbols. Every thought in the
 mind has a form as its counterpart. This is called in Sanskrit
-philosophy Nâma-Rupa — name and form. It is as impossible to create by
+philosophy Nāma-Rupa — name and form. It is as impossible to create by
 convention a system of symbols as it is to create a language. In the
 world's ritualistic symbols we have an expression of the religious
 thought of humanity. It is easy to say that there is no use of rituals

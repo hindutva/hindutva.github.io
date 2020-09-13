@@ -82,8 +82,8 @@ Madras yearly, half-yearly, or monthly. You now start a Society and a
 journal and the necessary apparatus. This must be a secret amongst only
 a few — but at the same time try to collect funds from Mysore and
 elsewhere to build a temple in Madras which should have a library and
-some rooms for the office and the preachers who should be Sannyâsins,
-and for Vairâgis (men of renunciation) who may chance to come. Thus we
+some rooms for the office and the preachers who should be Sannyāsins,
+and for Vairāgis (men of renunciation) who may chance to come. Thus we
 shall progress inch by inch. This is a great field for my work, and
 everything done here prepares the way for my coming work in England. . .
 .

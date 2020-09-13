@@ -15,8 +15,8 @@ Poems](writings_prose_and_poems_contents.htm) /
 In 1889, Swami Vivekananda translated into Bengali selections from Book
 I, chapters 1-6 of Thomas à Kempis's *The Imitation of Christ*. They
 were published along with a preface in a now-defunct Bengali monthly
-magazine, *Sâhitya Kalpadruma.* The Swami's preface and Bengali
-translation, entitled "Ishânusharana",[1](#fn1) were later published in
+magazine, *Sāhitya Kalpadruma.* The Swami's preface and Bengali
+translation, entitled "Ishānusharana",[1](#fn1) were later published in
 the Bengali *Complete Works* (first edition), VI, pp. 16-28. However,
 only the preface to *The Imitation of Christ* was
 [published](../../volume_8/writings_prose/a_preface.htm) in the English
@@ -55,7 +55,7 @@ SWAMI VIVEKANANDA'S FOOTNOTE: BHAGAVAD-GITA 7.14
 दैवी ह्येषा गुणमयी मम माया दुरत्यया।  
 मामेव ये प्रपद्यन्ते मायामेतां तरन्ति ते॥
 
-SWAMI VIVEKANANDA'S TRANSLATION: This My Mâyâ is divine, made up of
+SWAMI VIVEKANANDA'S TRANSLATION: This My Māyā is divine, made up of
 qualities and very difficult to cross. Yet those who come unto Me, cross
 the river of life. (*Vide* ["Maya and
 Freedom"](../../volume_2/jnana-yoga/maya_and_freedom.htm#v9_imitation) ,
@@ -64,7 +64,7 @@ Freedom"](../../volume_2/jnana-yoga/maya_and_freedom.htm#v9_imitation) ,
 2\. Let therefore our chief endeavour be to meditate upon the life of
 Jesus Christ. (*The Imitation of Christ* V.1.)
 
-SWAMI VIVEKANANDA'S FOOTNOTE: *Adhyâtma Râmâyana*,
+SWAMI VIVEKANANDA'S FOOTNOTE: *Adhyātma Rāmāyana*,
 
 UTTARA-KANDA 5.54 (RAMAGITA)
 
@@ -98,7 +98,7 @@ understand. (*Vide* ["The Gita
 II"](../../volume_1/lectures_and_discourses/the_gita_ii.htm#v9_imitation)
 , *Complete Works*, I.)
 
-SWAMI VIVEKANANDA'S FOOTNOTE (B): *Vivekachudâmani* 62
+SWAMI VIVEKANANDA'S FOOTNOTE (B): *Vivekachudāmani* 62
 
 न गच्छति विना पानं व्याधिरौषधशब्दतः।  
 विनाऽपरोक्षानुभवं ब्रह्मशब्दैर्न मुच्यते॥
@@ -156,12 +156,12 @@ SWAMI VIVEKANANDA'S FOOTNOTE: \[reference only\]
 8\. "Vanity of vanities, all is vanity" (Eccles.) except to love God and
 to serve Him only. (*The Imitation of Christ* V.3.)
 
-SWAMI VIVEKANANDA'S FOOTNOTE: *Maniratnamâlâ*
+SWAMI VIVEKANANDA'S FOOTNOTE: *Maniratnamālā*
 
 के सन्ति सन्तोऽखिलवीतरागाः।  
 अपास्तमोहाः शिवतत्त्वनिष्ठा:॥
 
-PUBLISHER'S TRANSLATION: They alone are holy men (Sâdhus) who are devoid
+PUBLISHER'S TRANSLATION: They alone are holy men (Sādhus) who are devoid
 of any longing for worldly objects, free from delusion and are devoted
 to the truth of Shiva.
 
@@ -298,8 +298,8 @@ carry away the mind of even a wise man striving after perfection.
 
 
 
-1.  [^](#t1)In Bengali, the word Ishâ means Christ and Anusharana, "to
-    follow"; hence Ishânusharana means "to follow Christ".
+1.  [^](#t1)In Bengali, the word Ishā means Christ and Anusharana, "to
+    follow"; hence Ishānusharana means "to follow Christ".
 2.  [^](#t2)Verses are cited from Thomas à Kempis's Of the Imitation of
     Christ (London: Oxford University Press, 1961.) This translation —
     based on that of F. B. (the Jesuit Anthony Hoskins), which first

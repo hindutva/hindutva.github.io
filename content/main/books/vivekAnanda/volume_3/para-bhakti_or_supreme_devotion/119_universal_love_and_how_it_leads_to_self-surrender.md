@@ -22,7 +22,7 @@ unities. The philosophers of India do not stop at the particulars; they
 cast a hurried glance at the particulars and immediately start to find
 the generalised forms which will include all the particulars. The search
 after the universal is the one search of Indian philosophy and religion.
-The Jnâni aims at the wholeness of things, at that one absolute and;
+The Jnāni aims at the wholeness of things, at that one absolute and;
 generalised Being, knowing which he knows everything. The Bhakta wishes
 to realise that one generalised abstract Person, in loving whom he loves
 the whole universe. The Yogi wishes to have possession of that one
@@ -62,7 +62,7 @@ manifest unswerving love towards all beings."
 
 As a result of this kind of intense all-absorbing love, comes the
 feeling of perfect self-surrender, the conviction that nothing that
-happens is against us, Aprâtikulya. Then the loving soul is able to say,
+happens is against us, Aprātikulya. Then the loving soul is able to say,
 if pain comes, "Welcome pain." If misery comes, it will say, "Welcome
 misery, you are also from the Beloved." If a serpent comes, it will say,
 "Welcome serpent." If death comes, such a Bhakta will welcome it with a

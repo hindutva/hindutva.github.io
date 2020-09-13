@@ -40,11 +40,11 @@ baskets, brought them to the summer-house, and then once more happy in
 the familiar smell, they were all soon sound asleep.
 
 Let not the world be our "fish basket" which we have to depend upon for
-enjoyment. This is Tâmasika, or being bound by the lowest of the three
+enjoyment. This is Tāmasika, or being bound by the lowest of the three
 qualities (or Gunas). Next higher come the egotistical who talk always
 about "I", "I". Sometimes they do good work and may become spiritual.
-These are Râjasika or active. Highest come the introspective nature
-(Sâttvika), those who live only in the Self. These three qualities are
+These are Rājasika or active. Highest come the introspective nature
+(Sāttvika), those who live only in the Self. These three qualities are
 in every human being in varying proportions, and different ones
 predominate at different times. We must strive to overcome Tamas with
 Rajas and then to submerge both in Sattva.
@@ -64,7 +64,7 @@ ripple in an infinite lake. There are yet unreached depths and others
 where stillness has been regained, but the ripple is ever progressing,
 the struggle to regain the balance is eternal. Life and death are but
 different names for the same fact, they are the two sides of one coin.
-Both are Mâyâ, the inexplicable state of striving at one point to live
+Both are Māyā, the inexplicable state of striving at one point to live
 and a moment later to die. Beyond all this is the true nature, the
 Atman. We enter into creation, and then, for us, it becomes living.
 Things are dead in themselves, only we give them life, and then, like

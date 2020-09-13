@@ -39,7 +39,7 @@ feel as if Shiva is sitting on my head for twenty-four hours and would
 not come down." The disciple heard it with speechless wonder.
 
 Swamiji: I underwent great religious austerities at Amarnath and then in
-the temple of Kshir Bhavâni. Go and prepare me some tobacco, I will
+the temple of Kshir Bhavāni. Go and prepare me some tobacco, I will
 relate everything to you.
 
 The disciple joyfully obeyed the order. Swamiji slowly smoking began to
@@ -131,11 +131,11 @@ not found to be correct. Afterwards at a certain place of pilgrimage
 Swamiji prayed for it mentally, wishing it might be released — since
 then he did not see it again.
 
-The disciple then questioned Swamiji if Shrâddha or other obsequial
+The disciple then questioned Swamiji if Shrāddha or other obsequial
 ceremonies appeased the departed spirits in any way. Swamiji replied,
 "That is not impossible." On the disciple's asking for the grounds of
 that belief Swamiji said, "I will explain the subject to you at length
-some day. There are irrefutable arguments to prove that the Shrâddha
+some day. There are irrefutable arguments to prove that the Shrāddha
 ceremony appeases the departed beings. Today I don't feel well. I shall
 explain it to you another day." But the disciple did not get another
 opportunity to ask that question to Swamiji.

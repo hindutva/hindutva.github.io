@@ -70,12 +70,12 @@ have any binding effect on our soul. We shall try to understand what is
 meant by this “non-attachment to” to work.
 
 This is the one central idea in the Gita: work incessantly, but be not
-attached to it. Samskâra can be translated very nearly by "inherent
+attached to it. Samskāra can be translated very nearly by "inherent
 tendency". Using the simile of a lake for the mind, every ripple, every
 wave that rises in the mind, when it subsides, does not die out
 entirely, but leaves a mark and a future possibility of that wave coming
 out again. This mark, with the possibility of the wave reappearing, is
-what is called Samskâra. Every work that we do, every movement of the
+what is called Samskāra. Every work that we do, every movement of the
 body, every thought that we think, leaves such an impression on the
 mind-stuff, and even when such impressions are not obvious on the
 surface, they are sufficiently strong to work beneath the surface,
@@ -117,7 +117,7 @@ state than having this good tendency, and that is the desire for
 liberation. You must remember that freedom of the soul is the goal of
 all Yogas, and each one equally leads to the same result. By work alone
 men may get to where Buddha got largely by meditation or Christ by
-prayer. Buddha was a working Jnâni, Christ was a Bhakta, but the same
+prayer. Buddha was a working Jnāni, Christ was a Bhakta, but the same
 goal was reached by both of them. The difficulty is here. Liberation
 means entire freedom — freedom from the bondage of good, as well as from
 the bondage of evil. A golden chain is as much a chain as an iron one.
@@ -158,7 +158,7 @@ work incessantly, but let not a ripple conquer the mind. Work as if you
 were a stranger in this land, a sojourner; work incessantly, but do not
 bind yourselves; bondage is terrible. This world is not our habitation,
 it is only one of the many stages through which we are passing. Remember
-that great saying of the Sânkhya, "The whole of nature is for the soul,
+that great saying of the Sānkhya, "The whole of nature is for the soul,
 not the soul for nature." The very reason of nature's existence is for
 the education of the soul; it has no other meaning; it is there because
 the soul must have knowledge, and through knowledge free itself. If we
@@ -260,7 +260,7 @@ results. The selfless and unattached man may live in the very heart of a
 crowded and sinful city; he will not be touched by sin.
 
 This idea of complete self-sacrifice is illustrated in the following
-story: After the battle of Kurukshetra the five Pândava brothers
+story: After the battle of Kurukshetra the five Pāndava brothers
 performed a great sacrifice and made very large gifts to the poor. All
 people expressed amazement at the greatness and richness of the
 sacrifice, and said that such a sacrifice the world had never seen

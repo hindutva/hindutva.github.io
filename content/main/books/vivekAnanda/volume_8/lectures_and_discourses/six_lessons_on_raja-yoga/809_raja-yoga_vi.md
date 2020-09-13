@@ -17,7 +17,7 @@ Vivekananda to an intimate audience in the house of Mrs. Sara C. Bull, a
 devoted American disciple, and were preserved by her and finally printed
 in 1913 for private circulation — *Ed*.)
 
-Sushumnâ: It is very useful to meditate on the Sushumna. You may have a
+Sushumnā: It is very useful to meditate on the Sushumna. You may have a
 vision of it come to you, and this is the best way. Then meditate for a
 long time on that. It is a very fine, very brilliant thread, this living
 passage through the spinal cord, this way of salvation through which we

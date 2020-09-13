@@ -15,7 +15,7 @@ Life and Sayings* by Prof. Max Müller, contributed to the *Udbodhana*,
 14th March, 1899.)
 
 Among the Sanskrit scholars of the West, Professor Max Müller takes the
-lead. The Rig-Veda Samhitâ, the whole of which no one could even get at
+lead. The Rig-Veda Samhitā, the whole of which no one could even get at
 before, is now very neatly printed and made accessible to the public,
 thanks to the munificent generosity of the East India Company and to the
 Professor's prodigious labours extending over years. The alphabetical
@@ -30,8 +30,8 @@ Besides this, he has been dwelling, as it were, and spending his whole
 lifetime amidst ancient Sanskrit literature; but notwithstanding this,
 it does not imply that in the Professor's imagination India is still
 echoing as of old with Vedic hymns, with her sky clouded with
-sacrificial smoke, with many a Vasishtha, Vishvâmitra, Janaka, and
-Yâjnavalkya, with her every home blooming with a Gârgi or a Maitreyi and
+sacrificial smoke, with many a Vasishtha, Vishvāmitra, Janaka, and
+Yājnavalkya, with her every home blooming with a Gārgi or a Maitreyi and
 herself guided by the Vedic rules or canons of Grihya-Sutra.
 
 The Professor, with ever-watchful eyes, keeps himself well-informed of
@@ -77,14 +77,14 @@ personal experiences.
 
 In particular, the Professor observes with a keen eye what new waves of
 religion are rising in different parts of India, and spares no pains in
-letting the Western world not remain in the dark about them. The Brâhmo
-Samaj guided by Debendranâth Tagore and Keshab Chandra Sen, the Ârya
-Samaj established by Swami Dayânanda Sarasvati, and the Theosophical
+letting the Western world not remain in the dark about them. The Brāhmo
+Samaj guided by Debendranāth Tagore and Keshab Chandra Sen, the Ârya
+Samaj established by Swami Dayānanda Sarasvati, and the Theosophical
 movement — have all come under the praise or censure of his pen. Struck
 by the sayings and teachings of Shri Ramakrishna published in the two
-well-established journals, the *Brahmavâdin* and the *Prabuddha
-Bhârata,* and reading what the Brahmo preacher, Mr. Pratâp Chandra
-Mazumdâr, wrote about Shri Ramakrishna, ("Paramahamsa Sreemat
+well-established journals, the *Brahmavādin* and the *Prabuddha
+Bhārata,* and reading what the Brahmo preacher, Mr. Pratāp Chandra
+Mazumdār, wrote about Shri Ramakrishna, ("Paramahamsa Sreemat
 Ramakrishna" — *Theistic Quarterly Review*, October, 1879.) he was
 attracted by the sage's life. Some time ago, a short sketch of Shri
 Ramakrishna's life ("A Modern Hindu Saint" — January, 1896.) also
@@ -93,7 +93,7 @@ Asiatic Quarterly Review*, contributed by Mr. C. H. Tawney, M.A., the
 distinguished librarian of the India House. Gathering a good deal of
 information from Madras and Calcutta, the Professor discussed Shri
 Ramakrishna's life and his teachings in a short article ("A Real
-Mahâtman.") in the foremost monthly English journal, *The Nineteenth
+Mahātman.") in the foremost monthly English journal, *The Nineteenth
 Century*. There he expressed himself to the effect that this new sage
 easily won his heart by the originality of his thoughts, couched in
 novel language and impregnate with fresh spiritual power which he
@@ -165,7 +165,7 @@ plane as the brute creation, that, rejecting the latter, the living Gods
 in human shape, they "the high and the low" were, day and night, busy
 licking the feet of the first-mentioned performers of silly juggleries,
 — Professor Max Müller presented Shri Ramakrishna's life to the learned
-European public, in an article entitled "A Real Mahâtman", which
+European public, in an article entitled "A Real Mahātman", which
 appeared in *The Nineteenth Century* in its August number, 1896.
 
 The learned people of Europe and America read the article with great
@@ -180,7 +180,7 @@ own countrymen also have been chiefly instrumental — began to be
 corrected. The veil of the gloom of ignorance, which was spread across
 the eyes of the Western people by the strenuous efforts of these two
 bodies of men, has been slowly and slowly rending asunder. "Can the
-country that has produced a great world-teacher like Shri Bhagavân
+country that has produced a great world-teacher like Shri Bhagavān
 Ramakrishna Deva be really full of such abominations as we have been
 asked to believe in, or have we been all along duped by interested
 organised bodies of mischief-makers, and kept in utter obscurity and
@@ -230,9 +230,9 @@ the Vedas, deserves our careful attention."
 
 After discussing, in the first part of the book, what is meant by the
 Mahatman, the Four Stages of Life, Ascetic Exercises or Yoga, and after
-making some mention about Dayananda Sarasvati, Pavhâri Bâbâ,
-Debendranath Tagore, and Rai Shâligrâm Sâheb Bahadur, the leader of the
-Râdhâswami sect, the Professor enters on Shri Ramakrishna's life.
+making some mention about Dayananda Sarasvati, Pavhāri Bābā,
+Debendranath Tagore, and Rai Shāligrām Sāheb Bahadur, the leader of the
+Rādhāswami sect, the Professor enters on Shri Ramakrishna's life.
 
 The Professor greatly fears lest the Dialogic Process — the
 transformation produced in the description of the facts as they really
@@ -248,7 +248,7 @@ of what I call the Dialogic Process and the irrepressible miraculising
 tendencies of devoted disciples" even in "his unvarnished description of
 his Master". And, no doubt, those few harsh-sweet words which the
 Professor has said in the course of his reply to what some people, with
-the Brâhmo-Dharma preacher, the Rev. Pratap Chandra Mazumdar, at their
+the Brāhmo-Dharma preacher, the Rev. Pratap Chandra Mazumdar, at their
 head, wrote to him in their anxiety to make out a "not edifying side" of
 Ramakrishna's character — demand thoughtful consideration from those
 amongst us of Bengal who, being full of jealousy, can with difficulty
@@ -273,7 +273,7 @@ great-soured sage — swelling forth from a heart too deep for ordinary
 grasp.
 
 And the charges are, indeed, surprising to us. We have heard the great
-Minister of the Brahmo Samaj, the late revered Âchârya Shri Keshab
+Minister of the Brahmo Samaj, the late revered Âchārya Shri Keshab
 Chandra Sen, speaking in his charming way that Shri Ramakrishna's
 simple, sweet, colloquial language breathed a superhuman purity; though
 in his speech could be noticed some such words as we term obscene, the
@@ -289,13 +289,13 @@ his wife's assent, and that during the years of his life on this earth,
 his wife, bearing a character worthy of her husband, heartily received
 him as her Guru (spiritual guide) and, according to his instructions,
 passed her days in infinite bliss and peace, being engaged in the
-service of God as a lifelong Brahmachârini. Besides, he asks, "Is love
+service of God as a lifelong Brahmachārini. Besides, he asks, "Is love
 between husband and wife really impossible without the procreation of
 children?" "We must learn to believe in Hindu honesty" — in the matter
 that, without having any physical relationship, a Brahmachari husband
 can live a life of crystal purity, thus making his Brahmacharini wife a
 partner in the immortal bliss of the highest spiritual realisation,
-Brahmânanda — "however incredulous we might justly be on such matters in
+Brahmānanda — "however incredulous we might justly be on such matters in
 our own country". May blessings shower on the Professor for such worthy
 remarks! Even he, born of a foreign nationality and living in a foreign
 land, can understand the meaning of our Brahmacharya as the only way to
@@ -308,7 +308,7 @@ Again another charge put forward is that "he did not show sufficient
 moral abhorrence of prostitutes". To this the Professor's rejoinder is
 very very sweet indeed: he says that in this charge Ramakrishna "does
 not stand quite alone among the founders of religion! " Ah! How sweet
-are these words — they remind one of the prostitute Ambâpâli, the object
+are these words — they remind one of the prostitute Ambāpāli, the object
 of Lord Buddha's divine grace, and of the Samaritan woman who won the
 grace of the Lord Jesus Christ.
 
@@ -316,7 +316,7 @@ Yet again, another charge is that he did not hate those who were
 intemperate in their habits. Heaven save the mark! One must not tread
 even on the shadow of a man, because he took a sip or two of drink — is
 not that the meaning? A formidable accusation indeed! Why did not the
-Mahâpurusha kick away and drive off in disgust the drunkards, the
+Mahāpurusha kick away and drive off in disgust the drunkards, the
 prostitutes, the thieves, and all the sinners of the world! And why did
 he not, with eyes closed, talk in a set drawl after the
 never-to-be-varied tone of the Indian flute-player, or talk in
@@ -346,7 +346,7 @@ has to be told: some of us do understand that his life and teachings are
 to our gain, but there the matter ends. It is beyond our power even to
 make an attempt to put those precepts into practice in our own lives,
 far less to consign our whole body and soul to the huge waves of harmony
-of Jnâna and Bhakti that Shri Ramakrishna has raised. This play of the
+of Jnāna and Bhakti that Shri Ramakrishna has raised. This play of the
 Lord, those who have understood or are trying to understand, to them we
 say, "What will mere understanding do? The proof of understanding is in
 work. Will others believe you if it ends only in verbal expressions of
@@ -359,7 +359,7 @@ Those who, knowing themselves very learned, think lightly of this
 unlettered, poor, ordinary temple-priest, to them our submission is:
 "The country of which one illiterate temple-priest, by virtue of his own
 strength, has in so short a time caused the victory of the ancient
-Sanâtana Dharma of your forefathers to resound even in lands far beyond
+Sanātana Dharma of your forefathers to resound even in lands far beyond
 the seas — of that country, you are the heroes of heroes, the honoured
 of all, mighty, well-bred, the learned of the learned — how much
 therefore must you be able to perform far more uncommon, heroic deeds

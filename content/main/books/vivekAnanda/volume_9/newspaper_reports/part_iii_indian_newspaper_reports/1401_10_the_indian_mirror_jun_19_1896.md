@@ -37,7 +37,7 @@ from within his mind. His class days have been arranged as follows: —
 Tuesdays, morning and evening; Thursdays, morning and evening; Friday,
 evening question classes. So the Swami has to do four lectures, and one
 class on questions every week. In the class lecture, he has begun with
-Gnan \[Jnâna-\]Yoga. A short-hand report of these lectures is being
+Gnan \[Jnāna-\]Yoga. A short-hand report of these lectures is being
 taken down by Mr. Goodwin, who is a great admirer of the Swami, and
 these lectures will be published later on.
 

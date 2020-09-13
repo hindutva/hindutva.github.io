@@ -557,7 +557,7 @@ for me something under this tree, for I think the end is near." And he
 was there under the tree, and he laid himself down; he could not sit up
 any more. And the first thing he did, he said: "Go to that Chanda and
 tell him that he has been one of my greatest benefactors; for his meal,
-I am going to Nirvâna." And then several men came to be instructed, and
+I am going to Nirvāna." And then several men came to be instructed, and
 a disciple said, "Do not go near now, the Master is passing away". And
 as soon as he heard it, the Lord said, "Let them come in". And somebody
 else came and the disciples would not \[let them enter\]. Again they
@@ -794,7 +794,7 @@ has: been always in India; \[it was\] brought forward whenever
 materialism and scepticism broke down everything. When Buddhism broke
 down everything by introducing all sorts of foreign barbarians into
 India — their manners and customs and things — there was a reaction, and
-that reaction was led by a young monk \[Shankarâchârya\]. And
+that reaction was led by a young monk \[Shankarāchārya\]. And
 \[instead\] of preaching new doctrines and always thinking new thoughts
 and making sects, he brought back the Vedas to life: and modern Hinduism
 has thus an admixture of ancient Hinduism, over which the Vedantists

@@ -15,7 +15,7 @@ title: V
 (From the Diary of a Disciple)
 
 (The disciple is Sharatchandra Chakravarty, who published his records in
-a Bengali book, *Swami-Shishya-Samvâda*, in two parts. The present
+a Bengali book, *Swami-Shishya-Samvāda*, in two parts. The present
 series of "Conversations and Dialogues" is a revised translation from
 this book. Five dialogues of this series have already appeared in the
 *Complete Works*, [Vol.
@@ -24,7 +24,7 @@ V.](../../volume_5/conversations_and_dialogues/xi_xv_from_the_diary_of_a_discipl
 
 \[Place: *Alambazar Math*. Year: *1897, May*.\]
 
-It was the 19th Vaishâkha (April-May) of the year 1303 B.S. Swamiji had
+It was the 19th Vaishākha (April-May) of the year 1303 B.S. Swamiji had
 agreed to initiate the disciple today. So, early in the morning, he
 reached the Alambazar Math. Seeing the disciple Swamiji jocosely said,
 "Well, you are to be 'sacrificed' today, are you not?"
@@ -44,7 +44,7 @@ otherwise don't rush forward on the spur of the moment to accept me as
 your Guru." And the disciple nodded assent to all questions of the kind.
 
 Swamiji then continued: "The real Guru is he who leads you beyond this
-Mâyâ of endless birth and death — who graciously destroys all the griefs
+Māyā of endless birth and death — who graciously destroys all the griefs
 and maladies of the soul. The disciple of old used to repair to the
 hermitage of the Guru, fuel in hand; and the Guru, after ascertaining
 his competence, would teach him the Vedas after initiation, fastening
@@ -61,7 +61,7 @@ Swamiji: Nowhere is there mention of thread being so used in the Vedas.
 The modern author of Smritis, Raghunandana Bhattacharya, also puts it
 thus: "At this stage,[](#fn1)[1](#fn1) the sacrificial girdle should be
 put on." Neither in Gobhila's *Grihya-Sutras* do we find any mention of
-the girdle made of thread. In the Shâstras, this first Vedic Samskâra
+the girdle made of thread. In the Shāstras, this first Vedic Samskāra
 (purification ceremony) before the Guru has been called the Upanayana;
 but see, to what a sad pass our country has been brought! Straying away
 from the true path of the Shastras, the country has been overwhelmed
@@ -69,7 +69,7 @@ with usages and observances originating in particular localities, or
 popular opinion, or with the womenfolk! That's why I ask you to proceed
 along the path of the Shastras as in olden times. Have faith within
 yourselves and thereby bring it back into the country. Plant in your
-heart the faith of Nachiketâ. Even go up to the world of Yama like him.
+heart the faith of Nachiketā. Even go up to the world of Yama like him.
 Yes, if to know the secrets of the Atman, to liberate your soul, to
 reach the true solution of the mystery of birth and death, you have to
 go to the very jaws of death and realise the truth thereby, well, go
@@ -88,14 +88,14 @@ principle now? — "like the blind leading the blind"!
 \*    \*    \*
 
 The initiation ceremony was duly gone through in the chapel. After this
-Swamiji spoke out: "Give me the Guru-dakshinâ."[2](#fn2) The disciple
+Swamiji spoke out: "Give me the Guru-dakshinā."[2](#fn2) The disciple
 replied, "Oh, what shall I give?" On this Swamiji suggested, "Well,
 fetch any fruit from the store-room." So the disciple ran to the
 store-room and came back into the chapel with ten or twelve lichis.
 These Swamiji took from his hand and ate them one by one, saying, "Now,
 your Guru-dakshina is made."
 
-A member of the Math, Brahmachâri (now Swami) Shuddhananda, also had his
+A member of the Math, Brahmachāri (now Swami) Shuddhananda, also had his
 initiation from Swamiji on this occasion.
 
 Swamiji then had his dinner and went to take a short rest.
@@ -160,8 +160,8 @@ then the "I" also cannot remain.
 
 Swamiji: Yes, the state that comes then is the real nature of the ego.
 The "I" that remains then is omnipresent, all-pervading, the Self of
-all. Just as the Ghatâkâsha, when the jar is broken, becomes the
-Mahâkâsha,[](#fn3)[3](#fn3) for with the destruction of the jar the
+all. Just as the Ghatākāsha, when the jar is broken, becomes the
+Mahākāsha,[](#fn3)[3](#fn3) for with the destruction of the jar the
 enclosed space is not destroyed. The puny "I" which you were thinking of
 as confined in the body, becomes spread out and is thus realised in the
 form of the all- pervading "I" or the Self. Hence what matters it to the
@@ -177,7 +177,7 @@ as he gently smoked, continued: "How many Shastras have been written to
 explain this simple thing, and yet men fail to understand it! How they
 are vesting this precious human life on the fleeting pleasures of some
 silver coins and the frail beauty of women! Wonderful is the influence
-of Mahâmâyâ (Divine Illusion)! Mother! Oh Mother!"
+of Mahāmāyā (Divine Illusion)! Mother! Oh Mother!"
 
 
 
@@ -185,7 +185,7 @@ of Mahâmâyâ (Divine Illusion)! Mother! Oh Mother!"
     ceremony of a Brahmin's initiation.
 2.  [^](#t2)The special gift which a disciple has to make to his Guru as
     the symbol of the mutual relation being consummated.
-3.  [^](#t3)Ghatâkâsha and Mahâkâsha are technical terms in Vedanta,
+3.  [^](#t3)Ghatākāsha and Mahākāsha are technical terms in Vedanta,
     meaning the space enclosed by the jar and the omnipresent. The two
-    are one and the same, only the former is limited by the Upâdhi
+    are one and the same, only the former is limited by the Upādhi
     (adjunct) of the Ghata or jar.

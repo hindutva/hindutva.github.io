@@ -18,9 +18,9 @@ title: A HYMN TO SHRI RAMAKRISHNA
 भक्त्या ज्ञानं वृतबरवपुः सीतया यो हि रामः ॥१॥
 
 1\. He who was Shri Rama, whose stream of love flowed with resistless
-might even to the Chandâla (the outcaste); Oh, who ever was engaged in
+might even to the Chandāla (the outcaste); Oh, who ever was engaged in
 doing good to the world though superhuman by nature, whose renown there
-is none to equal in the three worlds, Sitâ's beloved, whose body of
+is none to equal in the three worlds, Sitā's beloved, whose body of
 Knowledge Supreme was covered by devotion sweet in the form of Sita.
 
 स्तब्धीकृत्य प्रलयकलितं वाहवोत्थं महान्तं  
@@ -40,7 +40,7 @@ Ramakrishna.
 नरदेव देव     जय जय नरदेव ॥३॥
 
 3\. Hail, O Lord of Men! Victory unto You! I surrender myself to my
-Guru, the physician for the malady of Samsâra (relative existence) who
+Guru, the physician for the malady of Samsāra (relative existence) who
 is, as it were, a wave rising in the ocean of Shakti (Power), who has
 shown various sports of Love Divine, and who is the weapon to destroy
 the demon of doubt.

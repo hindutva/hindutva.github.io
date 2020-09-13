@@ -17,7 +17,7 @@ A Sannyasin should avoid the food, bedding, etc., which have been
 touched or used by householders, in order to *save himself* — not from
 hatred towards them — so long as he has not risen to the highest grade,
 that is, become a Paramahamsa. A householder should salute him with
-"Namo Nârâyanâya", and a Sannyasin should bless the former.
+"Namo Nārāyanāya", and a Sannyasin should bless the former.
 
 मेरुसर्षपयोर्यद्यत् सूर्यखद्योतयोरिव।  
 सरित्सागरयोर्यद्यत् तथा भिक्षुगृहस्थयोः॥

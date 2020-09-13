@@ -114,7 +114,7 @@ very birth, is the lord of the universe! Even the most wicked Brahmin
 must be worshipped!
 
 But while the priests were flourishing, there existed also the
-poet-prophets called Sannyâsins. All Hindus, whatever their castes may
+poet-prophets called Sannyāsins. All Hindus, whatever their castes may
 be, must, for the sake of attaining spirituality, give up their work and
 prepare for death. No more is the world to be of any interest to them.
 They must go out and become Sannyasins. The Sannyasins have nothing to
@@ -139,7 +139,7 @@ His truth before the world? Do you call that being religious and
 spiritual? The priests are the only people fit for the truth! The masses
 are not fit for it! It must be diluted! Water it down a little!
 
-Take the Sermon on the Mount and the Gitâ — they are simplicity itself.
+Take the Sermon on the Mount and the Gitā — they are simplicity itself.
 Even the streetwalker can understand them. How grand! In them you find
 the truth clearly and simply revealed. But no, the priests would not
 accept that truth can be found so directly. They speak of two thousand
@@ -201,7 +201,7 @@ are all equal. No concession there to anybody! Buddha was the great
 preacher of equality. Every man and woman has the same right to attain
 spirituality — that was his teaching. The difference between the priests
 and the other castes he abolished. Even the lowest were entitled to the
-highest attainments; he opened the door of Nirvâna to one and all. His
+highest attainments; he opened the door of Nirvāna to one and all. His
 teaching was bold even for India. No amount of preaching can ever shock
 the Indian soul, but it was hard for India to swallow Buddha's doctrine.
 How much harder it must be for you!
@@ -284,7 +284,7 @@ the Hindu way. We claim that Buddha's great doctrine of selflessness can
 be better understood if it is looked at in our way. In the Upanishads
 there is already the great doctrine of the Âtman and the Brahman. The
 Atman, Self, is the same as Brahman, the Lord. This Self is all that is;
-It is the only reality. Mâyâ, delusion, makes us see It as different.
+It is the only reality. Māyā, delusion, makes us see It as different.
 There is one Self, not many. That one Self shines in various forms. Man
 is man's brother because all men are one. A man is not only my brother,
 say the Vedas, he is myself. Hurting any part of the universe, I only

@@ -232,7 +232,7 @@ and yet, in my opinion, not one stands so high in brilliance as that
 life which I saw with my own eyes, under whose shadow I have lived, at
 whose feet I have learnt everything —the life of Ramakrishna
 Paramahamsa. Ay, friends, you all know the celebrated saying of the
-Gitâ:
+Gitā:
 
 यदा यदा हि धर्मस्य ग्लानिर्भवति भारत ।  
 अभ्युत्थानमधर्मस्य तदात्मानं सृजाम्यहम् ॥  
@@ -342,7 +342,7 @@ political lives have foreign policies. When they find too much
 quarrelling at home, they look for somebody abroad to quarrel with, and
 the quarrel at home stops. We have these quarrels without any foreign
 policy to stop them. This must be our eternal foreign policy, preaching
-the truths of our Shâstras to the nations of the world. I ask you who
+the truths of our Shāstras to the nations of the world. I ask you who
 are politically minded, do you require any other proof that this will
 unite us as a race? This very assembly is a sufficient witness.
 
@@ -416,8 +416,8 @@ Those of you who have studied that most beautiful ail the Upanishads,
 the Katha, will remember how the king was going to make a great
 sacrifice, and, instead of giving away things that were of any worth, he
 was giving away cows and horses that were not of any use, and the book
-says that at that time Shraddhâ entered into the heart of his son
-Nachiketâ. I would not translate this word Shraddha to you, it would be
+says that at that time Shraddhā entered into the heart of his son
+Nachiketā. I would not translate this word Shraddha to you, it would be
 a mistake; it is a wonderful word to understand, and much depends on it;
 we will see how it works, for immediately we find Nachiketa telling
 himself, "I am superior to many, I am inferior to few, but nowhere am I

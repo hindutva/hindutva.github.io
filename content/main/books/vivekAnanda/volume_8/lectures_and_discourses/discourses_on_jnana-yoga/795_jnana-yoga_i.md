@@ -15,11 +15,11 @@ Swami, Miss S. E. Waldo. Swami Saradananda, while he was in America
 (1896), copied them out from her notebook — *Ed*.)
 
 Om Tat Sat! To know the Om is to know the secret of the universe. The
-object of Jnâna-Yoga is the same as that of Bhakti and Râja Yogas, but
+object of Jnāna-Yoga is the same as that of Bhakti and Rāja Yogas, but
 the method is different. This is the Yoga for the strong, for those who
 are neither mystical nor devotional, but rational. As the Bhakti-Yogi
 works his way to complete oneness with the Supreme through love and
-devotion, so the Jnâna-Yogi forces his way to the realisation of God by
+devotion, so the Jnāna-Yogi forces his way to the realisation of God by
 the power of pure reason. He must be prepared to throw away all old
 idols, all old beliefs and superstitions, all desire for this world or
 another, and be determined only to find freedom. Without Jnana
@@ -36,7 +36,7 @@ where man can realise his true Self and know that he is Brahman.
 
 This world is "the evolution of nature and the manifestation of God". It
 is our interpretation of Brahman or the Absolute, seen through the veil
-of Mâyâ or appearance. The world is not zero, it has a certain reality;
+of Māyā or appearance. The world is not zero, it has a certain reality;
 it only *appears* because Brahman *is*.
 
 How shall we know the knower? The Vedanta says, "We are It, but can
@@ -49,7 +49,7 @@ is the aim of all religions. That man and God are one is the constant
 teaching of the Vedas, but only few are able to penetrate behind the
 veil and reach the realisation of this truth.
 
-The first thing to be got rid of by him who would be a Jnâni is fear.
+The first thing to be got rid of by him who would be a Jnāni is fear.
 Fear is one of our worst enemies. Next, believe in nothing until you
 *know* it. Constantly tell yourself, "I am not the body, I am not the
 mind, I am not thought, I am not even consciousness; I am the Atman."

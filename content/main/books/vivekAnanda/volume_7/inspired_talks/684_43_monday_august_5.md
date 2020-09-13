@@ -130,7 +130,7 @@ Sacrifice on God's altar earth's purest and best. He who struggles is
 better than he who never attempts. Even to look on one who has given up
 has a purifying effect. Stand up for God; let the world go. Have no
 compromise. Give up the world, then alone you are loosened from the
-body. When it dies, you are *âzâd*, free. Be free. Death alone can never
+body. When it dies, you are *āzād*, free. Be free. Death alone can never
 free us. Freedom must be attained by our own efforts during life; then,
 when the body falls, there will be no rebirth for the free.
 

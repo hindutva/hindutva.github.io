@@ -49,9 +49,9 @@ number suggested that they wet their fishy baskets and place them near
 their heads. Then they all fell into a sound sleep.
 
 The world is our fish basket, we must not depend upon it for enjoyment.
-Those who do are the Tâmasas or the bound. Then there are the Râjasas or
+Those who do are the Tāmasas or the bound. Then there are the Rājasas or
 the egotistical, who talk always about "I", "I". They do good work
-sometimes and may become spiritual. But the highest are the Sâttvikas,
+sometimes and may become spiritual. But the highest are the Sāttvikas,
 the introspective, those who live only in the Self. These three
 qualities, Tamas, Rajas, and Sattva (idleness, activity, and
 illumination), are in everyone, and different ones predominate at

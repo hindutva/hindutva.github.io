@@ -22,13 +22,13 @@ words, mortification, or concentration.
 Sometimes a man is born with the Siddhis, powers, of course, those he
 had earned in his previous incarnation. This time he is born, as it
 were, to enjoy the fruits of them. It is said of Kapila, the great
-father of the Sânkhya philosophy, that he was a born Siddha, which means
+father of the Sānkhya philosophy, that he was a born Siddha, which means
 literally a man who has attained to success.
 
 The Yogis claim that these powers can be gained by chemical means. All
 of you know that chemistry originally began as alchemy; men went in
 search of the philosopher's stone and elixirs of life, and so forth. In
-India there was a sect called the Râsâyanas. Their idea was that
+India there was a sect called the Rāsāyanas. Their idea was that
 ideality, knowledge, spirituality, and religion were all very right, but
 that the body was the only instrument by which to attain to all these.
 If the body came to an end every now and again, it would take so much
@@ -78,7 +78,7 @@ put himself in water, and that allayed the pain for a little while.
 After a month he did not suffer much. Through such practices powers
 (Siddhis) can be attained.
 
-*Concentration*. Concentration is Samâdhi, and that is Yoga proper; that
+*Concentration*. Concentration is Samādhi, and that is Yoga proper; that
 is the principal theme of this science, and it is the highest means. The
 preceding ones are only secondary, and we cannot attain to the highest
 through them. Samadhi is the means through which we can gain anything
@@ -159,7 +159,7 @@ Purusha itself is never changed. Whatever you do never destroys your own
 glory, your own nature, because the soul cannot be acted upon by
 anything, only a veil is spread before it, hiding its perfection.
 
-With a view to exhausting their Karma quickly, Yogis create Kâya-vyuha,
+With a view to exhausting their Karma quickly, Yogis create Kāya-vyuha,
 or groups of bodies, in which to work it out. For all these bodies they
 create minds from egoism. These are called "created minds", in
 contradistinction to their original minds.
@@ -178,7 +178,7 @@ recollect it. Then you can do anything with it, manipulate it in every
 way you like. The material out of which a manufactured mind is created
 is the very same material which is used for the macrocosm. It is not
 that mind is one thing and matter another, they are different aspects of
-the same thing. Asmitâ, egoism, is the material, the fine state of
+the same thing. Asmitā, egoism, is the material, the fine state of
 existence out of which these made-minds and made-bodies of the Yogi are
 manufactured. Therefore, when the Yogi has found the secret of these
 energies of nature, he can manufacture any number of bodies or minds out

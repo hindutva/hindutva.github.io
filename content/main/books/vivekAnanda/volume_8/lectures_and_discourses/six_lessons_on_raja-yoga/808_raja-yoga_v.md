@@ -17,7 +17,7 @@ Vivekananda to an intimate audience in the house of Mrs. Sara C. Bull, a
 devoted American disciple, and were preserved by her and finally printed
 in 1913 for private circulation — *Ed*.)
 
-Pratyâhâra and Dhâranâ: Krishna says, "All who seek me by whatever means
+Pratyāhāra and Dhāranā: Krishna says, "All who seek me by whatever means
 will reach me", "All must reach me." Pratyahara is a gathering toward,
 an attempt to get hold of the mind and focus it on the desired object.
 The first step is to let the mind drift; watch it; see what it thinks;
@@ -40,7 +40,7 @@ After sufficient practice of closing the nostrils with the thumb and
 forefinger, we shall be able to do it by the power of will, through
 thought alone.
 
-Prânâyâma is now to be slightly changed. If the student has the name of
+Prānāyāma is now to be slightly changed. If the student has the name of
 his "Ishta" (Chosen Ideal), he should use that instead of "Om" during
 inhalation and exhalation, and use the word "Hum" (pronounced Hoom)
 during Kumbhaka.

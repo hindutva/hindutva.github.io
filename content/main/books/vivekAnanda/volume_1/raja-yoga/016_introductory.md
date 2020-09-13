@@ -108,7 +108,7 @@ the highest sphere, the way is found; there is a way out of all this
 darkness, and that is by perceiving Him who is beyond all darkness;
 there is no other way."
 
-The science of Râja-Yoga proposes to put before humanity a practical and
+The science of Rāja-Yoga proposes to put before humanity a practical and
 scientifically worked out method of reaching this truth. In the first
 place, every science must have its own method of investigation. If you
 want to become an astronomer and sit down and cry "Astronomy!
@@ -311,7 +311,7 @@ danger in it. So far as it is true, it ought to be preached in the
 public streets, in broad daylight. Any attempt to mystify these things
 is productive of great danger.
 
-Before proceeding further, I will tell you a little of the Sânkhya
+Before proceeding further, I will tell you a little of the Sānkhya
 philosophy, upon which the whole of Raja-Yoga is based. According to the
 Sankhya philosophy, the genesis of perception is as follows: the
 affections of external objects are carried by the outer instruments to
@@ -322,7 +322,7 @@ gives the order back, as it were, to the motor centres to do the
 needful. With the exception of the Purusha all of these are material,
 but the mind is much finer matter than the external instruments. That
 material of which the mind is composed goes also to form the subtle
-matter called the Tanmâtras. These become gross and make the external
+matter called the Tanmātras. These become gross and make the external
 matter. That is the psychology of the Sankhya. So that between the
 intellect and the grosser matter outside there is only a difference in
 degree. The Purusha is the only thing which is immaterial. The mind is

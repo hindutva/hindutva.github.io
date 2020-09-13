@@ -53,7 +53,7 @@ It is almost impossible to express my thanks for the kindness and
 cordiality with which you have received me. But if I may be permitted to
 say so, I will add that my love for my country, and especially for my
 countrymen, will be the same whether they receive me with the utmost
-cordiality or spurn me from the country. For in the Gitâ Shri Krishna
+cordiality or spurn me from the country. For in the Gitā Shri Krishna
 says — men should work for work's sake only, and love for love's sake.
 The work that has been done by me in the Western world has been very
 little; there is no one present here who could not have done a hundred
@@ -165,7 +165,7 @@ your real nature has become hidden. But the real *you* is already
 perfect, already strong. You do not require any assistance to govern
 yourself; you are already self-restrained. The only difference is in
 knowing it or not knowing it. Therefore the one difficulty has been
-summed up in the word, Avidyâ. What makes the difference between God and
+summed up in the word, Avidyā. What makes the difference between God and
 man, between the saint and the sinner? Only ignorance. What is the
 difference between the highest man and the lowest worm that crawls under
 your feet? Ignorance. That makes all the difference. For inside that
@@ -198,7 +198,7 @@ are His playmates, His fellow-workers. This is only a play, however
 terrible, hideous, and dangerous it may appear. We have mistaken its
 aspect. When we have known the nature of the soul, hope comes to the
 weakest, to the most degraded, to the most miserable sinner. Only,
-declares your Shâstra, despair not. For you are the same whatever you
+declares your Shāstra, despair not. For you are the same whatever you
 do, and you cannot change your nature. Nature itself cannot destroy
 nature. Your nature is pure. It may be hidden for millions of aeons, but
 at last it will conquer and come out. Therefore the Advaita brings hope

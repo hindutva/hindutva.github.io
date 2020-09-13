@@ -13,7 +13,7 @@ title: THE STORY OF JADA BHARATA
 (*Delivered in California*)
 
 There was a great monarch named Bharata. The land which is called India
-by foreigners is known to her children as Bhârata Varsha. Now, it is
+by foreigners is known to her children as Bhārata Varsha. Now, it is
 enjoined on every Hindu when he becomes old, to give up all worldly
 pursuits — to leave the cares of the world, its wealth, happiness, and
 enjoyments to his son — and retire into the forest, there to meditate
@@ -61,7 +61,7 @@ upon the Self, was thinking about the deer; and with his eyes fixed upon
 the sad looks of his beloved deer, his soul left the body. As the result
 of this, in the next birth he was born as a deer. But no Karma is lost,
 and all the great and good deeds done by him as a king and sage bore
-their fruit. This deer was a born Jâtismara, and remembered his past
+their fruit. This deer was a born Jātismara, and remembered his past
 birth, though he was bereft of speech and was living in an animal body.
 He always left his companions and was instinctively drawn to graze near
 hermitages where oblations were offered and the Upanishads were
@@ -74,7 +74,7 @@ more to get entangled in the good and evil of life. The child, as it
 grew up, was strong and healthy, but would not speak a word, and lived
 as one inert and insane, for fear of getting mixed up with worldly
 affairs. His thoughts were always on the Infinite, and he lived only to
-wear out his past Prârabdha Karma. In course of time the father died,
+wear out his past Prārabdha Karma. In course of time the father died,
 and the sons divided the property among themselves; and thinking that
 the youngest was a dumb, good-for-nothing man, they seized his share.
 Their charity, however, extended only so far as to give him enough food

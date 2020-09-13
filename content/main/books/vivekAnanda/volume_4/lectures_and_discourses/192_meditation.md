@@ -46,12 +46,12 @@ upon itself. Although the emotion may arise from anything external,
 there is concentration of mind.
 
 There are three stages in meditation. The first is what is called
-\[Dhâranâ\], concentrating the mind upon an object. I try to concentrate
+\[Dhāranā\], concentrating the mind upon an object. I try to concentrate
 my mind upon this glass, excluding every other object from my mind
 except this glass. But the mind is wavering . . . When it has become
-strong and does not waver so much, it is called \[Dhyâna\], meditation.
+strong and does not waver so much, it is called \[Dhyāna\], meditation.
 And then there is a still higher state when the differentiation between
-the glass and myself is lost — \[Samâdhi or absorption\]. The mind and
+the glass and myself is lost — \[Samādhi or absorption\]. The mind and
 the glass are identical. I do not see any difference. All the senses
 stop and all powers that have been working through other channels of
 other senses \[are focused in the mind\]. Then this glass is under the
@@ -255,7 +255,7 @@ because I have no better word. In Sanskrit, God means absolute
 existence, knowledge, and wisdom, infinite self-luminous consciousness.
 No person. It is impersonal. ...
 
-I am never Râma \[never one with Ishvara, the personal aspect of God\],
+I am never Rāma \[never one with Ishvara, the personal aspect of God\],
 but I am \[one with Brahman, the impersonal, all-pervading existence\].
 Here is a huge mass of clay. Out of that clay I made a little \[mouse\]
 and you made a little \[elephant\]. Both are clay. Melt both down They
@@ -289,9 +289,9 @@ so light. This perfect rest we will get in meditation.
 
 Then, meditation upon different objects. There are meditations upon
 different centres of the spine. \[According to the Yogis, there are two
-nerves in the spinal column, called Idâ and Pingalâ.They are the main
+nerves in the spinal column, called Idā and Pingalā.They are the main
 channels through which the afferent and efferent currents travel.\] The
-hollow \[canal called Sushumnâ\] runs through the middle of the spinal
+hollow \[canal called Sushumnā\] runs through the middle of the spinal
 column. The Yogis claim this cord is closed, but by the power of
 meditation it has to be opened. The energy has to be sent down to \[the
 base of the spine\], and the Kundalini rises. The world will be changed.

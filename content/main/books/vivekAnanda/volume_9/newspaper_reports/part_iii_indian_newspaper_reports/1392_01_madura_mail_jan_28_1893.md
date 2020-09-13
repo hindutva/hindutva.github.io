@@ -16,7 +16,7 @@ Reports](indian_newspaper_contents.htm) /
 
 A BENGALI SADHU ON HINDU RELIGION AND SOCIOLOGY
 
-A young Bengalee Sanyashi \[Sannyâsin\] of about thirty-two years of
+A young Bengalee Sanyashi \[Sannyāsin\] of about thirty-two years of
 age, and a Master of Arts of the Calcutta University was last week
 interviewed at the Triplicane Literary Society by about a hundred
 educated Indians among whom was Dewan Bahadur Raghunatha Rao. A summary
@@ -79,7 +79,7 @@ result of an old and excellent religious civilization. This evolution to
 a higher spiritual state is possible only through discipline and
 education.
 
-The Shradh \[Shrâddha\] Ceremony[3](#fn3)
+The Shradh \[Shrāddha\] Ceremony[3](#fn3)
 
 Every institution, caste, early marriage etc., that stands in the way of
 education, ought at once to be knocked on the head. Even "Shradh" may be
@@ -138,7 +138,7 @@ Sudras.
     this period in his life.   Though this extract does not mention
     Swami Vivekananda by name, refers to an M.A. which the Swami never
     received, and describes him as two years older than his actual age —
-    still there is indubitable internal evidence that the Bengali Sâdhu
+    still there is indubitable internal evidence that the Bengali Sādhu
     was Swami Vivekananda. Furthermore, the date coincides accurately
     with the Swami's stay in Madras, and back-reference to this event
     published in the Indian Social Reformer, on July 13, 1902 is added

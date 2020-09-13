@@ -15,7 +15,7 @@ title: VIII
 (From the Diary of a Disciple)
 
 (The disciple is Sharatchandra Chakravarty, who published his records in
-a Bengali book, *Swami-Shishya-Samvâda*, in two parts. The present
+a Bengali book, *Swami-Shishya-Samvāda*, in two parts. The present
 series of "Conversations and Dialogues" is a revised translation from
 this book. Five dialogues of this series have already appeared in the
 *Complete Works*, [Vol.
@@ -61,14 +61,14 @@ of the future, you who have received the blessings of education. But
 know for certain that absolutely nothing can be done to improve the
 state of things, unless there is spread of education first among the
 women and the masses. And so I have it in my mind to train up some
-Brahmachârins and Brahmachârinis, the former of whom will eventually
-take the vow of Sannyâsa and try to carry the light of education among
+Brahmachārins and Brahmachārinis, the former of whom will eventually
+take the vow of Sannyāsa and try to carry the light of education among
 the masses, from village to village, throughout the country, while the
 latter will do the same among women. But the whole work must be done in
 the style of our own country. Just as centres have to be started for
 men, so also centres have to be started for teaching women.
 Brahmacharinis of education and character should take up the task of
-teaching at these different centres. History and the Purânas,
+teaching at these different centres. History and the Purānas,
 housekeeping and the arts, the duties of home-life and principles that
 make for the development of an ideal character have to be taught with
 the help of modern science, and the women students must be trained up in
@@ -82,7 +82,7 @@ the women, the awakening of the masses must come first, and then only
 can any real good come about for the country, for India.
 
 Near Chorebagan Swamiji gave it out to the disciple that the foundress
-of the Mahâkali Pâthashâlâ, the Tapasvini Mâtâji (ascetic mother), had
+of the Mahākali Pāthashālā, the Tapasvini Mātāji (ascetic mother), had
 invited him to visit her institution. When our carriage stopped at its
 destination, three or four gentlemen greeted Swamiji and showed him up
 to the first door. There the Tapasvini mother received him standing.
@@ -121,10 +121,10 @@ Brahmacharinis. It is good to avoid in this country any association of
 men with women's schools.
 
 Disciple: But, sir, how would you get now in thin country learned and
-virtuous women like Gârgi, Khanâ or Lilâvati?
+virtuous women like Gārgi, Khanā or Lilāvati?
 
 Swamiji: Do you think women of the type don't exist now in the country?
-Still on this sacred soil of India, this land of Sitâ and Sâvitri, among
+Still on this sacred soil of India, this land of Sitā and Sāvitri, among
 women may be found such character, such spirit of service, such
 affection, compassion, contentment, and reverence, as I could not find
 anywhere else in the world! In the West, the women did not very often
@@ -210,7 +210,7 @@ But only teaching rites of worship won't do; their education must be an
 eye-opener in all matters. Ideal characters must always be presented
 before the view of the girls to imbue them with a devotion to lofty
 principles of selflessness. The noble examples of Sita, Savitri,
-Damavanti, Lilavati, Khana, and Mirâ should be brought home to their
+Damavanti, Lilavati, Khana, and Mirā should be brought home to their
 minds and they should be inspired to mould their own lives in the light
 of these.
 
@@ -226,7 +226,7 @@ knowledge". (The allusion here is to the classification of various
 gifts, mentioned by Manu.) Turning to the disciple he said, "Educate,
 educate, 'नान्यः पन्था विद्यतेऽयनाय — Than this there is no other way'."
 And referring in banter to the party who do not favour educational
-propaganda, he said, "Well, don't go into the party of Prahlâdas!" Asked
+propaganda, he said, "Well, don't go into the party of Prahlādas!" Asked
 as to the meaning of the expression he replied, "Oh, haven't you heard?
 Tears rushed out of the eyes of Prahlada at the very sight of the first
 letter 'Ka' of the alphabet as it reminded him of Krishna; so how could

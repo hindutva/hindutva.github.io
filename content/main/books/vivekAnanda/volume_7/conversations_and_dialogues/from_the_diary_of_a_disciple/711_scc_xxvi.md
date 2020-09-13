@@ -25,7 +25,7 @@ hastened to go to the worship-room for meditation.
 
 According to Swamiji's instructions, the disciple rang the bell lustily
 near Swami Brahmananda's bed, which made the latter exclaim, "Good
-heavens! The Bângâl (Meaning an East Bengal man, used as a term of
+heavens! The Bāngāl (Meaning an East Bengal man, used as a term of
 endearing reproach for the disciple.) has made it too hot for us to stay
 in the Math!" On the disciple's communicating this to Swamiji, he burst
 out into a hearty laugh, saying, "Well done!"
@@ -48,12 +48,12 @@ calm, and grave. Bowing before Shri Ramakrishna he came downstairs and
 paced the courtyard of the Math. After a while he said to the disciple.
 "Do you see how the Sadhus are practising meditation etc. nowadays? When
 the meditation is deep, one sees many wonderful things. While meditating
-at the Baranagore Math, one day I saw the nerves Idâ and Pingalâ. One
+at the Baranagore Math, one day I saw the nerves Idā and Pingalā. One
 can see them with a little effort. Then, when one has a vision of the
-Shushumnâ, one can see anything one likes. If a man has unflinching
+Shushumnā, one can see anything one likes. If a man has unflinching
 devotion to the Guru, spiritual practices — meditation, Japa, and so
 forth — come quite naturally; one need not struggle for them. 'The Guru
-is Brahmâ, the Guru is Vishnu, and the Guru is Shiva Himself.'"
+is Brahmā, the Guru is Vishnu, and the Guru is Shiva Himself.'"
 
 Then the disciple prepared tobacco for Swamiji and when he returned with
 it, Swamiji spoke as he puffed at it, "Within there is the lion — the
@@ -84,7 +84,7 @@ tending towards concentration. Sometimes the mind is concentrated on a
 set of ideas — this is called meditation with Vikalpa or oscillation.
 But when the mind becomes almost free from all activities, it melts in
 the inner Self, which is the essence of infinite Knowledge, One, and
-Itself Its own support. This is what is called Nirvikalpa Samâdhi, free
+Itself Its own support. This is what is called Nirvikalpa Samādhi, free
 from all activities. In Shri Ramakrishna we have again and again noticed
 both these forms of Samadhi. He had not to struggle to get these states.
 They came to him spontaneously, then and there. It was a wonderful
@@ -93,7 +93,7 @@ things. Meditate every day alone. Everything will open up of itself. Now
 the Divine Mother — the embodiment of illumination — is sleeping within,
 hence you do not understand this. She is the Kundalini. When, before
 meditating, you proceed to "purify the nerves", you must mentally strike
-hard on the Kundalini in the Mulâdhâra (sacral plexus), and repeat,
+hard on the Kundalini in the Mulādhāra (sacral plexus), and repeat,
 "Arise, Mother, arise!" One must practise these slowly. During
 meditation, suppress the emotional side altogether. This is a great
 source of danger. Those that are very emotional no doubt have their

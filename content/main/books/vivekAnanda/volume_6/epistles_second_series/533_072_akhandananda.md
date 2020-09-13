@@ -36,7 +36,7 @@ Except Sharat and Shashi — I find no one else for this task. I have sent
 money to Sharat and written to him to start at once. I have requested
 Rajaji that his Bombay agent may help Sharat in embarking. I forgot to
 write — but if you can take the trouble to do it, please send through
-Sharat a bag of Mung, gram, and Arhar Dâl, also a little of the spice
+Sharat a bag of Mung, gram, and Arhar Dāl, also a little of the spice
 called Methi. Please convey my love to Pundit Narayan Das, Mr. Shankar
 Lal, Ojhaji, Doctor, and all. Do you think you can get the medicine for
 Gopi's eyes here? — Everywhere you find patent medicines, which are all

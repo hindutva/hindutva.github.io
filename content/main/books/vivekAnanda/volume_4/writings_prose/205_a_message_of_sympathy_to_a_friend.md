@@ -55,7 +55,7 @@ that the soldier is only to obey and speak not. Come, Lord, come
 Arjuna's Charioteer, and teach me as Thou once taughtest him, that
 resignation in *Thyself* is the highest end and aim of this life, so
 that with those great ones of old, I may also firmly and resignedly cry,
-Om Shri Krishnârpanamastu.
+Om Shri Krishnārpanamastu.
 
 May the Lord send you peace is the prayer day and night of —
 

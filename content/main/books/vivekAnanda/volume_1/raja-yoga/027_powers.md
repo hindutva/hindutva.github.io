@@ -18,14 +18,14 @@ We have now come to the chapter in which the Yoga powers are described.
 
 देशबन्धश्चित्तस्य धारणा ॥१॥
 
-1\. Dhâranâ is holding the mind on to some particular object.
+1\. Dhāranā is holding the mind on to some particular object.
 
 Dharana (concentration) is when the mind holds on to some object, either
 in the body, or outside the body, and keeps itself in that state.
 
 तत्र प्रत्ययैकतानता ध्यानम् ॥२॥
 
-2\. An unbroken flow of knowledge in that object is Dhyâna.
+2\. An unbroken flow of knowledge in that object is Dhyāna.
 
 The mind tries to think of one object, to hold itself to one particular
 spot, as the top of the head, the heart, etc., and if the mind succeeds
@@ -37,7 +37,7 @@ in keeping itself in that state for some time, it is called Dhyana
 तदेवार्थमात्रनिर्भासं स्वरूपशून्यमिव समाधिः ॥३॥
 
 3\. When that, giving up all forms, reflects only the meaning, it is
-Samâdhi.
+Samādhi.
 
 That comes when in meditation the form or the external part is given up.
 Suppose I were meditating on a book, and that I have gradually succeeded
@@ -76,7 +76,7 @@ This is a note of warning not to attempt to go too fast.
 
 7\. These three are more internal than those that precede.
 
-Before these we had the Pratyâhâra, the Prânâyâma, the Âsana, the Yama
+Before these we had the Pratyāhāra, the Prānāyāma, the Âsana, the Yama
 and Niyama; they are external parts of the three — Dharana, Dhyana and
 Samadhi. When a man has attained to them, he may attain to omniscience
 and omnipotence, but that would not be salvation. These three would; not
@@ -170,7 +170,7 @@ mind-stuff, which alone will enable him to make the Samyama named in
 or yet to be manifested is the qualified.
 
 That is to say, the qualified is the substance which is being acted upon
-by time and by the Samskâras, and getting changed and being manifested
+by time and by the Samskāras, and getting changed and being manifested
 always.
 
 क्रमान्यत्वं परिणामान्यत्वे हेतुः ॥१५॥
@@ -344,7 +344,7 @@ sense in which it is often used.
 
 प्रातिभाद्वा सर्वम् ॥३४॥
 
-34\. Or by the power of Prâtibha, all knowledge.
+34\. Or by the power of Prātibha, all knowledge.
 
 All these can come without any Samyama to the man who has the power of
 Pratibha (spontaneous enlightenment from purity). When a man has risen
@@ -409,7 +409,7 @@ from these nerve currents, he can work through other things.
 
 उदानजयाज्जलपङ्ककण्टकादिष्वसङ्ग उत्क्रान्तिश्च ॥४०॥
 
-40\. By conquering the current called Udâna the Yogi does not sink in
+40\. By conquering the current called Udāna the Yogi does not sink in
 water or in swamps, he can walk on thorns etc., and can, die at will.
 
 Udana is the name of the nerve current that governs the lungs and all
@@ -420,14 +420,14 @@ likes.
 
 समानजयात् प्रज्वलनम् ॥४१॥
 
-41\. By the conquest of the current Samâna he is surrounded by a blaze
+41\. By the conquest of the current Samāna he is surrounded by a blaze
 of light.
 
 Whenever he likes, light flashes from his body.
 
 श्रोत्राकाशयोः सम्बन्धसंयमाद्दिव्यं श्रोत्रम् ॥४२॥
 
-42\. By making Samyama on the relation between the ear and the Akâsha
+42\. By making Samyama on the relation between the ear and the Akāsha
 comes divine hearing.
 
 There is the Akasha, the ether, and the instrument, the ear. By making

@@ -60,10 +60,10 @@ which do not refer to purely secular matters and which do not merely
 record tradition or history, or merely provide incentives to duty, form
 the Vedas in the real sense.
 
-The Vedas are divided into two portions, the Jnâna-kânda
-(knowledge-portion) and the Karma-kânda (ritual-portion). The ceremonies
+The Vedas are divided into two portions, the Jnāna-kānda
+(knowledge-portion) and the Karma-kānda (ritual-portion). The ceremonies
 and the fruits of the Karma-kanda are confined within the limits of the
-world of Mâyâ, and therefore they have been undergoing and will undergo
+world of Māyā, and therefore they have been undergoing and will undergo
 transformation according to the law of change which operates through
 time, space, and personality.
 
@@ -102,7 +102,7 @@ emphasis only particular aspects of the spiritual ideal —
 
 And when, as a consequence, they reduced India, the fair land of
 religion, to a scene of almost infernal confusion by breaking up
-piecemeal the one Eternal Religion of the Vedas (Sanâtana Dharma), the
+piecemeal the one Eternal Religion of the Vedas (Sanātana Dharma), the
 grand synthesis of all the aspects of the spiritual ideal, into
 conflicting sects and by seeking to sacrifice one another in the flames
 of sectarian hatred and intolerance —

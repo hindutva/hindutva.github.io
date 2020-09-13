@@ -12,12 +12,12 @@ CHAPTER III
 
 ## PRANA
 
-Prânâyâma is not, as many think, something about breath; breath indeed
+Prānāyāma is not, as many think, something about breath; breath indeed
 has very little to do with it, if anything. Breathing is only one of the
 many exercises through which we get to the real Pranayama. Pranayama
-means the control of Prâna. According to the philosophers of India, the
+means the control of Prāna. According to the philosophers of India, the
 whole universe is composed of two materials, one of which they call
-Âkâsha. It is the omnipresent, all-penetrating existence. Everything
+Âkāsha. It is the omnipresent, all-penetrating existence. Everything
 that has form, everything that is the result of combination, is evolved
 out of this Akasha. It is the Akasha that becomes the air, that becomes
 the liquids, that becomes the solids; it is the Akasha that becomes the
@@ -124,7 +124,7 @@ from outside the limit, although our reason cannot go beyond. The causes
 of the phenomena intruding themselves in this small limit are outside of
 this limit. The mind can exist on a still higher plane, the
 superconscious. When the mind has attained to that state, which is
-called Samâdhi — perfect concentration, superconsciousness — it goes
+called Samādhi — perfect concentration, superconsciousness — it goes
 beyond the limits of reason, and comes face to face with facts which no
 instinct or reason can ever know. All manipulations of the subtle forces
 of the body, the different manifestations of Prana, if trained, give a

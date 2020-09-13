@@ -55,7 +55,7 @@ feel I am more a Sannyasin now than I ever was in America.
 in beauty the fear of age, in fame the fear of backbiters, in success
 the fear of jealousy, even in body is the fear of death. Everything in
 this earth is fraught with fear. He alone is fearless who has given up
-everything" (*Vairâgya-Shatakam*, 31).
+everything" (*Vairāgya-Shatakam*, 31).
 
 I went to see Miss Corbin the other day, and Miss Farmer and Miss
 Thursby were also there. We had a nice half-hour and she wants me to

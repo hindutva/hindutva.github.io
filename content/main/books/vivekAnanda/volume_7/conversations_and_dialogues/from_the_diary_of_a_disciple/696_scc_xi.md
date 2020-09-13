@@ -42,7 +42,7 @@ season, then he is bound to believe in course of time that he is really
 such. This is called hypnotism. The non-Brahmin classes are now slowly
 rousing themselves. Their faith in Brahminical scriptures and Mantras is
 getting shaken. Through the spread of Western education all the tricks
-of the Brahmins are giving way, like the banks of the Padmâ in the rainy
+of the Brahmins are giving way, like the banks of the Padmā in the rainy
 season. Do you not see that?
 
 Disciple: Yes, sir, the stricture of orthodoxy is gradually lessening
@@ -66,7 +66,7 @@ Disciple: But, sir, even now it is the Brahmins who direct all
 ceremonials, and people are observing them according to the opinions of
 the Brahmins. Why then do you speak like that?
 
-Swamiji: I don't find it. Where do the tenfold Samskâras or purifying
+Swamiji: I don't find it. Where do the tenfold Samskāras or purifying
 ceremonies enjoined by the Shastras obtain still? Well, I have travelled
 the whole of India, and everywhere I have found society to be guided by
 local usages which are condemned by the Shrutis and Smritis. Popular
@@ -76,7 +76,7 @@ whom? If you can but spend enough money, the priest-class is ready to
 write out whatever sanctions or prohibitions you want! How many of them
 read the Vedic Kalpa (Ritual), Grihya and Shrauta Sutras? Then, look,
 here in Bengal the code of Raghunandana is obeyed; a little farther on
-you will find the code of Mitâkshâra in vogue; while in another part the
+you will find the code of Mitākshāra in vogue; while in another part the
 code of Manu holds sway! You seem to think that the same laws hold good
 everywhere! What I want therefore is to introduce the study of the Vedas
 by stimulating a greater regard for them in the minds of the people, and
@@ -93,7 +93,7 @@ Disciple: Sir, I was under the impression that at least the injunctions
 of Manu were being obeyed all over India even now.
 
 Swamiji: Nothing of the kind. Just look to your own province and see how
-the Vâmâchâra (immoral practices) of the Tantras has entered into your
+the Vāmāchāra (immoral practices) of the Tantras has entered into your
 very marrow. Even modern Vaishnavism, which is the skeleton of the
 defunct Buddhism, is saturated with Vamachara! We must stem the tide of
 this Vamachara, which is contrary to the spirit of the Vedas.
@@ -105,7 +105,7 @@ the country into ruin by crying, 'It is impossible, it is impossible!'
 What cannot human effort achieve?
 
 Disciple: But, sir, such a state of things seems impossible unless sages
-like Manu and Yâjnavalkya are again born in the country.
+like Manu and Yājnavalkya are again born in the country.
 
 Swamiji: Goodness gracious! Was it not purity and unselfish labour that
 made them Manu and Yajnavalkya, or was it something else? Well, we
@@ -186,7 +186,7 @@ see that nowadays through the Mother's grace I have not to think about
 food, it comes anyhow. Why then don't I do so? And why am I here? Only
 the sight of the country's misery and the thought of its future do not
 let me remain quiet any more! — Even Samadhi and all that appear as
-futile — even the sphere of Brahmâ with its enjoyments becomes insipid!
+futile — even the sphere of Brahmā with its enjoyments becomes insipid!
 My vow of life is to think of your welfare. The day that vow will be
 fulfilled, I shall leave this body and make a straight run up!
 

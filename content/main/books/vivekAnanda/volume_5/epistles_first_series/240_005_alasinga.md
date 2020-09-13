@@ -33,8 +33,8 @@ gentleman.
 On the morning of the opening of the Parliament, we all assembled in a
 building called the Art Palace, where one huge and other smaller
 temporary halls were erected for the sittings of the Parliament. Men
-from all nations were there. From India were Mazoomdar of the Brâhmo
-Samâj, and Nagarkar of Bombay, Mr. Gandhi representing the Jains, and
+from all nations were there. From India were Mazoomdar of the Brāhmo
+Samāj, and Nagarkar of Bombay, Mr. Gandhi representing the Jains, and
 Mr. Chakravarti representing Theosophy with Mrs. Annie Besant. Of these,
 Mazoomdar and I were, of course, old friends, and Chakravarti knew me by
 name. There was a grand procession, and we were all marshalled on to the
@@ -73,7 +73,7 @@ impression on American society.
 
 And how to speak of their kindness? I have no more wants now, I am well
 off, and all the money that I require to visit Europe I shall get from
-here. . . . A boy called Narasimhâchârya has cropped up in our midst. He
+here. . . . A boy called Narasimhāchārya has cropped up in our midst. He
 has been loafing about the city for the last three years. Loafing or no
 loafing, I like him; but please write to me all about him if you know
 anything. He knows you. He came in the year of the Paris Exhibition to
@@ -115,7 +115,7 @@ that he is a *man*. Every man born in India knows that he is a slave of
 society. Now, freedom is the only condition of growth; take that off,
 the result is degeneration. With the introduction of modern competition,
 see how caste is disappearing fast! No religion is now necessary to kill
-it. The Brâhmana shopkeeper, shoemaker, and wine-distiller are common in
+it. The Brāhmana shopkeeper, shoemaker, and wine-distiller are common in
 Northern India. And why? Because of competition. No man is prohibited
 from doing anything he pleases for his livelihood under the present
 Government, and the result is neck and neck competition, and thus
@@ -170,7 +170,7 @@ o'clock in the morning to ten o'clock at night — only a recess of half
 an hour for a meal, and paper after paper read, most of them very
 trivial, but they would wait and wait to hear their favourites.
 
-Dharmapâla of Ceylon was one of the favourites But unfortunately he was
+Dharmapāla of Ceylon was one of the favourites But unfortunately he was
 not a good speaker. He had only quotations from Max Müller and Rhys
 Davids to give them. He is a very sweet man, and we became very intimate
 during the Parliament.

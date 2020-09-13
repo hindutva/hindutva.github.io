@@ -38,7 +38,7 @@ I. INTRODUCTION
 
 Vast and deep rivers — swelling and impetuous — charming
 pleasure-gardens by the river banks, putting to shame the celestial
-Nandana-Kânana; amidst these pleasure-gardens rise, towering to the sky,
+Nandana-Kānana; amidst these pleasure-gardens rise, towering to the sky,
 beautiful marble palaces, decorated with the most exquisite workmanship
 of fine art; on the sides, in front, and behind, clusters of huts, with
 crumbling mud-walls and dilapidated roofs, the bamboos of which, forming
@@ -50,7 +50,7 @@ their eyes, the same feeble physique; on the wayside refuse and dirt:
 This is our present-day India!
 
 Worn-out huts by the very side of palaces, piles of refuse in the near
-proximity of temples, the Sannyâsin clad with only a little loin-cloth,
+proximity of temples, the Sannyāsin clad with only a little loin-cloth,
 walking by the gorgeously dressed, the pitiful gaze of lustreless eyes
 of the hunger-stricken at the well-fed and the amply-provided: This is
 our native land!
@@ -71,7 +71,7 @@ others of foreign faiths; patient in labour and suffering and devoid of
 initiative like the slave; without any hope, without any past, without
 any future; desirous only of maintaining the present life anyhow,
 however precarious; of malicious nature befitting a slave, to whom the
-prosperity of their fellow-men is unbearable; bereft of Shraddhâ, like
+prosperity of their fellow-men is unbearable; bereft of Shraddhā, like
 one with whom all hope is dead, faithless; whose weapon of defence is
 base trickery, treachery, and slyness like that of a fox; the embodiment
 of selfishness; licking the dust of the feet of the strong, withal
@@ -159,7 +159,7 @@ the fulfilment of the divine decree in the fullness of time. Oh, dear!
 No! neither Jesus is come nor Jehovah; nor will they come; they are now
 busy in saving their own hearths and homes and have no time to come to
 our country. Here is the selfsame Old Shiva seated as before, the bloody
-Mother Kâli worshipped with the selfsame paraphernalia, the pastoral
+Mother Kāli worshipped with the selfsame paraphernalia, the pastoral
 Shepherd of Love, Shri Krishna, playing on His flute. Once this Old
 Shiva, riding on His bull and laboring on His Damaru travelled from
 India, on the one side, to Sumatra, Borneo, Celebes, Australia, as far
@@ -168,7 +168,7 @@ His bull in Tibet, China, Japan, and as far up as Siberia, and is still
 doing the same. The Mother Kali is still exacting Her worship even in
 China and Japan: it is She whom the Christians metamorphosed into the
 Virgin Mary, and worship as the mother of Jesus the Christ. Behold the
-Himalayas! There to the north is Kailâs, the main abode of the Old
+Himalayas! There to the north is Kailās, the main abode of the Old
 Shiva. That throne the ten-headed, twenty-armed, mighty Ravana could not
 shake — now for the missionaries to attempt the task? — Bless my soul!
 Here in India will ever be the Old Shiva laboring on his Damaru, the
@@ -195,7 +195,7 @@ qualities, more or less in one nation than in another.
 
 With us, the prominent idea is Mukti; with the Westerners, it is Dharma.
 What we desire is Mukti; what they want is Dharma. Here the word
-"Dharma" is used in the sense of the Mimâmsakas. What is Dharma? Dharma
+"Dharma" is used in the sense of the Mimāmsakas. What is Dharma? Dharma
 is that which makes man seek for happiness in this world or the next.
 Dharma is established on work, Dharma is impelling man day and night to
 run after and work for happiness.
@@ -214,10 +214,10 @@ future they will be in other countries as well; that is well and good,
 and a thing of great pleasure to us. There was a time in India when
 Dharma was compatible with Mukti. There were worshippers of Dharma, such
 as Yudhishthira, Arjuna, Duryodhana, Bhishma, and Karna, side by side
-with the aspirants of Mukti, such as Vyâsa, Shuka, and Janaka. On the
+with the aspirants of Mukti, such as Vyāsa, Shuka, and Janaka. On the
 advent of Buddhism, Dharma was entirely neglected, and the path of
-Moksha alone became predominant. Hence, we read in the Agni Purâna, in
-the language of similes, that the demon Gayâsura — that is, Buddha
+Moksha alone became predominant. Hence, we read in the Agni Purāna, in
+the language of similes, that the demon Gayāsura — that is, Buddha
 (Swamiji afterwards changed this view with reference to Buddha, as is
 evident from the [letter dated Varanasi, the 9th February,
 1902,](../epistles_first_series/114_swarup.htm) in this volume.) — tried
@@ -228,10 +228,10 @@ hear so much spoken, is due to the utter want of this Dharma. If the
 whole nation practices and follows the path of Moksha, that is well and
 good; but is that possible? Without enjoyment, renunciation can never
 come; first enjoy and then you can renounce. Otherwise, if the whole
-nation, all of a sudden, takes up Sannyâsa, it does not gain what it
+nation, all of a sudden, takes up Sannyāsa, it does not gain what it
 desires, but it loses what it had into the bargain — the bird in the
 hand is fled, nor is that in the bush caught. When, in the heyday of
-Buddhistic supremacy, thousands of Sannyâsins lived in every monastery,
+Buddhistic supremacy, thousands of Sannyāsins lived in every monastery,
 then it was that the country was just on the verge of its ruin! The
 Bauddhas, the Christians, the Mussulmans, and the Jains prescribe, in
 their folly, the same law and the same rule for all. That is a great
@@ -243,7 +243,7 @@ than Moksha; whoever you are, come one and all to take it." I ask, "Is
 that ever possible?" "You are a householder, you must not concern
 yourself much with things of that sort: you do your Svadharma (natural
 duty)" — thus say the Hindu scriptures. Exactly so! He who cannot leap
-one foot, is going to jump across the ocean to Lankâ in one bound! Is it
+one foot, is going to jump across the ocean to Lankā in one bound! Is it
 reason? You cannot feed your own family or dole out food to two of your
 fellow-men, you cannot do even an ordinary piece of work for the common
 good, in harmony with others — and you are running after Mukti! The
@@ -255,11 +255,11 @@ but the scriptures say, "Thou art a householder; if anyone smites thee
 on thy cheek, and thou dost not return him an eye for an eye, a tooth
 for a tooth, thou wilt verily be a sinner." Manu says, "When one has
 come to kill you, there is no sin in killing him, even though he be a
-Brâhmin" (Manu, VIII. 350). This is very true, and this is a thing which
+Brāhmin" (Manu, VIII. 350). This is very true, and this is a thing which
 should not be forgotten. Heroes only enjoy the world. Show your heroism;
 apply, according to circumstances, the fourfold political maxims of
 conciliation, bribery, sowing dissensions, and open war, to win over
-your adversary and enjoy the world — then you will be Dhârmika
+your adversary and enjoy the world — then you will be Dhārmika
 (righteous). Otherwise, you live a disgraceful life if you pocket your
 insults when you are kicked and trodden down by anyone who takes it into
 his head to do so; your life is a veritable hell here, and so is the
@@ -306,7 +306,7 @@ up work? Until then, he will have to enjoy or suffer according to the
 fruition of his good or bad work and will be irresistibly impelled to do
 work. Since enjoyment and work cannot be given up till then, is it not
 better to do good rather than bad works — to enjoy happiness rather than
-suffer misery? Shri Râmprasâd (A Bengali saint, devotee of Kâli, and an
+suffer misery? Shri Rāmprasād (A Bengali saint, devotee of Kāli, and an
 inspired poet who composed songs in praise of the Deity, expressing the
 highest truths of religion in the simplest words.) used to say, "They
 speak of two works, 'good' and 'bad'; of them, it is better to do the
@@ -316,7 +316,7 @@ Now what is that good which is to be pursued? The good for him who
 desires Moksha is one, and the good for him who wants Dharma is another.
 This is the great truth which the Lord Shri Krishna, the revealer of the
 Gita, has tried therein to explain, and upon this great truth is
-established the Varnâshrama (Four castes and four stages of life.)
+established the Varnāshrama (Four castes and four stages of life.)
 system and the doctrine of Svadharma etc. of the Hindu religion.
 
 अद्वेष्टा सर्वभूतानां मैत्रः करुण एव च ।  
@@ -330,7 +330,7 @@ for him whose one goal in life is Moksha. (Gita, XII. 13.)
 क्लैब्यं मा स्म गमः पार्थ नैतत्त्वय्युपपद्यते ।  
 क्षुद्रं हृदयदौर्बल्यं त्यक्त्वोत्तिष्ठ परन्तप ॥
 
-— "Yield not to unmanliness, O son of Prithâ! Ill cloth it befit thee.
+— "Yield not to unmanliness, O son of Prithā! Ill cloth it befit thee.
 Cast off this mean faint-heartedness and arise. O scorcher of thine
 enemies." (Gita, II. 3.)
 
@@ -340,7 +340,7 @@ enemies." (Gita, II. 3.)
 
 — "Therefore do thou arise and acquire fame. After conquering thy
 enemies, enjoy unrivalled dominion; verily, by Myself have they been
-already slain; be thou merely the instrument, O Savyasâchin (Arjuna)."
+already slain; be thou merely the instrument, O Savyasāchin (Arjuna)."
 (Gita, XI. 33.)
 
 In these and similar passages in the Gita the Lord is showing the way to
@@ -352,14 +352,14 @@ better than doing nothing and passing an idle and inactive life, and
 being like stones? The cow never tells a lie, and the stone never
 steals, but, nevertheless, the cow remains a cow and the stone a stone.
 Man steals and man tells lies, and again it is man that becomes a god.
-With the prevalence of the Sâttvika essence, man becomes inactive and
-rests always in a state of deep Dhyâna or contemplation; with the
+With the prevalence of the Sāttvika essence, man becomes inactive and
+rests always in a state of deep Dhyāna or contemplation; with the
 prevalence of the Rajas, he does bad as well as good works; and with the
 prevalence of the Tamas again, he becomes inactive and inert. Now, tell
 me, looking from outside, how are we to understand, whether you are in a
 state wherein the Sattva or the Tamas prevails? Whether we are in the
 state of Sattvika calmness, beyond all pleasure and pain, and past all
-work and activity, or whether we are in the lowest Tâmasika state,
+work and activity, or whether we are in the lowest Tāmasika state,
 lifeless, passive, dull as dead matter, and doing no work, because there
 is no power in us to do it, and are, thus, silently and by degrees,
 getting rotten and corrupted within — I seriously ask you this question
@@ -393,7 +393,7 @@ corruption and stench. It is because Arjuna was going to fall into the
 ranks of these men that the Lord is explaining matters to him so
 elaborately in the Gita. Is that not the fact? Listen to the very first
 words that came out of the mouth of the Lord, "क्लैब्यं मा स्म गमः पार्थ
-नैतत्त्वय्युपपद्यते — Yield not to unmanliness, O Pârtha! Ill, doth it
+नैतत्त्वय्युपपद्यते — Yield not to unmanliness, O Pārtha! Ill, doth it
 befit thee!" and then later, "तस्मात्त्वमुत्तिष्ठ यशो लभस्व — Therefore
 do thou arise and acquire fame." Coming under the influence of the
 Jains, Buddhas, and others, we have joined the lines of those Tamasika
@@ -415,7 +415,7 @@ Lord in the Gita is saying: Always work with great enthusiasm, destroy
 your enemies and enjoy the world. But, after all, it turned out to be
 exactly the reverse of what Christ or Krishna implied. The Europeans
 never took the words of Jesus Christ seriously. Always of active habits,
-being possessed of a tremendous Râjasika nature, they are gathering with
+being possessed of a tremendous Rājasika nature, they are gathering with
 great enterprise and youthful ardour the comforts and luxuries of the
 different countries of the world and enjoying them to their hearts'
 content. And we are sitting in a corner, with our bag and baggage,
@@ -448,8 +448,8 @@ fourfold attainment of man, comprising Dharma, Artha, Kama, and Moksha.
 Buddha ruined us, and so did Christ ruin Greece and Rome! Then, in due
 course of time, fortunately, the Europeans became Protestants, shook off
 the teachings of Christ as represented by Papal authority, and heaved a
-sigh of relief. In India, Kumârila again brought into currency the
-Karma-Mârga, the way of Karma only, and Shankara and Râmânuja firmly
+sigh of relief. In India, Kumārila again brought into currency the
+Karma-Mārga, the way of Karma only, and Shankara and Rāmānuja firmly
 re-established the Eternal Vedic religion, harmonising and balancing in
 due proportions Dharma, Artha, Kama, and Moksha. Thus the nation was
 brought to the way of regaining its lost life; but India has three
@@ -466,7 +466,7 @@ Therefore, though the aims are the same, the Bauddhas for want of right
 means have degraded India. Perhaps my Bauddha brothers will be offended
 at this remark, and fret and fume; but there's no help for it; the truth
 ought to be told, and I do not care for the result. The right and
-correct means is that of the Vedas — the Jâti Dharma, that is, the
+correct means is that of the Vedas — the Jāti Dharma, that is, the
 Dharma enjoined according to the different castes — the Svadharma, that
 is, one's own Dharma, or set of duties prescribed for man according to
 his capacity and position — which is the very basis of Vedic religion
@@ -499,7 +499,7 @@ Thus the vital point of our national life has been touched; otherwise,
 why should we sink to this degraded state? Read in the Gita, संकरस्य च
 कर्ता स्यामुपहन्यामिमाः प्रजाः — I should then be the cause of the
 admixture of races, and I should thus ruin these beings." How came this
-terrible Varna-Sâmkarya — this confounding mixture of all castes — and
+terrible Varna-Sāmkarya — this confounding mixture of all castes — and
 disappearance of all qualitative distinctions? Why has the white
 complexion of our forefathers now become black? Why did the Sattvaguna
 give place to the prevailing Tamas with a sprinkling, as it were, of
@@ -571,7 +571,7 @@ great revolution. They killed the king.
 The Hindu says that political and social independence are well and good,
 but the real thing is spiritual independence — Mukti. This is our
 national purpose; whether you take the Vaidika, the Jaina, or the
-Bauddha, the Advaita, the Vishishtâdvaita, or the Dvaita — there, they
+Bauddha, the Advaita, the Vishishtādvaita, or the Dvaita — there, they
 are all of one mind. Leave that point untouched and do whatever you
 like, the Hindu is quite unconcerned and keeps silence; but if you run
 foul of him there, beware, you court your ruin. Rob him of everything he
@@ -745,14 +745,14 @@ equatorial regions are peopled by white aborigines.
 
 According to the Hindu Shastras, the three Hindu castes, Brahmana,
 Kshatriya, and Vaishya, and the several nations outside India, to wit,
-Cheen, Hun, Darad, Pahlava, Yavana, and Khâsh are all Aryas. This Cheen
+Cheen, Hun, Darad, Pahlava, Yavana, and Khāsh are all Aryas. This Cheen
 of our Shastras is not the modern Chinaman. Besides, in those days, the
 Chinamen did not call themselves Cheen at all. There was a distinct,
 powerful nation, called Cheen, living in the north-eastern parts of
 Kashmir, and the Darads lived where are now seen the hill-tribes between
 India and Afghanistan. Some remnants of the ancient Cheen are yet to be
 found in very small numbers, and Daradisthan is yet in existence. In the
-*Râjatarangini*, the history of Kashmir, references are often made to
+*Rājatarangini*, the history of Kashmir, references are often made to
 the supremacy of the powerful Darad-Raj. An ancient tribe of Huns
 reigned for a long period in the north-western parts of India. The
 Tibetans now call themselves Hun, but this Hun is perhaps "Hune". The
@@ -765,7 +765,7 @@ some parts of Tibet tribes with faces and eyes of the Aryan type.
 "Yavana" was the name given to the Greeks. There has been much dispute
 about the origin of this name. Some say that the name Yavana was first
 used to designate a tribe of Greeks inhabiting the place called "Ionia",
-and hence, in the Pâli writs of the Emperor Asoka, the Greeks are named
+and hence, in the Pāli writs of the Emperor Asoka, the Greeks are named
 "Yonas", and afterwards from this "Yona" the Sanskrit word Yavana, was
 derived. Again, according to some of our Indian antiquarians, the word
 Yavana does not stand for the Greeks. But all these views are wrong. The
@@ -848,7 +848,7 @@ appearance and added to that is the burden of dress, over which they
 have to show their features to the best advantage. Their Western dress
 is, however, more suited for work. With the exception of the dress worn
 in society by the ladies of the wealthy classes, the dress of the women
-in general is ugly. The Sâri of our women, and the Chogâ, Châpkan, and
+in general is ugly. The Sāri of our women, and the Chogā, Chāpkan, and
 turban of our men defy comparison as regards beauty in dress. The tight
 dresses cannot approach in beauty the loose ones that fall in natural
 folds. But all our dresses being flowing, and in folds, are not suited
@@ -936,7 +936,7 @@ after-life, while the Asuras give importance to this life, and devote
 themselves to enjoying this world and trying to have bodily comforts in
 every possible way. We do not mean to discuss here whether the Devas are
 better than the Asuras, or the Asuras than the Devas, but, reading their
-descriptions in the Purânas, the Asuras seem to be, truth to tell, more
+descriptions in the Purānas, the Asuras seem to be, truth to tell, more
 like MEN, and far more manly than the Devas; the Devas are inferior,
 without doubt, to the Asuras, in many respects. Now, to understand the
 East and the West, we cannot do better than interpret the Hindus as the
@@ -999,7 +999,7 @@ before women you have to cover yourself cap-a-pie.
 
 This custom of external cleanliness, like all other customs, sometimes
 turns out to be, in the long run, rather a tyranny or the very reverse
-of Âchâra (cleanliness). The European says that all bodily matters have
+of Âchāra (cleanliness). The European says that all bodily matters have
 to be attended to in private. Well and good. "It is vulgar to spit
 before other people. To rinse your mouth before others is disgraceful."
 So, for fear of censure, they do not wash their mouth after meals, and
@@ -1102,12 +1102,12 @@ and efficient as they are in the arts of painting and sculpture. We were
 never very skilful in those two departments of art. By imitating the
 Europeans we at the utmost can only produce one or two Ravi Varmas among
 us! But far better than such artists are our Patuas (painter) who do the
-Châlchitras (Arch shaper frames over the images of deities, with
-Paurânika pictures.) of our goddesses, in Bengal. They display in their
+Chālchitras (Arch shaper frames over the images of deities, with
+Paurānika pictures.) of our goddesses, in Bengal. They display in their
 work at least a boldness in the brilliancy of their colours. The
 paintings of Ravi Varma and others make one hide one's face from shame!
 Far better are those gilded pictures of Jaipur and the Chalchitra of the
-goddess Durgâ that we have had from old times. I shall reserve my
+goddess Durgā that we have had from old times. I shall reserve my
 reflections on the European arts of sculpture and painting for some
 future occasion. That is too vast a subject to enter upon here.
 
@@ -1182,11 +1182,11 @@ victims by millions. Whose fault is it? Ours, to be sure. We are sadly
 devoid of Achara!
 
 All our different sects of Hinduism admit the truth of the celebrated
-saying of the Shruti, (Chhândogya Upanishad, VII. xxvi. 2.)  "आहारशुद्धौ
+saying of the Shruti, (Chhāndogya Upanishad, VII. xxvi. 2.)  "आहारशुद्धौ
 सत्त्वशुद्धिः सत्त्वशुद्धौ ध्रुवा स्मृतिः — When the food is pure, then
 the inner-sense gets purified; on the purification of the innersense,
 memory (of the soul's perfection) becomes steady." Only, according to
-Shankarâchârya, the word Ahâra means the sense-perceptions, and Râmânuja
+Shankarāchārya, the word Ahāra means the sense-perceptions, and Rāmānuja
 takes the word to mean food. But what is the solution? All sects agree
 that both are necessary, and both ought to be taken into account.
 Without pure food, how can the Indriyas (organs) perform their
@@ -1203,8 +1203,8 @@ food — though in many cases, forgetting their essential substance, the
 kernel, we are now busy only with quarrelling about the shell and
 keeping watch and ward over it.
 
-Râmânujâchârya asks us to avoid three sorts at defects which, according
-to him, make food impure. The first defect is that of the Jâti, i.e. the
+Rāmānujāchārya asks us to avoid three sorts at defects which, according
+to him, make food impure. The first defect is that of the Jāti, i.e. the
 very nature or the species to which the food belongs, as onion, garlic,
 and so on. These have an exciting tendency and, when taken, produce
 restlessness of the mind, or in other words perturb the intellect. The
@@ -1222,8 +1222,8 @@ me!"
 But in most cases, the cart is put before the horse; and the real
 meaning of the principle being misunderstood, it becomes in time a queer
 and hideous superstition. In these cases, the Acharas of the great
-Âchâryas, the teachers of mankind, should be followed instead of the
-Lokâchâras. i.e. the customs followed by the people in general. One
+Âchāryas, the teachers of mankind, should be followed instead of the
+Lokāchāras. i.e. the customs followed by the people in general. One
 ought to read the lives of such great Masters as Shri Chaitanya Deva and
 other similarly great religious teachers and see how they behaved
 themselves with their fellow-men in this respect. As regards the
@@ -1272,10 +1272,10 @@ account should the taking away of life be tolerated." Asoka, the
 Buddhist emperor, we read, punished those who would perform Yajnas or
 offer meat to the invited at any ceremony. The position in which the
 modern Vaishnavas find themselves is rather one of difficulty. Instances
-are found in the Râmâyana[1](#fn1) and the Mahâbhârata[2](#fn2) of the
+are found in the Rāmāyana[1](#fn1) and the Mahābhārata[2](#fn2) of the
 drinking of wine and the taking of meat by Rama and Krishna, whom they
 worship as God. Sita Devi vows meat, rice, and a thousand jars of wine
-to the river-goddess, Gangâ! (Yamuna).[3](#fn3) 
+to the river-goddess, Gangā! (Yamuna).[3](#fn3) 
 
 In the West, the contention is whether animal food is injurious to
 health or not, whether it is more strengthening than vegetable diet or
@@ -1319,10 +1319,10 @@ heroic and thoughtful. The nations who take animal food also assert that
 in those days when the smoke from Yajnas used to rise in the Indian sky
 and the Hindus used to take the meat of animals sacrificed, then only
 great religious geniuses and intellectual giants were born among them;
-but since the drifting of the Hindus into the Bâbâji's vegetarianism,
+but since the drifting of the Hindus into the Bābāji's vegetarianism,
 not one great, original man arose midst them. Taking this view into
 account, the meat-eaters in our country are afraid to give up their
-habitual diet. The Ârya Samâjists are divided amongst themselves on this
+habitual diet. The Ârya Samājists are divided amongst themselves on this
 point, and a controversy is raging within their fold — one party holding
 that animal food is absolutely necessary, and the opposite party
 denouncing it as extremely wrong and unjust.
@@ -1405,7 +1405,7 @@ day. What wonder is there that they die prematurely of dyspepsia! If you
 are hungry, throw away all sweets and things fried in ghee into the
 ditch, and buy a pice worth of Moorhi (popped rice) — that will be
 cheaper and more nutritious food. It is sufficient food to have rice,
-Dâl (lentils), whole-wheat Châpâtis (unfermented bread), fish,
+Dāl (lentils), whole-wheat Chāpātis (unfermented bread), fish,
 vegetables, and milk. But Dal has to be taken as the Southern Indians
 take it, that is, the soup of it only; the rest of the preparation give
 to the cattle. He may take meat who can afford it, but not making it too
@@ -1433,7 +1433,7 @@ account. Only, pay more attention to your diet so that you may avoid
 indigestion. Be in the open air as much as possible, and take good long
 walks and work hard. The muscles of the leg should be as hard as iron.
 If you are in service, take leave when possible and make a pilgrimage to
-the Badarikâshrama in the Himalayas. If the journey is accomplished on
+the Badarikāshrama in the Himalayas. If the journey is accomplished on
 foot through the ascent and descent of two hundred miles in the hills,
 you will see that this ghost of diabetes will depart from you. Do not
 let the doctors come near you; most of them will harm you more than do
@@ -1521,7 +1521,7 @@ lean westwards to copy the modes of food, the worse you are, and the
 more uncivilized you become. You are Calcutta-ites, civilised, forsooth!
 Carried away by the charm of that destructive net which is of your own
 creation, the bazaar sweets, Bankura has consigned its popped-rice to
-the river Damodar, its Kalâi Dâl has been cast into the ditch, and Dacca
+the river Damodar, its Kalāi Dāl has been cast into the ditch, and Dacca
 and Vikrampur have thrown to the dogs their old dishes — or in other
 words, they have become "civilised"! You have gone to rack and ruin, and
 are leading others in the same path, toll townspeople, and you pride
@@ -1543,7 +1543,7 @@ classes; as in Bengal, Orissa, Madras, and the Malabar coasts, the prime
 food is rice, pulse, and vegetables, and sometimes, fish and meat are
 used for *chutney* only. The food of the well-to-do class in other parts
 of India is Chapatis (unfermented bread) of wheat, and rice, of the
-people in general, mainly Chapatis of Bazrâ, Marhuâ, Janâr, Jhingorâ,
+people in general, mainly Chapatis of Bazrā, Marhuā, Janār, Jhingorā,
 and other corns.
 
 All over India, herbs, vegetables, pulse, fish, and meat are used only
@@ -1606,7 +1606,7 @@ giving a dinner as would ruin a moderately rich man of our country.
 Sitting cross-legged on a wooden seat on the ground, with a similar one
 to lean his back against, the Arya used to take his food on a single
 metal plate, placed on a slightly-raised wooden stool. The same custom
-is still in rogue in the Punjab, Rajputana, Mahârâshtra, and Gujarat.
+is still in rogue in the Punjab, Rajputana, Mahārāshtra, and Gujarat.
 The people of Bengal, Orissa, Telinga, and Malabar, etc., do not use
 wooden stools to put the plates on, but take their food on a plate or a
 plantain-leaf placed on the ground. Even the Maharaja of Mysore does the
@@ -1619,7 +1619,7 @@ taking their food. In the olden times, the Romans and Greeks had a table
 before them and, reclining on a couch, used to eat their food with their
 fingers. The Europeans also, sitting on chairs, used to take their food
 with their fingers from the table; now they have spoons and forks. The
-Chinese mode of eating is really an exercise requiring skill. As our Pân
+Chinese mode of eating is really an exercise requiring skill. As our Pān
 (betel)-vendors make, by dexterity of hand, two separate pieces of thin
 iron-sheets work like scissors in the trimming of Pan leaves, so the
 Chinese manipulate two sticks between two fingers and the palm of the
@@ -1672,7 +1672,7 @@ or flesh is being cooked, the Jews will throw away everything cooked
 there. For this reason, the orthodox Jews do not eat the food cooked by
 other nations. Like the Hindus, too, they do not take flesh which is
 simply slaughtered and not offered to God. In Bengal and the Punjab,
-another name of flesh that is offered to the Goddess is Mahâprasâda,
+another name of flesh that is offered to the Goddess is Mahāprasāda,
 lit., the "great offering". The Jews do not eat flesh, unless it is
 Mahaprasada, i.e. unless it is properly offered to God. Hence, they,
 like the Hindus, are not permitted to buy flesh at any and every shop.
@@ -1751,7 +1751,7 @@ Even now, though different parts of Europe have got different modes of
 clothes and dress of their own, yet when one earns a good deal of money
 and becomes a "gentleman", he straightway rejects his former native
 dress and substitutes the French mode in its place. The Dutch farmer
-whose native dress somewhat resembles the *paijâmâs* of the Kabulis, the
+whose native dress somewhat resembles the *paijāmās* of the Kabulis, the
 Greek clothed in full skirts, the Russ dressed somewhat after the
 Tibetan fashion — as soon as they become "genteel", they wear French
 coats and pantaloons. Needless to speak of women — no sooner do they get
@@ -1768,7 +1768,7 @@ foreign dresses; notwithstanding that, the American women must have them
 from Paris and London. This, only the Americans can afford to do, for
 America is now the chief home of Kubera, the god of wealth.
 
-The ancient Aryans used to put on the Dhoti and Châdar (Dhoti is a piece
+The ancient Aryans used to put on the Dhoti and Chādar (Dhoti is a piece
 of cloth about four or five yards long, worn by the Indians round the
 loins instead of breeches, and Chadar is a piece of cloth three yards
 long, used as a loose upper garment.). The Kshatriyas used to wear
@@ -1783,7 +1783,7 @@ seen to wear only a piece of Kaupin. Even Lord Buddha's father, though a
 king, is seen in some sculptures, sitting on a throne, dressed in the
 same way; so also the mother, only has, in addition, ornaments on her
 feet and arms; but they all have turbans! The Buddhist Emperor,
-Dharmâshoka, is seen sitting on a drum-shaped seat with only a Dhoti on,
+Dharmāshoka, is seen sitting on a drum-shaped seat with only a Dhoti on,
 and a Chadar round his neck, and looking at damsels performing a dance
 before him; the dancing girls are very little clothed, having only short
 pieces of loose material hanging from the waist; but the glory is — that
@@ -1871,7 +1871,7 @@ and their morality is quite strict and refined. Obscene language,
 obscene books or pictures, any conduct the least obscene — and the
 offender is punished then and there. The Christian missionaries
 translated the Bible into the Chinese tongue. Now, in the Bible there
-are some passages so obscene as to put to shame some of the Purânas of
+are some passages so obscene as to put to shame some of the Purānas of
 the Hindus. Reading those indecorous passages, the Chinamen were so
 exasperated against Christianity that they made a point of never
 allowing the Bible to be circulated in their country. Over and above
@@ -1953,12 +1953,12 @@ However much you may suffer from heat, you must go out with gloves for
 fear of getting your hands dirty in the streets, and to shake hands with
 a lady with hands that are not clean is very ungentlemanlike. In polite
 society, if the act of spitting or rinsing the mouth or picking the
-teeth be ever indulged in — the offender will be marked as a Chandâla, a
+teeth be ever indulged in — the offender will be marked as a Chandāla, a
 man of low caste, and shunned!
 
 The Dharma of the Westerners is worship of Shakti — the Creative Power
 regarded as the Female Principle. It is with them somewhat like the
-Vâmâchâri's worship of woman. As the Tântrika says. "On the left side
+Vāmāchāri's worship of woman. As the Tāntrika says. "On the left side
 the women . . . on the right, the cup full of wine; in short, warm meat
 with ingredients . . . the Tantrika religion is very mysterious,
 inscrutable even to the Yogis." It is this worship of Shakti that is
@@ -1977,8 +1977,8 @@ from the palace, from the cottage, from the church, cry "Mother'',
 "Ave Maria", "Ave Maria"!
 
 Next is the worship of the woman. This worship of Shakti is not lust,
-but is that Shakti-Pujâ, that worship of the Kumâri (virgin) and the
-Sadhavâ (the married woman whose husband is living), which is done in
+but is that Shakti-Pujā, that worship of the Kumāri (virgin) and the
+Sadhavā (the married woman whose husband is living), which is done in
 Varanasi, Kalighat, and other holy places. It is the worship of the
 Shakti, not in mere thought, not in imagination, but in actual, visible
 form. Our Shakti-worship is only in the holy places, and at certain
@@ -2224,8 +2224,8 @@ the manners and customs of a nation must be judged from the standpoint
 of that purpose. The Westerners should be seen through their eyes; to
 see them through our eyes, and for them to see us with theirs — both
 these are mistakes. The purpose of our life is quite the opposite of
-theirs. The Sanskrit name for a student, Brahmachârin, is synonymous
-with the Sanskrit word Kâmajit. (One who has full control over his
+theirs. The Sanskrit name for a student, Brahmachārin, is synonymous
+with the Sanskrit word Kāmajit. (One who has full control over his
 passions.) Our goal of life is Moksha; how can that be ever attained
 without Brahmacharya or absolute continence? Hence it is imposed upon
 our boys and youth as an indispensable condition during their
@@ -2386,7 +2386,7 @@ trees, shrubs, animals, men, Devas, even God Himself; the Advaitin
 reaching the climax in this line of thought declared all to be but the
 manifestations of the One. In reality, the metaphysical and the physical
 universe are one, and the name of this One is Brahman; and the
-perception of separateness is an error — they called it Mâyâ, Avidyâ or
+perception of separateness is an error — they called it Māyā, Avidyā or
 nescience. This is the end of knowledge.
 
 If this matter is not comprehended at the present day by anyone outside
@@ -2496,7 +2496,7 @@ little kingdoms began to be formed.
 The Devas lived on grains and vegetables, were civilised, dwelt in
 villages, towns, and gardens, and wore woven clothing. The Asuras (The
 terms "Devas" and "Asuras" are used here in the sense in which they
-occur in the Gitâ (XVI), i.e. races in which the Daivi (divine) or the
+occur in the Gitā (XVI), i.e. races in which the Daivi (divine) or the
 Âsuri (non-divine) traits preponderate.) dwelt in the hills and
 mountains, deserts or on the sea-shores, lived on wild animals, and the
 roots and fruits of the forests, and on what cereals they could get from
@@ -2511,8 +2511,8 @@ and sea-shores to plunder towns and villages. At times they attacked the
 Devas for wealth and grains and whenever the Devas failed to unite
 themselves in large numbers against them, they were sure to die at the
 hands of the Asuras. But the Devas being stronger in intelligence,
-commenced inventing, all sorts of machines for warfare. The Brahmâstra,
-Garudâstra Vaishnavâstra, Shaivâstra — all these weapons of miraculous
+commenced inventing, all sorts of machines for warfare. The Brahmāstra,
+Garudāstra Vaishnavāstra, Shaivāstra — all these weapons of miraculous
 power belonged to the Devas. The Asuras fought with ordinary weapons,
 but they were enormously strong. They defeated the Devas repeatedly, but
 they never cared to become civilised, or learn agriculture, or cultivate
@@ -2560,14 +2560,14 @@ the neighbourhood on which to tend the flocks — by the accident of birth
 in a civilised society, he cannot get enough opportunity for either
 hunting, fishing, or grazing, cattle — he is obliged therefore to rob or
 steal, impelled by his own nature; what else can he do? And the worthy
-daughters of those far-famed ladies (Ahalyâ, Târâ, Mandodari, Kunti, and
-Draupadi.) of the Paurânika age, whose names we are to repeat every
+daughters of those far-famed ladies (Ahalyā, Tārā, Mandodari, Kunti, and
+Draupadi.) of the Paurānika age, whose names we are to repeat every
 morning — they can no longer marry more than one husband at a time, even
 if they want to, and so they turn unchaste. In these and other ways, men
 of different types and dispositions, civilised and savage, born with the
 nature of the Devas and the Asuras have become fused together and form
 modern society. And that is why we see, in every society, God plating in
-these various forms — the Sâdhu Nârâyana, the robber Narayana, and so
+these various forms — the Sādhu Nārāyana, the robber Narayana, and so
 on. Again, the character of any particular society came to be determined
 as Daivi (divine) or Âsuri (non-divine) quality, in proportion as one or
 the other of these two different types of persons preponderated within
@@ -2624,7 +2624,7 @@ themselves throughout Europe, and with them their new religion,
 Christianity, also spread all over Europe. All these different races and
 their creeds and ideas, all these different hordes of Asuras, heated by
 the fire of constant struggle and warfare, began to melt and fuse in
-Mahâmâyâ's crucible; and from that fusion the modern European race has
+Mahāmāyā's crucible; and from that fusion the modern European race has
 sprung up.
 
 Thus a barbarous, very barbarous European race came into existence, with
@@ -2636,7 +2636,7 @@ time they continued to tight among themselves; those of the north
 leading the life of pirates harassed and killed the comparatively
 civilised races. In the meantime, however, the two heads of the
 Christian Churches, the Pope (in French and Italian, *Pape* (pronounced
-as *Pâp*)) of Italy and the Patriarch of Constantinople, insinuating
+as *Pāp*)) of Italy and the Patriarch of Constantinople, insinuating
 themselves, began to exercise their authority over these brutal
 barbarian hordes, over their kings, queens, and peoples.
 
@@ -2661,14 +2661,14 @@ conquered the Hindus, Persians, and Arabs, and brought all of them alike
 under their subjection. Of all the Mohammedan conquerors of India, none
 was an Arab or a Persian; they were all Turks and Tartars. In Rajputana,
 all the Mohammedan invaders were called Turks, and that is a true and
-historical fact. The Chârans of Rajputana sang "*turuganko bodhi jor* —
+historical fact. The Chārans of Rajputana sang "*turuganko bodhi jor* —
 The Turks are very powerful" — and that was true. From Kutubuddin down
 to the Mogul Emperors — all of them are Tartars. They are the same race
 to which the Tibetans belong; only they have become Mohammedans and
 changed their flat round faces by intermarrying with the Hindus and
 Persians. They are the same ancient races of Asuras. Even today they are
 reigning on the thrones of Kabul, Persia, Arabia, and Constantinople,
-and the Gândhâris (natives of Kandahar) and Persians are still the
+and the Gāndhāris (natives of Kandahar) and Persians are still the
 slaves of the Turks. The vast Empire of China, too, is lying at the feet
 of the Manchurian Tartars; only these Manchus have not given up their
 religion, have not become Mohammedans, they are disciples of the Grand
@@ -2704,7 +2704,7 @@ conquered. But Europe began to be civilised. The English, French,
 German, and other savage nations who dressed themselves in hides and ate
 raw flesh, came in contact with Asian civilisation. An order of
 Christian soldiers of Italy and other countries, corresponding to our
-Nâgâs, began to learn philosophy; and one of their sects, the Knights
+Nāgās, began to learn philosophy; and one of their sects, the Knights
 Templars, became confirmed Advaita Vedantists, and ended by holding
 Christianity up to ridicule. Moreover, as they had amassed enormous
 riches, the kings of Europe, at the orders of the Pope, and under the
@@ -2829,7 +2829,7 @@ development, but in the culture of the mind and the intellect.
 
 It was the knowers who reclaimed the jungles for cultivation. Then, over
 that cleared plot of land was built the Vedic altar; in that pure sky of
-Bhârata, up rose the sacred smoke of Yajnas; in that air breathing
+Bhārata, up rose the sacred smoke of Yajnas; in that air breathing
 peace, the Vedic Mantras echoed and re-echoed — and cattle and other
 beasts grazed without any fear of danger. The place of the sword was
 assigned at the feet of learning and Dharma. Its only work was to
@@ -2867,23 +2867,23 @@ Guess-work? Then keep your fanciful guesses to yourselves!
 In what Veda, in what Sukta, do you find that the Aryans came into India
 from a foreign country? Where do you get the idea that they slaughtered
 the wild aborigines? What do you gain by talking such nonsense? Vain has
-been your study of the Râmâyana; why manufacture a big fine story out of
+been your study of the Rāmāyana; why manufacture a big fine story out of
 it?
 
 Well, what is the Ramayana? The conquest of the savage aborigines of
-Southern India by the Aryans! Indeed! Râmachandra is a civilised Aryan
-king, and with whom is he fighting? With King Râvana of Lankâ. Just read
+Southern India by the Aryans! Indeed! Rāmachandra is a civilised Aryan
+king, and with whom is he fighting? With King Rāvana of Lankā. Just read
 the Ramayana, and you will find that Ravana was rather more and not less
 civilised than Ramachandra. The civilisation of Lanka was rather higher,
-and surely not lower, than that of Ayodhyâ. And then, when were these
-Vânaras (monkeys) and other Southern Indians conquered? They were all,
+and surely not lower, than that of Ayodhyā. And then, when were these
+Vānaras (monkeys) and other Southern Indians conquered? They were all,
 on the other hand, Ramachandra's friends and allies. Say which kingdoms
-of Vâli and Guhaka were annexed by Ramachandra?
+of Vāli and Guhaka were annexed by Ramachandra?
 
 It was quiet possible, however, that in a few places there were
 occasional fights between the Aryans and the aborigines; quite possible,
 that one or two cunning Munis pretended to meditate with closed eyes
-before their sacrificial fires in the jungles of the Râkshasas, waiting,
+before their sacrificial fires in the jungles of the Rākshasas, waiting,
 however, all the time to see when the Rakshasas would throw stones and
 pieces of bone at them. No sooner had this been done than they would go
 whining to the kings. The mail clad kings armed with swords and weapons
@@ -2896,11 +2896,11 @@ Where in the Ramayana do you find that?
 The loom of the fabric of Aryan civilisation is a vast, warm, level
 country, interspersed with broad, navigable rivers. The cotton of this
 cloth is composed of highly civilised, semi-civilised, and barbarian
-tribes, mostly Aryan. Its warp is Varnâshramâchâra, (The old Aryan
+tribes, mostly Aryan. Its warp is Varnāshramāchāra, (The old Aryan
 institution of the four castes and stages of life. The former comprise
-the Brâhmin, Kshatriya, Vaishya, and Shudra, and the latter,
-Brahmacharya (student life), Gârhasthya (house-holder's life),
-Vânaprastha (hermit life), and Sannyâsa (life of renunciation).) and its
+the Brāhmin, Kshatriya, Vaishya, and Shudra, and the latter,
+Brahmacharya (student life), Gārhasthya (house-holder's life),
+Vānaprastha (hermit life), and Sannyāsa (life of renunciation).) and its
 woof, the conquest of strife and competition in nature.
 
 And may I ask you, Europeans, what country you have ever raised to
@@ -2928,21 +2928,21 @@ European civilisation is the sword; of the Aryans, the division into
 different Varnas. This system of division into different Varnas is the
 stepping-stone to civilisation, making one rise higher and higher in
 proportion to one's learning and culture. In Europe, it is everywhere
-victory to the strong and death to the weak. In the land of Bhârata,
+victory to the strong and death to the weak. In the land of Bhārata,
 every social rule is for the protection of the weak.
 
 1.  [^](#txt1)सीतामादाय बाहुभ्यां मधुमैरेयकं शुचि ।  
     पाययामास काकुत्स्थः शचीमिन्द्रो यथामृतम् ॥  
     मांसानि च सुमृष्टानि विविधानि फलानि च ।  
     रामस्याभ्यवहारार्थं किंकरास्तूर्णमाहरन् ॥  
-    — "Embracing Sitâ with both his arms, Kâkutstha (Râma) made her
+    — "Embracing Sitā with both his arms, Kākutstha (Rāma) made her
     drink pure Maireya wine, even as Indra makes Shachi partake of
     nectar. Servants quickly served flesh-meat variously dressed, and
     fruits of various kinds for the use of Rama."  (Ramayana -
     Uttarakanda 42.18-20)
 2.  [^](#txt2)उभौ मध्वासवक्षिप्तावुभौ चन्दनरूषितौ ।  
     स्रग्विनौ वरवस्त्रौ तौ दिव्याभरणभूषितौ ॥  
-      "(I saw) both of them (Krishna and Arjuna) drunk with Madhvâsava
+      "(I saw) both of them (Krishna and Arjuna) drunk with Madhvāsava
     (sweet spirituous liquor made from honey), both adorned with sandal
     paste, garlanded, and wearing costly garments and beautiful
     ornaments."   (Mahabharata - Udyoga, LVIII. 5)
