@@ -618,10 +618,12 @@ the service of their masters, while of these three brothers, one wastes his time
 another in associating with low characters and in smearing his body with the red earth of a
 gymnasium, and the third in composing aryas. Any discerning person can gain an insight into their
 ways of life. How can these men know my worth ? They would have given us support, had we been
-either pigeon-flyers, gymnasts or composers of aryas.+++(4)+++ Let this pass. Some days after we had been
+either pigeon-flyers, gymnasts or composers of aryas.+++(4)+++ Let this pass.
+
+Some days after we had been
 disappointed in this manner, my brother, Balkrishna alias Bapurao, went from Poona to Kolhapur.
 With the express purpose of paying a visit to Sayajirao (sic) of Kolhapur. As he was not there my
-brother walked to the fort at Panhala and paid him a visit there. He first presented a cocoanut to him
+brother walked to the fort at Panhala and paid him a visit there. He first presented a coconut to him
 with great respect and then said : " (Your ancestors and) you have been our patrons from ancient
 times. We Brahmins have always served your throne. I, therefore, pray that you will be generously
 pleased to enlist us in a cavalry regiment." When my brother made this verbal petition, one of his
@@ -629,6 +631,7 @@ relatives, by name Kagalkar, was also present there. Both of them surveyed my br
 remarked that he was short of stature and wanting in girth and that they did not employ Poona
 Brahmins. As soon as these precious words fell from their lips, (my brother) formed an estimate of
 their Kshatriya origin.+++(5)+++ Without saying anything further he returned to Poona.
+
 ### LESSONS AT DHAR
 Some days after this we accompanied our father to the Native State of Dhar without any
 particular object. There we stayed for about two months and associated ourselves with a Maratha
@@ -636,8 +639,9 @@ boy. In order to practise shooting, we
 used to steal away with his fowling-piece, at midday, to the bank of a tank. The Maratha boy used to
 shoot birds and water-fowls, but we instead of shooting any inoffensive animals, used to put up the
 leaves of a bunyan tree to serve as marks to fire at. At Dhar, we learnt how to load a gun and how
-to make bullets, small shot, etc. We saw various plaaes in the company of our father with immense
+to make bullets, small shot, etc. We saw various places in the company of our father with immense
 benefit to ourselves. In every place we tried to obtain information relating to our favourite pursuit.
+
 ### PRACTICE IN ENDURING HARDSHIPS
 As we had undertaken to perpetrate most terrible deeds, we thought it desirable to inure
 ourselves to heat, cold and rain, and therefore, finding that we had favourable opportunities in the
@@ -650,42 +654,47 @@ with us, but they did not know our ulterior design. We had chosen Poona as our r
 journey of about six months or a year performed in the above manner, and there we generally used
 to rest for four months. It was on our return to Poona that we found time to ponder calmly over the
 object in view. We resolved to undertake any hazardous enterprise for the sake of our religion, but
-to refrain from such deeds as were not conformable to it. Whenever we thought of exerting
+to refrain from such deeds as were not conformable to it.
+
+Whenever we thought of exerting
 ourselves in furthering our favourite object, the fear of our parents would stand in our way. On such
 occrsions we used to feel that we should also, like some boys who foresake their parents and
 betake themselves to the stage, throw off dependence and pursue the object in view. But when in
 this mood we considered the matter from a religious point of view, our conscience would not permit
-us to follow such a course. Consequently we abandoned that design and resolved that come what
+us to follow such a course.+++(5)+++ Consequently we abandoned that design and resolved that come what
 might, we would do what we could without foresaking our parents.
+
 ### DESIRE TO PROCURE ARMS
 First of all, a desire to procure arms engrossed our minds. We knew that it was idle to realise
 that desire in British territory. Consequently, when we accompanied our father in his travels through
 the Nizam's territory, we made inquiries (concerning arms) in that State. But want of money came in
 our way there. Then after deliberation we came to the conclusion that it was not culpable to steal
-anything required for a religious purpose and thus prepared ourselves to do that. In a place called
+anything required for a religious purpose and thus prepared ourselves to do that.+++(5)+++ In a place called
 Bid we first bought a sword-stick for five rupees. We made up that amount partly by the sale-
 proceeds of our books and partly by the money we already possessed. Later on we stole a five-
 chambered revolver from the same shop. This was our first move in the direction of stealing arms.
 Subsequently, wherever we happened to travel we procured in any way we could whatever arms we
 came across. I cannot now enter into any details about this matter. We however, began to procure
 arms in this manner.
+
 ### THEN TO COLLECT MEN
 Then the thought occurred to us that we should now collect men. With this object in view we
 won over our friends who were our equals in age by discoursing with them on religious topics. But
 after the lapse of a few days we found that they could be of no use to us, because we needed such
 men as would carry out our orders, while the friends whom we had
-969gathered together did not seem inclined to do this. Taking us to be illiterate, they used to make an
-ostentatious display of their learning in our presence. Moreover they did not seem to have that pure
-devotion to religion which we had. Consequently we broke off: our connection with them. Then on
+gathered together did not seem inclined to do this. Taking us to be illiterate, they used to make an
+ostentatious display of their learning in our presence.+++(5)+++ Moreover they did not seem to have that pure
+devotion to religion which we had. Consequently we broke off our connection with them. Then on
 reflecting as to who would obey us, we came to the conclusion that obedience could be expected
-from children alone, whose minds being tender could be moulded in any way, we chose. Having
+from children alone, whose minds being tender could be moulded in any way, we chose.+++(5)+++ Having
 come to this conclusion, we went wherever school-boys played at cricket and began by our
 exhortations to create in their minds a dislike for cricket and a taste for native games. We, could
 secure only eight boys at the outset and with them we went up the hillock situated below Parvati.
 We first told them to play badabadi and after two or three days we brought two or three slings and
 began to teach them how to throw stones. On these occasions many other boys used to come up
 there. As we gave them the same advice, the number of boys began to increase until it reached
-150. So many boys did not assemble every day. They used to assemble at their convenience.
+150.+++(5)+++ So many boys did not assemble every day. They used to assemble at their convenience.
+
 ### RULES FOR THE TRAINEES
 We afterwards framed (the following) rules for the club :—(1) Every boy shall implicitly obey
 both of us. (2) Those desirous of joining the club shall pay to the head of the institution the sum of
@@ -700,12 +709,13 @@ These were the rules. We divided sling-practice under three heads :—(1) Slingi
 ; (2) Slinging horizontally ; (3) Slinging skyward. The lad who knew fairly these three modes and
 who could fire double as well as small shot was looked upon by us as tolerably proficient and we
 took note of him.
+
 ### ORGANISATION OF THE CLUB
 When we had about 25 to 30 of these fairly proficient lads, we organised the club on a new
 basis as follows :—Having divided the members of the club into two companies, I, myself became
 the captain of one, and my brother that of the other. To each of these companies was given a red
 ochre-coloured flag, which was its chief ensign. It was also provided with a red flag. Each company
-had also its medical officer, who wore round his neck a haversack which contained the following
+had also its medical officer,+++(5)+++ who wore round his neck a haversack which contained the following
 medicines and instruments useful for the treatment of wounds :—(A piece of) coal, pankanis,
 bamboo-powder, a knife, a pair of scissors, pincers for extracting thorns, marking-nuts, needles, etc.
 Having organised these companies, every Saturday and Sunday we repaired to our rendezvous
@@ -715,9 +725,10 @@ foot of the hill. When everything was ready, the operations commenced at a given
 two brothers showed by manoeuvring (our respective companies) how an attack was to be delivered
 and how it was to be repulsed. The moment any one was struck by a stone, the red flag was shown
 at the sight of which the slinging was to cease. After attending to the (wounded) man, the operations
-again commenced. Many of the lads were struck by stones on these occasions, but none of them
-wavered. These operations continued (for some
-970time). For some days after this, my brother's company used to proceed to Chatursingi for practice,
+again commenced.
+
+Many of the lads were struck by stones on these occasions, but none of them
+wavered. These operations continued (for some time). For some days after this, my brother's company used to proceed to Chatursingi for practice,
 while mine continued to be drilled near Parvati. After eight or fifteen days we used to have a (sham)
 fight between them. The only object in view in doing so was to inspire our companies with courage.
 After every (sham) fight we used to distribute amongst them parched gram, rice and such other
@@ -728,6 +739,7 @@ interest. We, therefore, selected a convenient place near the Parvati (Hill), an
 removed the luxurious growth of prickly pear at that place, prepared an extensive ground. This is
 situated on an eminence at the foot of Parvati. A canal passes through the lower portion of this
 ground, and here a spot beneath a nim tree was fixed upon by us for our idol.
+
 ### OUR CHOICE OF THE DEITY
 We then selected the powerful Maruti as our tutelary deity, as we thought that there was none
 like him among all the gods. How to procure his image was the next thought that engaged our
@@ -735,11 +747,11 @@ attention. Meanwhile, while asleep one day, I saw in a dream the image of Bajara
 which spoke to me as follows :— "I am lying in the very place where you are preparing the ground.
 Search for me, I am willing to come." I awoke after this dream and spoke of it to my brother, when I
 learnt that he too had a similar dream. We, however, had no faith in the dream, as we could not
-believe that our religious merit was so high. But we gave ar account of it to our club. The ground
-was thereupon dug at that place to a great depth, and the image was discovered. At this time we
+believe that our religious merit was so high. But we gave an account of it to our club. The ground
+was thereupon dug at that place to a great depth, and the image was discovered.+++(5)+++ At this time we
 two brothers being at a considerable distance from that spot, they came and informed me of the
 discovery of (the image of ) Maruti. With extreme delight we saw that image, which was about a
-span and a half high The thick coating of red-lead on it dropped away and disclosed the image
+span and a half high. The thick coating of red-lead on it dropped away and disclosed the image
 clearly to our view. It had the Dronagiri mountain in one hand and a gada in the other, while
 Jambumali was lying prostrate beneath its feet—a spectacle which pleased us most. We took the
 image home and made arrangements to consecrate it with the due ceremony. Before finding this
@@ -749,37 +761,51 @@ have it consecrated. But as an interval of fifteen days had to elapse before the
 worshipped the image at our own house for the time being. Desiring that no day should pass without
 the performance of arti before that image, we composed a song for the occasion in a melodious
 metre. The song is given below. We named the image Gophnya Maruti.
+
 ### SONG IN PRAISE OF GOPHNYA MARUTI
 (In the same tune as the song in praise of Bhuvanasunder.)
-By waving lights before the lotus-like feet of Maruti, let us cross the ocean of this world in
-ease-Dhrupada. The moment he was born, he sprang forward to seize the sun, supposing it to be a
-fruit. He set up a whoop of exultation, and the sound thereof having filled the earth went up to
-heaven. 'All the humbled gods being startled at the sight of thy short stature, glorify thee ; the
-monkeys were greatly delighted (at thy advent). Who can rival one who worships Hanuman? Neither
-sin, nor distress, nor anxiety will be with him, (and) none will be able to overcome him. He crossed
-the waters of the ocean and reached the shore. He inspired Sita, the spouse of Rama with courage.
-The hearts of monkeys were much gladdened. He appeared
-971(to Chapekar) in a dream, and having asked (him) to make a search for himself, declared that his
-own image was at his disposal. Damodar, Hari's son, says that the Gophnya Maruti has been won
-over to his side. Therefore, have you come near Parvati and have become our helper, and we are
-therefore overjoyed.
+By waving lights before the lotus-like feet of Maruti,  
+let us cross the ocean of this world in ease-Dhrupada.  
+The moment he was born, he sprang forward to seize the sun,  
+supposing it to be a fruit.  
+He set up a whoop of exultation, and the sound thereof having filled the earth went up to heaven.
+ 
+'All the humbled gods being startled at the sight of thy short stature, glorify thee ;  
+the monkeys were greatly delighted (at thy advent).  
+Who can rival one who worships Hanuman?  
+Neither sin, nor distress, nor anxiety will be with him,  
+(and) none will be able to overcome him.  
+He crossed the waters of the ocean and reached the shore.  
+He inspired Sita, the spouse of Rama with courage.
+The hearts of monkeys were much gladdened. 
+
+He appeared (to Chapekar) in a dream, and having asked (him) to make a search for himself, declared that his own image was at his disposal.  
+Damodar, Hari's son, says that the Gophnya Maruti has been won over to his side.  
+Therefore, have you come near Parvati and have become our helper, and we are therefore overjoyed.
+
 ### DAY FIXED FOR INSTALLATION
-Having composed this song, we asked all tthe members of the club) to learn it by heart, and
+Having composed this song, we asked all the members of the club to learn it by heart, and
 commenced to recite it every day before the god Maruti. Meanwhile, the day selected by us for the
-consecration of the idol having approached, we issued, two daya previous to it, the following
+consecration of the idol having approached, we issued, two days previous to it, the following
 invitations couched in polite language, to all the members (of the club) :—
+
 " The noon of Saturday, the 2nd day of the dark half Chaitra, having been unanimously
 fixed for the consecration of the image of the self-existent Balabhima at the appointed place
 at the foot of the Parvati (Hill), it is necessary for you, as members of the club, to be present
 on such an auspicious occasion. Should any one bring with him flowers, coconuts, buka, gulal
 and other articles of worship, they would be thankfully received. (Signed) Damodar Hari
 Chapekar and Balkrishna Hari Chapekar, Managers."
+
 We issued these invitations, but the decrees of fate are inscrutable. Although we felt
 indescribable delight at the continued additions to the membership of our club, I had a presentiment
 that something was to happen which would mar our joy and we had already a prognostication as to
-the quarter from which the trouble was to come. We saw that those sportive doings of ours were
+the quarter from which the trouble was to come. 
+
+We saw that those sportive doings of ours were
 likely to be stopped if any of our members received a serious wound from a stone and, therefore, we
-were very careful about the matter. We also feared that if the Police got scent of this matter, they
+were very careful about the matter. 
+
+We also feared that if the Police got scent of this matter, they
 would throw impediments in our way. To obviate this we arranged that our boys should neither
 come out of, nor return to, the city in a large body, but should do so in batches of five. We
 accordingly formed such batches. We also made it a rule that the leader of each of these batches
@@ -787,12 +813,15 @@ should, while coming (out of the city), place a stone near the street-lamp which
 road passing by the Bhikardas Police Station and the one passing the Chinchechi Talim, and should
 remove it while returning to the city. This arrangement was made with a view to have an idea of the
 number of the boys that would go there ahead of us. So much for the second of our apprehensions.
+
 Our third fear was that our boys might have a quarrel on the way for which we might have to suffar.
 For, this pursuit has this peculiar characteristic that it makes its votaries inconsiderate ; it impels
 men to make an immediate use of their powers. Our inclinations are moulded by the nature of the
 occupations we follow. Accordingly, as exercises with the stick, the sword, and also slinging and
 wrestling tend to instil a spirit of rivalry into the minds of men, the members of our club began to
 quarrel on the way and complaints about the matter reached my ears.
+
+## Skirmishes
 ### INCIDENT WITH A MISSIONARY
 It happened one day that while our men had assembled at the foot of the Parvati before our
 arrival there, they saw a native missionary accompanied by a friend passing by. One of them had a
@@ -800,23 +829,27 @@ double-barrelled gun in his hand. Taking the men to be pervert, our boys began t
 they, through fright, took no notice of the jeers and went their way. When we two brothers came
 there afterwards we were informed of the incident, when we censured the boys for what they had
 done and advised them not to embroil themselves with any one without any reason. After giving this
-972advice we started to return to the city in batches as usual. We both of us, accompanied by two or
+advice we started to return to the city in batches as usual. We both of us, accompanied by two or
 four boys used to start after all had left. While we were on our way back into the city as usual, we
 saw coming from the opposite direction along the bank of the Parvati tank, the two men who had
 been jeered at by our boys. On catching sight of them, our companions showed us by signs that
-these were the same men. They loo recognised our companions, and with a view to pick a quarrel
+these were the same men. They too recognised our companions, and with a view to pick a quarrel
 with us, seeing that our number was small at the time, demanded of us why we were abusing them.
-Thereupon, although the* fault lay primarily with our boys, we took their side thinking that they had
+Thereupon, although the fault lay primarily with our boys, we took their side thinking that they had
 been (sufficiently) censured in secret and that it would be undignified on our part to remain aloof at
-this time, though our party was in the wrong. We, therefore, addressed the (two) men as follows: —"
+this time, though our party was in the wrong. 
+
+We, therefore, addressed the (two) men as follows: —"
 Sir, (sic) go your way quietly. How could we be abusing you now, when we were not speaking about
-you at all ? An altercation then took place between us, but it would be out of place to describe it
+you at all ?" An altercation then took place between us, but it would be out of place to describe it
 here. In the end, they challenged us to dare to go to the hill the next day if we were true Brahmins.
 We retorted that we were always in the habit of going there, but if they were genuine perverts, they
 should dare to go there the next day. Such were the hot words exchanged between us. The next
-was a Sunday. Having assembled all the members (of the club) at 2 p.m., we exhorted them not to
+was a Sunday.
+
+Having assembled all the members (of the club) at 2 p.m., we exhorted them not to
 flinch, as that was but an ordinary occasion on which their progress in the art which they had been
-learning was to be put to the test. After this exhortation, I explained what toctics were to be adopted.
+learning was to be put to the test. After this exhortation, I explained what tactics were to be adopted.
 Four boys of insinuating and polite address were stationed at the principal post in the vicinity of the
 Maruti, with instructions to resort to conciliation alone and to send the men away. The rest of the
 boys were kept concealed in hollows and depressions of the ground, with orders not to make use of
@@ -830,18 +863,23 @@ the operations. Our object in so doing was to intervene in the fight, posing as 
 immediately after (our opponents) had received a thrashing, and to put stop to the quarrel by
 exhortations to both the parties. For, as we had to pass many days in that place, it was not desirable
 in our interests that any serious mishap should occur to our opponents. It was for this end in view
-that we resorted to this mild course of action. Having made the above preparations we waited (for
+that we resorted to this mild course of action. 
+
+Having made the above preparations we waited (for
 our opponents). They, however, did not turn up even until nightfall. At last, the three boys whom we
 had posted on the road as scouts came in and informed us that those men, who had four
 Mussalmans with them had been frightened away at the sight of our position. Hearing this, we
 returned to our respective homes. Then in order to avoid a repetition of such troubles, we strictly
 forbade our boys from needlessly interfering with other people.
+
 ### THE EUROPEANS SCARED AWAY
 After this, two Europeans came for a stroll along the canal, when even we ourselves lost our
 self-control on seeing them, and urged our men to attack them. But as they were at a considerable
 distance from us none of our stones struck them, but as the stones fell near them, they took fright
 and ran away. We heard afterwards that a short time after this an English
-973newspaper, called the Deccan Herald, published a complaint against our club. Some reformers (too)
+ newspaper, called the Deccan Herald, published a complaint against our club.
+ 
+ Some reformers (too)
 used to come for exercise in the open air to that part of the town. We had taken care to know all
 about the reformers as we looked upon them as our implacable enemies. We know the names of all
 of them, but I need not pollute this memoir by mentioning them in this place. We used to come
@@ -850,14 +888,18 @@ fully at liberty to jeer pt them. After this state of things had continued for s
 got vexed and suggested to the Police, through the medium of the Dnyan Prakash, to put a stop to
 the doings of the urchins. When this complaint appeared in that newspaper, we had an
 apprehension that our satisfaction might perhaps receive a check from that quarter.
+
 ### A STRANGER WAS STRUCK
 While such anxious thoughts were engaging our minds, the abovementioned auspicious day
 for the consecration of the Maruti arrived. On the preceding day all the members (of the club) were
 in high spirits. The work of building a shrine was in progress by using the water of the canal just
 below, and a pole having been fastened to the nim tree beneath which the shrine of Maruti was
 built, it was surmounted by a big banner of red-ochre colour. On that banner were written the
-following words :—"Better to stick to our own religion until the end ; the religion of others is full of
-peril. May Gophnys Maruti triumph." Many of the boys were practising sling exercise, and everybody
+following words :—  
+"Better to stick to our own religion until the end ;  
+the religion of others is full of peril. May Gophnys Maruti triumph." 
+
+Many of the boys were practising sling exercise, and everybody
 was in a joyful mood, when, as God would have it, I was informed all of a sudden that one of the
 passers-by had been hit by a stone. Thereupon we both of us went to the place and found that he
 was, in his exasperation, pouring forth a torrent of abuse. We went up to him and tried to pacify him.
@@ -865,6 +907,7 @@ We also promptly treated (his wound) with the drugs in our possession. But the m
 and left us with a threat to report the matter to the Police. Having guessed that the man would have
 to go into the city before he could give information to the Police, we determined to leave the place
 within that interval.
+
 ### CAUGHT BY THE POLICE AND LET OFF
 So we sent away the boys by different routes as usual. First of all we sent away all the slings
 with a boy. We left last of all with some boys, but were soon arrested by the Police. I said to the
@@ -876,13 +919,15 @@ landed me in this trouble." The sepoy then asked me to point out the boy who had
 so that he may arrest him. But as I did not like to see a boy of tender age given in charge of the
 Police, I offered to go with the sepoy to the Faraskhana. While on our way, I flattered the sepoy in
 various ways, when he remarked that as a complaint had been lodged, he was helpless in the
-matter and was bound to take me (to the Faraskhana). I then turned to the boy (who had lodged the
+matter and was bound to take me (to the Faraskhana). 
+
+I then turned to the boy (who had lodged the
 complaint), and reminding him of the fact that he was a Brahmin by caste, pointed out that the
 wound which he had received not being of a serious nature could be healed in a day or two. It was
 in consequence of the use of the three expedients, namely, conciliation bribery and discord, that the
 boy (relented and) told the sepoy to let us go, as he wished to withdraw his complaint. The sepoy,
 however, now assumed
-974an air of self-importance and declared that it was not in his power to let go a culprit whom he had
+an air of self-importance and declared that it was not in his power to let go a culprit whom he had
 once arrested. I thereupon eulogised him again, when he said that he would ask the complainant's
 father whether he would like to have the complaint withdrawn. I felt much relieved at these words of
 his, because Brahmins being always very considerate, (I was hopeful that) he (complainant's father)
@@ -893,17 +938,21 @@ this, that amiable gentleman at once told the sepoy that he had no complaint to 
 The sepoy, therefore, could not do anything more and so he went away. I was overjoyed to see that
 we had got out of the clutches of the Police in a very ingenious manner. For we had made it a point
 of honour not to get into their clutches. It was our fixed resolve not to have our names in their books.
+
 After this, we gratefully praised Gophnya Maruti for rescuing us from the above-mentioned danger.
 We, however, postponed the consecration ceremony which was to take place the next day. Having
 determined not to use again a locality which had been polluted by the Police, we informed ell the
 members (of our club) that we had given up the place. When all of them came to know of this Police
 affair, many of them became frightened and severed their connection with our club.
+
+## Staging
 ### WE SHIFTED TO OTHER PLACES
 We then began to consider how to act next. Having thought over the matter, we made up our
 mind to select an open space within the city and to train our boys there. We, therefore, hired the
 open piece' of ground belonging to Londhe for Rs. 2 per month, and having placed the image of
 Maruti therein prepared a wrestling ground in front of the image. Here we used to teach the
 following exercises : Wrestling, dandpatta, kathi, lance exercise, high and wide jumping and boxing.
+
 4 to 6 in the evening was the appointed time. We also used to teach drill. This went on for nearly a
 month and a half, but differences having afterwards arisen between the owner of the ground and
 ourselves, we were obliged to leave it. We then began to search for some other place, when we
@@ -911,6 +960,7 @@ came to know that there was a (suitable) place in the wada of Khasgiwale who liv
 Jogeshwari's Bol and that he was willing to give it to us. On receiving this information we made
 inquiries about the ground, and found that it was extensive and secluded as we desired. The most
 convenient thing about this ground was that no rent was to be charged for it.
+
 ### WHAT WE TAUGHT
 The place being out of repairs, we took much pains to put it in order. We whitewashed it and
 having placed (an image of) Maruti in a niche in the middle, hung portraits of warriors on all sides.
@@ -921,18 +971,22 @@ became known there. Here we admitted only such boys as were considered by us to 
 undoubted rectitude. About fifteen boys joined (this institution). They were asked to attend in the
 morning for exercise, while we used to teach dandpatta, kathi, etc., during noon. In the evening at 5
 o'clock, one of us
-975two brothers used to give historical readings. Selecting some episode in ancient history, we used to
+two brothers used to give historical readings. Selecting some episode in ancient history, we used to
 dilate upon it in a way suited to impress upon the minds of the boys a sense of self-respect and love
 for one's religion, and to show how easy a matter it was to lay down one's life for these. Whenever,
 in the course of these readings, we came across descriptions of battles containing such terms and
 expressions as Morchebandi, khandak, ganimi-kava, and chhapa, as well as the names of arms, we
-explained them with sufficient clearness to make them understood. We also used to enter on
+explained them with sufficient clearness to make them understood. 
+
+We also used to enter on
 religious disquisitions at intervals, in order to prevent the social views of the boys from undergoing
 any deviation from the precepts of the Shastras as well as from the prevalent custom. With a view to
 confirm the boys in their hostility towards the reformers, we used to comment severely upon the
 latter in the course of these disquisitions. At the conclusion of these readings arti was performed
 before the Maruti and all of us closed our eyes and concentrated our minds on the valour-inspiring
-image of Hanuman. Such was our programme until sunset. At night we two brothers disguised
+image of Hanuman. Such was our programme until sunset. 
+
+At night we two brothers disguised
 ourselves and went round the different streets to suit our actions to our disguise. At the conclusion
 of our gymnastic exercises, we used to give to our boys moistened grampulse with pieces of dried
 coconut-kernel to eat. All the boys had instructions to bring in pulse, pieces of dried cocoanut-
@@ -941,17 +995,22 @@ they could find and that could be of use to the club. Whether good or bad, this 
 by us and enforced as a rule in order to make a collection of good and useful articles. This enabled
 us to stock our library with many such things. Then, in order to keep all those things in good order,
 we (gave them in charge of some boys) assigned to each of them his duty and made him
-responsible for his work. The place had a large gate, but we kept it closed and used the dindi alone
+responsible for his work. 
+
+The place had a large gate, but we kept it closed and used the dindi alone
 for our purpose. A bell was hung inside and its string was left hanging outside. Each of the boys had
 been given a number. Whenever a boy came to the gate, he rang the bell by pulling the string ; then
 those inside asked him his number, and if satisfied (of his identity) they opened the gate. We named
-this club " Rashtra Hitechhu Mandali." We had a loathing for the game of cricket. We intensely hated
+this club " Rashtra Hitechhu Mandali." 
+
+We had a loathing for the game of cricket. We intensely hated
 the boys who, laying aside our one thousand games, had shown a predilection for that game, as
 well as those teachers who had encouraged them to do so. With a view to accustom our boys to
 fighting without needlessly troubling any one, we used to send a batch of five or six of our boys to
 the place where cricket was being played. These boys were to make away with the cricket things of
 the players in a skilful manner. Sometimes the boys had to fight for the kit, and sometimes they
 made away with it without having to fight.
+
 ### TIRADE AGAINST REFORMIST MARRIAGE
 It then began to be talked abroad that one Chapekar was the cause of all these troubles. I,
 therefore, began to call myself Ramchandra Hari Marathe and told (the boys) to address me by that
@@ -961,13 +1020,15 @@ sixteen years, gave her in marriage to the son of another reformer named Chintam
 and the marriage was celebrated with great pomp. We did not at all approve of this match. Both
 Bhat and Gadgil are related to us, but as they are reformers and as they contravene the precepts of
 the Dharma Sastras, they have incurred our bitter hostility. We had taken a vow to treat even our
-father as our enemy if he infringed the Shastras. We were invited to dine and to a pan-supari (on the
+father as our enemy if he infringed the Shastras.+++(5)+++ We were invited to dine and to a pan-supari (on the
 occasion) by both the above persons, but I alone out of the
-976male members of our family attended the pan-supari. I did so, thinking that if I went there I would
+male members of our family attended the pan-supari. I did so, thinking that if I went there I would
 have an opportunity of personally witnessing their irreligious conduct and thus of satisfying myself
-about the matter. I did not attend their dinner party, as I looked down upon them as Dheds. The day
+about the matter. I did not attend their dinner party, as I looked down upon them as Dheds. 
+
+The day
 of the varat procession at last arrived, when, thinking that it would be a disgrace if that procession
-connected . with an irreligious marriage paraded through the city with eclat and without any hitch, in
+connected . with an irreligious marriage paraded through the city with eclan and without any hitch, in
 the face of religious enthusiasts (like ourselves) we determined to obstruct it anyhow and sent word
 round to all our companions that it was to be attacked that night. We conjectured that the procession
 being a large one would pass through the main street, and therefore we inspected the road passing
@@ -976,20 +1037,25 @@ instructions to fiercely attack the procession the moment it came within their r
 Having made these preparations we waited (for the procession), but were informed that instead of
 passing the high road with great pomp it had taken a by-way. Thus our plan proved futile. Still, we
 hastened to attack the procession, but the onset did not prove as effective as we had wished. We
-desired to see at least one of the newly married couple (wounded and) taken to the hospital. On
+desired to see at least one of the newly married couple (wounded and) taken to the hospital. 
+
+On
 learning this, many will be struck with our hard-heartedness, but after a little consideration all
 sensible persons will be obliged to admit that what we did was right. It is a rule laid down by the
 Shastras that the following are the four methods of overcoming any person :—Conciliation,
-presents, fomenting dissensions, and punishment.. It is in accordance with that rule that my other
-castmen have been fighting the reformers. The antagonistic parties are known as the Krishna and
+presents, fomenting dissensions, and punishment. It is in accordance with that rule that my other
+castemen have been fighting the reformers. The antagonistic parties are known as the Krishna and
 the Shukla parties. As, however, the Shukla party, being powerless to punish their opponents, is
 defied by them, we thought over the matter, and with a desire to take the power of chastisement into
 our own hands, made this initial effort (in that direction). But this our first experiment did not prove
-as successful as we had wished. Only a few ladies were hit. I, however, record that incident here,
+as successful as we had wished. 
+
+Only a few ladies were hit. I, however, record that incident here,
 because these ladies must have a recollection of it. After this, we went to Bombay for Chaturmas.
 When leaving for that place, we appointed one (of us) to be the chief of our club, and having
 arranged that the members of the club should act under his lead and that he should treat them in
 accordance with the rules laid down by us, we departed.
+
 ### WE SEVERED CONNECTION WITH THE CLUB
 While we were away they collected several arms, viz., three old muskets, six swords and
 some sword-sticks, and showed them to us when we visited Poona for the Ganpati (festival). On
@@ -1000,16 +1066,20 @@ taken place during (the preceding) two months. Many of them told me that Bhide w
 speaking ill of me behind my back in their presence. This thought then came into my mind : " If one
 acts in opposition to us even at this stage, there is no knowing what he might do when the club
 becomes invested with special importance. It will not therefore be advantageous to continue further
-such a culb as this. What shall we do next ? " We then called a meeting of the members of the club
+such a culb as this. What shall we do next ? " 
+
+We then called a meeting of the members of the club
 and addressed them as follows:— "All of you are aware that this man, Bhide, had maliciously
 spoken ill of us in your presence for no fault of ours. We have, however, come to this conclusion
 from this occurrence, that we are not fitted to do any good to our country and have, therefore given
 up everything from to-day. Any other person who may "desire to take up this business is welcome to
-do so. We do not wish to have any of these things,
-977So saying we severed our connection with the club. After this, many of the boys came to my house
+do so. We do not wish to have any of these things."
+
+So saying we severed our connection with the club. After this, many of the boys came to my house
 and implored me with tears in their eyes not to break up the club. Bhide wept most of all. That
 deceitful individual shed a profusion of tears, and having protested that he had not spoken, (ill of
 me) implored me not to dissolve our club. We, however, refused to listen to him and left for Bombay.
+
 After some days I learnt that most of the things (belonging to the club) were taken away by a boy
 named Devdhar. He also took away the arms, but when he came to know that the Police having
 received information about the matter were about to search his house, he threw them into my house
@@ -1017,7 +1087,9 @@ which he knew was close by, through a latticed opening, keeping with himself onl
 some spears. In the meantime, the Police came to search his house. He was arrested and
 prosecuted. This news was immediately conveyed to us by our friend, Dattatraya Bhuskute, in a
 letter. I accordingly at once came to Poona by the night mail (train), and having disposed of the
-arms with the help of Bhuskute immediately returned to Bombay. Devdhar did not mention the name
+arms with the help of Bhuskute immediately returned to Bombay. 
+
+Devdhar did not mention the name
 of any member of the club. He was asked by many wiseacres to mention the name of Chapekar, but
 he did not pay any heed to their advice. He was afterwards discharged by the Court because of his
 tender age. So ended our club. We at first felt very sorry that it had come to an end but after
@@ -1025,11 +1097,13 @@ consideration we came to the conclusion that Gosavya Maruti had done all this fo
 had the club continued to exist, it would certainly have been difficult to ensure the secrecy of our
 doings. Afterwards, we two brothers came to Poona with our father, and having thought over the
 matter, made up our minds not to have any club, but to enlist the co-operation of Bhuskute alone in
-what we wished to do, so that there may be no risk of the ma f ter being divulged. Having come to
+what we wished to do, so that there may be no risk of the matter being divulged. Having come to
 this conclusion, we took action accordingly. All the boys, with the exception of Bhuskute, we
 stopped from visiting our house, and he too as a rule came at night.
+
+## Reformer vs Orthodox camps
 ### CONGRESS AND SOCIAL REFORM CONTROVERSY
-Meanwhile (the time for holding)' the National Congress arrived. As it was to be held at Poona
+Meanwhile (the time for holding) the National Congress arrived. As it was to be held at Poona
 that year, we were desirous of seeing personally what sort of a revolutionary movement it was.
 Before this, a fierce dispute was going on in the city between the orthodox and the reform parties
 with regard to the Social Conference. We do not approve of the National Congress, much less of the
@@ -1040,16 +1114,20 @@ redeeming feature that it has nothing to do with religious matters. We, therefor
 Congress were held even twenty-five times a year. But we cannot view with patience the chandalin
 (i.e., Social Conference) that has been thrust into its bosom by these reformers. This is the principal
 reason why we look upon them as our inveterate enemies. We are aware that as we are not
-independent, now, everybody adopts whatever course he likes. We must, however, conduct
+independent, now, everybody adopts whatever course he likes. 
+
+We must, however, conduct
 ourselves as directed in the Shastras. But as the reformers are endeavouring to circumscribe our
-freedom of action by laws, why should we not 'avenge ourselves upon them ? There is no reason
+freedom of action by laws, why should we not avenge ourselves upon them ? There is no reason
 why we should not. At this time a violent discussion was going on between the two parties. Bal
 Gangadhar Tilak took up the leadership of one party and Mahadev Govind Ranade that of the other,
 and a war of words commenced. At this time Shridhar Vithal Date sided with the orthodox party.
 This man is an enthusiastic admirer of (the Hindu) religion. He is possessed of more self-respect
 than others and is therefore ever willing to undergo any expense in order to prove the correctness of
 his own opinions. The co-operation of a man of such determination resulted
-978in a great accession of strength to the orthodox party. But such strength is of no avail because
+in a great accession of strength to the orthodox party. 
+
+But such strength is of no avail because
 efforts not backed by physical force are doomed to failure. The demands of the National Congress
 have proved futile for this reason. Englishmen know that the National Congress means eating,
 drinking, recreation and a profusion of tall talk and nothing more. Had our people been as spirited as
@@ -1062,6 +1140,7 @@ eating and drinking, on illuminations, on talking and writing, the more is the g
 secured. Let that, however, pass. As I will have to touch upon this topic later on, I shall not dwell
 upon it further in this place. In short, we did not at all like the wordy warfare that went on between
 the two parties.
+
 ### WE STRUCK TWO REFORMERS
 We two brothers, therefore, thought that the chastisement of fome prominent individual from
 amongst the reformers would be conducive to the furtherance (of the cause of the orthodox party).
