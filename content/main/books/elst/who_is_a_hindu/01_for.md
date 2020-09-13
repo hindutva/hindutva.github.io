@@ -22,6 +22,4 @@ email: koenraadelst@hotmail.com
 
 ------------------------------------------------------------------------
 
-**[Back to Contents Page](index.htm)   [Back to VOI
-Books](http://voiceofdharma.org/books)   [Back to
-Home](http://voiceofdharma.org)**
+

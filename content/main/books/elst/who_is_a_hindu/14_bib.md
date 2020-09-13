@@ -1129,6 +1129,4 @@ WINK, André: *Al-Hind, the Making of the Indo-Islamic World*, vol. 1,
 
 ------------------------------------------------------------------------
 
-**[Back to Contents Page](index.htm)   [Back to VOI
-Books](http://voiceofdharma.org/books)   [Back to
-Home](http://voiceofdharma.org)**
+
