@@ -96,9 +96,9 @@ Lo! how all are scared by the Terrific,
 None seek Elokeshi[5](#fn5) whose form is Death.  
 The deadly frightful sword, reeking with blood,  
 They take from Her hand, and put a lute instead!  
-Thou dreaded Kâli, the All-destroyer,  
+Thou dreaded Kāli, the All-destroyer,  
 Thou alone art true; Thy shadow's shadow  
-Is indeed the pleasant Vanamâli.[6](#fn6)  
+Is indeed the pleasant Vanamāli.[6](#fn6)  
 O Terrible Mother, cut quick the core,  
 Illusion dispel — the dream of happiness,  
 Rend asunder the fondness for the flesh.
@@ -133,14 +133,14 @@ Awake, O hero! Shake off thy vain dreams,
 Death stands at thy head — does fear become thee?  
 A load of misery, true though it is —  
 This Becoming[8](#fn8) — know this to be thy God!  
-His temple — the [](#fn8)Shmashân[9](#fn9) among corpses  
+His temple — the [](#fn8)Shmashān[9](#fn9) among corpses  
 And funeral pyres; unending battle —  
 That verily is His sacred worship;  
 Constant defeat — let that not unnerve thee;  
 Shattered be little self, hope, name, and fame;  
 Set up a pyre of them and make thy heart  
 A burning-ground.  
-       And let Shyâmâ[10](#fn10) dance there.
+       And let Shyāmā[10](#fn10) dance there.
 
 1.  [^](#txt1)A fabulous Sandal-wood mountain in the South. Hence,
     Malaya breeze means a fragrant breeze from the South.
@@ -148,7 +148,7 @@ A burning-ground.
     honey.
 3.  [^](#txt3)The time of cosmic destruction
 4.  [^](#txt4)A kind of fruit of a rich red colour.
-5.  [^](#txt5)She with untied hair, a name of Kâli, the Divine Mother of
+5.  [^](#txt5)She with untied hair, a name of Kāli, the Divine Mother of
     the Universe.
 6.  [^](#txt6)Literally, he who is garlanded with wild flowers. The
     Shepherd Krishna in His aspect of youthful sport.

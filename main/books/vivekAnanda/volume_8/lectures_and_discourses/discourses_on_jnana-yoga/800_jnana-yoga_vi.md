@@ -15,8 +15,8 @@ Swami, Miss S. E. Waldo. Swami Saradananda, while he was in America
 (1896), copied them out from her notebook — *Ed*.)
 
 Thought is all important, for "what we think we become". There was once
-a Sannyâsin, a holy man, who sat under a tree and taught the people. He
-drank milk, and ate only fruit, and made endless "Prânâyâmas", and felt
+a Sannyāsin, a holy man, who sat under a tree and taught the people. He
+drank milk, and ate only fruit, and made endless "Prānāyāmas", and felt
 himself to be very holy. In the same village lived an evil woman. Every
 day the Sannyasin went and warned her that her wickedness would lead her
 to hell. The poor woman, unable to change her method of life which was
@@ -78,7 +78,7 @@ can, as it were, find a hole in the ice, through which he can pass and
 reach the whole ocean of life. Only by so transcending the world of
 sense, can he reach his true Self and realise what he really is.
 
-Jnâna is never sense-knowledge. We cannot *know* Brahman, but we *are*
+Jnāna is never sense-knowledge. We cannot *know* Brahman, but we *are*
 Brahman, the whole of It, not a piece. The unextended can never be
 divided. The apparent variety is but the reflection seen in time and
 space, as we see the sun reflected in a million dewdrops, though we know
@@ -111,6 +111,6 @@ desire still rules us. Be for one moment really "hopeless", and the mist
 will clear. For what to hope when one is the all of existence? The
 secret of Jnana is to give up all and be sufficient unto ourselves. Say
 "not", and you become "not"; say "is", and you become "is". Worship the
-Self within, naught else exists. All that binds us is Mâyâ-delusion.
+Self within, naught else exists. All that binds us is Māyā-delusion.
 
 

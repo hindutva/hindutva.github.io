@@ -49,7 +49,7 @@ It may be true that the priests deserve a good part of the sweeping
 criticism generally heaped upon them; yet we must not forget the great
 truth — like people, like priests. If the people stand be with folded
 hands and watch the swift current of misery rushing past their doors,
-dragging men, women and children, the Sannyâsin and the householder into
+dragging men, women and children, the Sannyāsin and the householder into
 one common whirlpool of helpless suffering, and make not the least
 effort to save any from the current, only waxing eloquent at the
 misdoings of the priests of the holy places not one particle of

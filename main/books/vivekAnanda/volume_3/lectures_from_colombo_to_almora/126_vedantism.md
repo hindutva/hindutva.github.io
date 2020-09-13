@@ -119,7 +119,7 @@ without beginning and without end, so is the knowledge of God without
 beginning and without end. And this knowledge is what is meant by the
 Vedas (*Vid* to know). The mass of knowledge called the Vedanta was
 discovered by personages called Rishis, and the Rishi is defined as a
-Mantra-drashtâ, a seer of thought; not that the thought was his own.
+Mantra-drashtā, a seer of thought; not that the thought was his own.
 Whenever you hear that a certain passage of the Vedas came from a
 certain Rishi never think that he wrote it or created it out of his
 mind; he was the seer of the thought which already existed; it existed
@@ -127,7 +127,7 @@ in the universe eternally. This sage was the discoverer; the Rishis were
 spiritual discoverers.
 
 This mass of writing, the Vedas, is divided principally into two parts,
-the Karma Kânda and the Jnâna Kânda — the work portion and the knowledge
+the Karma Kānda and the Jnāna Kānda — the work portion and the knowledge
 portion, the ceremonial and the spiritual. The work portion consists of
 various sacrifices; most of them of late have been given up as not
 practicable under present circumstances, but others remain to the
@@ -140,7 +140,7 @@ Kanda, the Vedanta, the end of the Vedas, the gist, the goal of the
 Vedas. The essence of the knowledge of the Vedas was called by the name
 of Vedanta, which comprises the Upanishads; and all the sects of India —
 Dualists, Qualified-Monists, Monists, or the Shaivites, Vaishnavites,
-Shâktas, Sauras, Gânapatyas, each one that dares to come within the fold
+Shāktas, Sauras, Gānapatyas, each one that dares to come within the fold
 of Hinduism — must acknowledge the Upanishads of the Vedas. They can
 have their own interpretations and can interpret them in their own way,
 but they must obey the authority. That is why we want to use the word
@@ -170,7 +170,7 @@ Smritis are not final authority. If there is any thing in a Smriti which
 contradicts the Vedanta, the Smriti is to be rejected — its authority is
 gone. These Smritis, we see again, have varied from time to time. We
 read that such and such Smriti should have authority in the Satya Yuga,
-such and such in the Tretâ Yuga, some in the Dwâpara Yuga, and some in
+such and such in the Tretā Yuga, some in the Dwāpara Yuga, and some in
 the Kali Yuga, and so on. As essential conditions changed, as various
 circumstances came to have their influence on the race, manners and
 customs had to be changed, and these Smritis, as mainly regulating the
@@ -193,7 +193,7 @@ to be made, they must be met, and sages will come and show us the way
 how to meet them; but not one jot of the principles of our religion will
 be changed; they will remain intact.
 
-Then there are the Purânas. पुराणं पञ्चलक्षणम् — which means, the
+Then there are the Purānas. पुराणं पञ्चलक्षणम् — which means, the
 Puranas are of five characteristics — that which treats of history, of
 cosmology, with various symbological illustration of philosophical
 principles, and so forth. These were written to popularise the religion
@@ -222,7 +222,7 @@ differences between these sects and all the spiritual details about
 them; therefore I shall take up the common grounds, the essential
 principles of all these sects which every Hindu must believe.
 
-The first is the question of creation, that this nature, Prakriti, Mâyâ
+The first is the question of creation, that this nature, Prakriti, Māyā
 is infinite, without beginning. It is not that this world was created
 the other day, not that a God came and created the world and since that
 time has been sleeping; for that cannot be. The creative energy is still
@@ -547,7 +547,7 @@ subject with you, but till then, my friend, you are only a giddy child."
 
 I have finished what I had to say about our religion. I will end by
 reminding you of the one pressing necessity of the day. Praise be to
-Vyâsa, the great author of the Mahâbhârata, that in this Kali Yuga there
+Vyāsa, the great author of the Mahābhārata, that in this Kali Yuga there
 is one great work. The Tapas and the other hard Yogas that were
 practiced in other Yugas do not work now. What is needed in this Yuga is
 giving, helping others. What is meant by Dana? The highest of gifts is

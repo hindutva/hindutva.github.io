@@ -28,7 +28,7 @@ Excuse this rather long delay in writing. Owing to various reasons I
 could not, but \[was\] mentally sending you good wishes all along.
 
 Miss \[Josephine\] MacLeod has arrived with her Japanese friends: Mr.
-Okakura \[Kakuzo\], a professor of art, and Mr. Hori, a Brahmachârin.
+Okakura \[Kakuzo\], a professor of art, and Mr. Hori, a Brahmachārin.
 The latter has come to India to study Sanskrit and English. The former
 came to see India, the Motherland of Japanese culture and art. Well,
 Mrs. \[Ole\] Bull and Nivedita are also expected in a few days. As it

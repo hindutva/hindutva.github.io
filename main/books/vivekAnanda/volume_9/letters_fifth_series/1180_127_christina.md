@@ -45,7 +45,7 @@ to write. Give me a long chat, will you? Do!
 I am getting better every day — and then the long months before I can
 start for the U.S. Never mind, "Mother" knows what is best for us. She
 will show the way. I am now in Bhakti. As I am growing old, Bhakti is
-taking the place of Jnâna. Did you get the new *Awakened India*? How do
+taking the place of Jnāna. Did you get the new *Awakened India*? How do
 you like it?
 
 Ever yours in the Lord,  

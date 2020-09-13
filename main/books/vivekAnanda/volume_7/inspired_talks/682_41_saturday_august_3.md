@@ -36,7 +36,7 @@ and eating a piece of meat, looking round in fear lest at any moment
 some one may come and drive them out. Instead of that, be a king and
 know you own the world. This never comes until you give it up and it
 ceases to bind. Give up mentally, if you do not physically. Give up from
-the heart of your hearts. Have Vairâgya (renunciation). This is the real
+the heart of your hearts. Have Vairāgya (renunciation). This is the real
 sacrifice, and without it, it is impossible to attain spirituality. Do
 not desire, for what you desire you get, and with it comes terrible
 bondage. It is nothing but bringing "noses on us,"[1](#fn1) as in the
@@ -48,7 +48,7 @@ Throw all other nonsense to the winds. Spit out your actions, good or
 bad, and never think of them again. What is done is done. Throw off
 superstition. Have no weakness even in the face of death. Do not repent,
 do not brood over past deeds, and do not remember your good deeds; be
-*âzâd*  (free). The weak, the fearful, the ignorant will never reach
+*āzād*  (free). The weak, the fearful, the ignorant will never reach
 Atman. You cannot undo, the effect must come, face it, but be careful
 never to do the same thing again. Give up the burden of all deeds to the
 Lord; give all, both good and bad. Do not keep the good and give only

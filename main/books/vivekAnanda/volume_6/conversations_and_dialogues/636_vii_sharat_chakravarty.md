@@ -15,7 +15,7 @@ title: VII
 (From the Diary of a Disciple)
 
 (The disciple is Sharatchandra Chakravarty, who published his records in
-a Bengali book, *Swami-Shishya-Samvâda*, in two parts. The present
+a Bengali book, *Swami-Shishya-Samvāda*, in two parts. The present
 series of "Conversations and Dialogues" is a revised translation from
 this book. Five dialogues of this series have already appeared in the
 *Complete Works*, [Vol.
@@ -45,7 +45,7 @@ of the things is so hot as your soup." "It's just after the style of the
 Burdwan District", said Swamiji tasting the sour preparation. He then
 brought his dinner to a close and after washing sat on the bedstead
 inside the room. While having his after-dinner smoke, Swamiji remarked
-to the disciple, "Whoever cannot cook well cannot become a good Sâdhu;
+to the disciple, "Whoever cannot cook well cannot become a good Sādhu;
 unless the mind is pure, good tasteful cooking is not possible."
 
 Soon after this, the sound of bells and conch-shells, etc., rose from
@@ -57,7 +57,7 @@ While there were fifteen or twenty minutes left for the eclipse to pass
 off, Swamiji rose from his siesta, and after washing, jocosely said
 while taking a smoke, "Well, people say that whatever one does during an
 eclipse, one gets that millionfold in future; so I thought that the
-Mother, Mahâmâyâ, did not ordain that this body might have good sleep,
+Mother, Mahāmāyā, did not ordain that this body might have good sleep,
 and if I could get some sleep during the eclipse, I might have plenty of
 it in future. But it all failed, for I slept only for fifteen minutes at
 the most."
@@ -109,9 +109,9 @@ experience of pure "isness" remains.
 Disciple: Well, sir, how is it that desires rise even after mental
 concentration is acquired?
 
-Swamiji: Those are the outcome of previous Samskâras (deep-rooted
+Swamiji: Those are the outcome of previous Samskāras (deep-rooted
 impressions or tendencies). When Buddha was on the point of merging in
-Samadhi (superconsciousness), Mâra made his appearance. There was really
+Samadhi (superconsciousness), Māra made his appearance. There was really
 no Mara extraneous to the mind; it was only the external reflection of
 the mind's previous Samskaras.
 
@@ -137,7 +137,7 @@ There is no way, none whatsoever, to the solution of the profound
 mystery of this life except through renunciation. Renunciation,
 renunciation and renunciation — let this be the one motto of your lives.
 "सर्वं वस्तु भयान्वितं भुवि नृणां वैराग्यमेवाभयम् — For men, all things
-on earth are infected with fear, Vairâgya (renunciation) alone
-constitutes fearlessness" (*Vairâgya-Shatakam*).
+on earth are infected with fear, Vairāgya (renunciation) alone
+constitutes fearlessness" (*Vairāgya-Shatakam*).
 
 

@@ -29,7 +29,7 @@ From Bombay we reached Colombo. Our steamer remained in port for nearly
 the whole day, and we took the opportunity of getting off to have a look
 at the town. We drove through the streets, and the only thing I remember
 was a temple in which was a very gigantic Murti (image) of the Lord
-Buddha in a reclining posture, entering Nirvâna....
+Buddha in a reclining posture, entering Nirvāna....
 
 The next station was Penang, which is only a strip of land along the sea
 in the body of the Malaya Peninsula. The Malayas are all Mohammedans and

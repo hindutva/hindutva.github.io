@@ -15,7 +15,7 @@ title: XII
 (From the Diary of a Disciple)
 
 (The disciple is Sharatchandra Chakravarty, who published his records in
-a Bengali book, *Swami-Shishya-Samvâda*, in two parts. The present
+a Bengali book, *Swami-Shishya-Samvāda*, in two parts. The present
 series of "Conversations and Dialogues" is a revised translation from
 this book. Five dialogues of this series have already appeared in the
 *Complete Works*, [Vol.
@@ -35,7 +35,7 @@ how by his initiation he re-Hinduised Mohammedan converts and took them
 back into the Sikh community — and how on the banks of the Narmada he
 brought his wonderful life to a close. Speaking of the great power that
 used to be infused in those days into the initiates of Guru Govind,
-Swamiji recited a popular Dohâ (couplet) of the Sikhs:
+Swamiji recited a popular Dohā (couplet) of the Sikhs:
 
 "सवा लाख पर एक चढ़ाऊँ।  
 जब गुरुगोविन्द नाम सुनाऊँ॥"
@@ -88,7 +88,7 @@ Swamiji: Once when travelling in the Himalayas I had to take up my abode
 for a night in a village of the hill-people. Hearing the beating of
 drums in the village some time after nightfall, I came to know upon
 inquiring of my host that one of the villagers had been possessed by a
-Devatâ or good spirit. To meet his importunate wishes and to satisfy my
+Devatā or good spirit. To meet his importunate wishes and to satisfy my
 own curiosity, we went out to see what the matter really was. Reaching
 the spot, I found a great concourse of people. A tall man with long,
 bushy hair was pointed out to me, and I was told that person had got the
@@ -98,7 +98,7 @@ parts of his body and also to his hair! But wonder of wonders, no part
 of his body or hair thus branded with the red-hot axe was found to be
 burnt, and there was no expression of any pain in his face! I stood mute
 with surprise. The headman of the village, meanwhile, came up to me and
-said, "Mahârâj, please exorcise this man out of your mercy." I felt
+said, "Mahārāj, please exorcise this man out of your mercy." I felt
 myself in a nice fix, but moved to do something, I had to go near the
 possessed man. Once there, I felt a strong impulse to examine the axe
 rather closely, but the instant I touched it, I burnt my fingers,
@@ -126,7 +126,7 @@ He then resumed: But Shri Ramakrishna used to disparage these
 supernatural powers; his teaching was that one cannot attain to the
 supreme truth if the mind is diverted to the manifestation of these
 powers. The layman mind, however, is so weak that, not to speak of
-householders, even ninety per cent of the Sâdhus happen to be votaries
+householders, even ninety per cent of the Sādhus happen to be votaries
 of these powers. In the West, men are lost in wonderment if they come
 across such miracles. It is only because Shri Ramakrishna has mercifully
 made us understand the evil of these powers as being hindrances to real
@@ -135,7 +135,7 @@ Haven't you noticed how for that reason the children of Shri Ramakrishna
 pay no heed to them?
 
 Swami Yogananda said to Swamiji at this moment, "Well, why don't you
-narrate to our Bângâl (Lit. A man from East Bengal, i.e. the disciple.)
+narrate to our Bāngāl (Lit. A man from East Bengal, i.e. the disciple.)
 that incident of yours in Madras when you met the famous ghost-tamer?"
 
 At the earnest entreaty of the disciple Swamiji was persuaded to give
@@ -182,7 +182,7 @@ Swami Yogananda said in reply, "It was because you would not believe all
 this before that this experience was necessary for you."
 
 Swamiji: Well, I am not a fool to believe anything and everything
-without direct proof. And coming into this realm of Mahâmâya, oh, the
+without direct proof. And coming into this realm of Mahāmāya, oh, the
 many magic mysteries I have come across alongside this bigger magic
 conjuration of a universe! Maya, it is all Maya! Goodness! What rubbish
 we have been talking so long this day! By thinking constantly of ghosts,
@@ -198,7 +198,7 @@ than this knowledge of the Atman; all else is Maya, mere jugglery. The
 Atman is the one unchangeable Truth. This I have come to understand, and
 that is why I try to bring it home to you all. "एकमेवाद्वयं ब्रह्म",
 "नेह नानास्ति किञ्चन्" — "One Brahman there is without a second", "There
-is nothing manifold in existence" (Brihadâranyaka, IV. iv. 19)
+is nothing manifold in existence" (Brihadāranyaka, IV. iv. 19)
 
 All this conversation continued up to eleven o'clock at highs. After
 that, his meal being finished, Swamiji retired for rest. The disciple

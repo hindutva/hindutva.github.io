@@ -55,13 +55,13 @@ them — this is my only objection.
 
 Let people speak out their own opinions, why should we object? Without
 studying Ramakrishna Paramahamsa first, one can never understand the
-real import of the Vedas, the Vedanta, of the *Bhâgavata* and the other
-Purânas. His life is a searchlight of infinite power thrown upon the
+real import of the Vedas, the Vedanta, of the *Bhāgavata* and the other
+Purānas. His life is a searchlight of infinite power thrown upon the
 whole mass of Indian religious thought. He was the living commentary to
 the Vedas and to their aim. He had lived in one life the whole cycle of
 the national religious existence in India.
 
-Whether Bhagavân Shri Krishna was born at all we are not sure; and
+Whether Bhagavān Shri Krishna was born at all we are not sure; and
 Avataras like Buddha and Chaitanya are monotonous; Ramakrishna
 Paramahamsa is the latest and the most perfect — the concentrated
 embodiment of knowledge, love, renunciation, catholicity, and the desire
@@ -89,7 +89,7 @@ You have not yet understood the wonderful significance of Mother's life
 is no regeneration for the world. Why is it that our country is the
 weakest and the most backward of all countries? — Because Shakti is held
 in dishonour there. Mother has been born to revive that wonderful Shakti
-in India; and making her the nucleus, once more will Gârgis and
+in India; and making her the nucleus, once more will Gārgis and
 Maitreyis be born into the world. Dear brother, you understand little
 now, but by degrees you will come to know it all. Hence it is her Math
 that I want first. . . . Without the grace of Shakti nothing is to be

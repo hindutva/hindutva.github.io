@@ -68,7 +68,7 @@ The Swamiji sent the following reply:
 
 "*Whenever virtue subsides, and wickedness raises its head, I manifest
 Myself to restore the glory of religion*" — are the words, O noble
-Prince, of the Eternal One in the holy Gitâ, striking the keynote of the
+Prince, of the Eternal One in the holy Gitā, striking the keynote of the
 pulsating ebb and flow of the spiritual energy in the universe.
 
 These changes are manifesting themselves again and again in rhythms
@@ -189,7 +189,7 @@ descendants to appreciate the full scope of this wonderful plan that is
 the one and only cause of the degeneration of India.
 
 Ancient India had for centuries been the battlefield for the ambitious
-projects of two of her foremost classes — the Brâhmins and the
+projects of two of her foremost classes — the Brāhmins and the
 Kshatriyas.
 
 On the one hand, the priesthood stood between the lawless social tyranny
@@ -202,7 +202,7 @@ were forging to bind down the people with.
 The tug of war began in the earliest periods of the history of our race,
 and throughout the Shrutis it can be distinctly traced. A momentary lull
 came when Shri Krishna, leading the faction of Kshatriya power and of
-Jnâna, showed the way to reconciliation. The result was the teachings of
+Jnāna, showed the way to reconciliation. The result was the teachings of
 the Gita — the essence of philosophy, of liberality, of religion. Yet
 the causes were there, and the effect must follow.
 
@@ -230,33 +230,33 @@ succeeded in putting down the animal sacrifices of the Vedas, it filled
 the land with temples, images, symbols, and bones of saints.
 
 Above all, in the medley of Aryans, Mongols, and aborigines which it
-created, it unconsciously led the way to some of the hideous Vâmâchâras.
+created, it unconsciously led the way to some of the hideous Vāmāchāras.
 This was especially the reason why this travesty of the teaching of the
 great Master had to be driven out of India by Shri Shankara and his band
-of Sannyâsins.
+of Sannyāsins.
 
 Thus even the current of life, set in motion by the greatest soul that
-ever wore a human form, the Bhagavân Buddha himself, became a miasmatic
+ever wore a human form, the Bhagavān Buddha himself, became a miasmatic
 pool, and India had to wait for centuries until Shankara arose, followed
-in quick succession by Râmânuja and Madhva.
+in quick succession by Rāmānuja and Madhva.
 
 By this time, an entirely new chapter had opened in the history of
 India. The ancient Kshatriyas and the Brahmins had disappeared. The land
 between the Himalayas and the Vindhyas, the home of the Âryas, the land
-which gave birth to Krishna and Buddha, the cradle of great Râjarshis
+which gave birth to Krishna and Buddha, the cradle of great Rājarshis
 and Brahmarshis, became silent, and from the very farther end of the
 Indian Peninsula, from races alien in speech and form, from families
 claiming descent from the ancient Brahmins, came the reaction against
 the corrupted Buddhism.
 
-What had become of the Brahmins and Kshatriyas of Âryâvarta? They had
+What had become of the Brahmins and Kshatriyas of Âryāvarta? They had
 entirely disappeared, except here and there a few mongrel clans claiming
 to be Brahmins and Kshatriyas, and in spite of their inflated,
 self-laudatory assertions that the whole world ought to learn from
 एतद्देशप्रसूतस्य सकाशादग्रजन्मनः, they had to sit in sackcloth and
 ashes, in all humility, to learn at the feet of the Southerners. The
 result was the bringing back of the Vedas to India — a revival of
-Vedânta, such as India never before had seen; even the householders
+Vedānta, such as India never before had seen; even the householders
 began to study the Âranyakas.
 
 In the Buddhistic movement, the Kshatriyas were the real leaders, and
@@ -357,7 +357,7 @@ more.
 
 And you, my beloved Prince — you the scion of a race who are the living
 pillars upon which rests the religion eternal, its sworn defenders and
-helpers, the descendants of Râma and Krishna, will you remain outside? I
+helpers, the descendants of Rāma and Krishna, will you remain outside? I
 know, this cannot be. Yours, I am sure, will be the first hand that will
 be stretched forth to help religion once more. And when I think of you,
 Raja Ajit Singh, one in whom the well-known scientific attainments of

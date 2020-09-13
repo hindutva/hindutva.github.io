@@ -20,7 +20,7 @@ DEAR GOVINDA SAHAY,
 
 Have you done the Upanayana of that Brahmin boy? Are you studying
 Sanskrit? How far have you advanced? I think you must have finished the
-first part. ... Are you diligent in your Shiva Pujâ ? If not, try to be
+first part. ... Are you diligent in your Shiva Pujā ? If not, try to be
 so. "Seek ye first the kingdom of God and all good things will be added
 unto you." Follow God and you shall have whatever you desire. ... To the
 two Commander Sahebs my best regards; they being men of high position

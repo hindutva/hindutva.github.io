@@ -10,7 +10,7 @@ title: A STUDY OF THE SANKHYA PHILOSOPHY
 
 ## A STUDY OF THE SANKHYA PHILOSOPHY
 
-Prakriti is called by the Sânkhya philosophers indiscrete, and defined
+Prakriti is called by the Sānkhya philosophers indiscrete, and defined
 as the perfect balance of the materials in it; and it naturally follows
 that in perfect balance there cannot be any motion. In the primal state
 before any manifestation, when there was no motion but perfect balance,

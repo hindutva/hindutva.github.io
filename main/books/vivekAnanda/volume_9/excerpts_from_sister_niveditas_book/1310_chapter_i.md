@@ -32,10 +32,10 @@ leonine mother! — and in sight of Dakshineswar.
 
 There came one and another with traditions of the past, and we learnt of
 the Master's eight years' wanderings; of the name changed from village
-to village; of the Nirvikalpa Samâdhi; and of that sacred sorrow, too
+to village; of the Nirvikalpa Samādhi; and of that sacred sorrow, too
 deep for words or for common sight, that one who loved had alone seen.
-And there too came the Master himself, with his stories of Umâ and
-Shiva, of Râdhâ and Krishna, and his fragments of song and poetry.
+And there too came the Master himself, with his stories of Umā and
+Shiva, of Rādhā and Krishna, and his fragments of song and poetry.
 
 It seemed as if he knew that the first material of a new consciousness
 must be a succession of vivid but isolated experiences, poured out
@@ -47,7 +47,7 @@ the moment. But it was not religion only that he poured out upon us.
 Sometimes it would be history. Again, it would be folk-lore. On still
 another occasion it would be the manifold anomalies and inconsistencies
 of race, caste and custom. In fact India herself became, as heard in
-him, as the last and noblest of the Purânas, uttering itself through his
+him, as the last and noblest of the Purānas, uttering itself through his
 lips.
 
 Another point in which he had caught a great psychological secret was
@@ -144,7 +144,7 @@ early and spending the morning hours there, and again returning in the
 late afternoon. On the second morning of this visit, however — Friday,
 the Christian feast of the Annunciation — he took us all three back to
 the Math, and there in the worship-room was held a little service of
-initiation where one was made a Brahmachârini. That was the happiest of
+initiation where one was made a Brahmachārini. That was the happiest of
 mornings.
 
 After the service we were taken upstairs. The Swami put on the ashes and
@@ -163,7 +163,7 @@ MAY 3.
 Then two of us met him in the house of our Holy Mother. The political
 sky was black. It seemed as if a storm were about to burst. . . .
 Plague, panic and riot were doing their fell work. And the Master turned
-to the two and said, "There are some who scoff at the existence of Kâli.
+to the two and said, "There are some who scoff at the existence of Kāli.
 Yet today She is out there amongst the people. They are frantic with
 fear, and the soldiery have been called to deal out death. Who can say
 that God does not manifest Himself as evil as well as good? But only the

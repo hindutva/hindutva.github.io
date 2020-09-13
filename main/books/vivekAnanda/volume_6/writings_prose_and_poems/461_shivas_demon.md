@@ -12,7 +12,7 @@ title: SHIVA'S DEMON
 
 (This incomplete story was found among Swamiji's papers after he had
 passed away. It is printed as the last article in the
-[Bengali](6042_shivas_demon.pdf) book *Bhâbbâr Kathâ*.)
+[Bengali](6042_shivas_demon.pdf) book *Bhābbār Kathā*.)
 
 Baron K— lived in a district of Germany. Born in all aristocratic
 family, he inherited high rank, honour and wealth even in early youth;

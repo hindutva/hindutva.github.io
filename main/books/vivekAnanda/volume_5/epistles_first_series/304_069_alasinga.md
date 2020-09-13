@@ -38,7 +38,7 @@ diabolical. There is no use in publishing books that way; it is cheating
 the public, and should not be done. I shall most probably return to
 India accompanied by Mr. and Mrs. Sevier, Miss Müller, and Mr. Goodwin.
 Mr. and Mrs. Sevier are probably going to settle in Almora at least for
-some time, and Goodwin is going to become a Sannyâsin. He of course will
+some time, and Goodwin is going to become a Sannyāsin. He of course will
 travel with me. It is he to whom we owe all our books. He took shorthand
 notes of my lectures, which enabled the books to be published. . . . All
 these lectures were delivered on the spur of the moment, without the

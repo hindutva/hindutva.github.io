@@ -158,7 +158,7 @@ Whatever we do is always through Him. Now the question is: What are
 time, space, and causation? Advaita means non-duality; there are no two,
 but one. Yet we see that here is a proposition that the Absolute is
 manifesting Itself as many, through the veil of time, space, and
-causation. Therefore it seems that here are two, the Absolute and Mâyâ
+causation. Therefore it seems that here are two, the Absolute and Māyā
 (the sum total of time, space, and causation). It seems apparently very
 convincing that there are two. To this the Advaitist replies that it
 cannot be called two. To have two, we must have two absolute independent

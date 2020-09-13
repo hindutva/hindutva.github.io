@@ -273,7 +273,7 @@ development in everything; that is my belief. One atom has the power of
 the whole universe at its back. All along, in the history of the Hindu
 race, there never was any attempt at destruction, only construction. One
 sect wanted to destroy, and they were thrown out of India: They were the
-Buddhists. We have had a host of reformers — Shankara, Râmânuja, Madhva,
+Buddhists. We have had a host of reformers — Shankara, Rāmānuja, Madhva,
 and Chaitanya. These were great reformers, who always were constructive
 and built according to the circumstances of their time. This is our
 peculiar method of work. All the modern reformers take to European

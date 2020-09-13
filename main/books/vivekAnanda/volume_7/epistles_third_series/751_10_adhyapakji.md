@@ -77,7 +77,7 @@ mine is to obey. And then He is supplying my necessities, and His *will
 be done*!
 
 "He who rests \[in\] Me and gives up all other self-assertion and
-struggles I carry to him whatever he needs" (Gitâ).
+struggles I carry to him whatever he needs" (Gitā).
 
 So it is in Asia. So in Europe. So in America. So in the deserts of
 India. So in the rush of business in America. For is He not here also?
@@ -124,13 +124,13 @@ existence in a world of flitting shadows — the one life in a world of
 death — he alone crosses this sea of misery and struggle. None else,
 none else" (Vedas).
 
-"He who is the Brahman of the Vedântins, Ishvara of the Naiyâyikas,
-Purusha of the Sânkhyas, cause of the Mimâmsakas, *law* of the
+"He who is the Brahman of the Vedāntins, Ishvara of the Naiyāyikas,
+Purusha of the Sānkhyas, cause of the Mimāmsakas, *law* of the
 Buddhists, *absolute zero* of the Atheists, and love infinite unto those
 that love, may \[He\] take us all under His merciful protection":
-Udayanâchârya — a great philosopher of the Nyâya or Dualistic school.
+Udayanāchārya — a great philosopher of the Nyāya or Dualistic school.
 And this is the Benediction pronounced at the very beginning of his
-wonderful book *Kusumânjali* (A handful of flowers), in which he
+wonderful book *Kusumānjali* (A handful of flowers), in which he
 attempts to establish the existence of a personal creator and moral
 ruler of infinite love independently of revelation.
 

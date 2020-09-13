@@ -15,8 +15,8 @@ title: 'ON QUESTIONING THE COMPETENCY
 In the course of a conversation Swamiji spiritedly remarked, "Leave off
 your commercial calculating ideas. If you can get rid of your attachment
 to a single thing, you are on the way to liberation. Do not see a public
-woman, or sinner, or Sâdhu. That vile woman also is the Divine Mother. A
-Sannyâsin says once, twice, that she is Mother; then he gets deluded
+woman, or sinner, or Sādhu. That vile woman also is the Divine Mother. A
+Sannyāsin says once, twice, that she is Mother; then he gets deluded
 again and says, 'Hence, O vile, unchaste woman!' At a moment all your
 ignorance may vanish. It is foolish talk that ignorance disperses
 gradually. There are disciples who have been devoted to the Guru even

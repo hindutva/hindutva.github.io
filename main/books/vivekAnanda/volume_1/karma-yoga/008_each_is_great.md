@@ -14,7 +14,7 @@ CHAPTER II
 
 ## EACH IS GREAT IN HIS OWN PLACE
 
-According to the Sânkhya philosophy, nature is composed of three forces
+According to the Sānkhya philosophy, nature is composed of three forces
 called, in Sanskrit, Sattva, Rajas, and Tamas. These as manifested in
 the physical world are what we may call equilibrium, activity, and
 inertness. Tamas is typified as darkness or inactivity; Rajas is
@@ -194,7 +194,7 @@ truth.
 In the Hindu system of morality we find that this fact has been
 recognised from very ancient times; and in their scriptures and books on
 ethics different rules are laid down for the different classes of men —
-the householder, the Sannyâsin (the man who has renounced the world),
+the householder, the Sannyāsin (the man who has renounced the world),
 and the student.
 
 The life of every individual, according to the Hindu scriptures, has its
@@ -215,7 +215,7 @@ stages of life in India have in later times been reduced to two — that
 of the householder and of the monk. The householder marries and carries
 on his duties as a citizen, and the duty of the other is to devote his
 energies wholly to religion, to preach and to worship God. I shall read
-to you a few passages from the Mahâ-Nirvâna-Tantra, which treats of this
+to you a few passages from the Mahā-Nirvāna-Tantra, which treats of this
 subject, and you will see that it is a very difficult task for a man to
 be a householder, and perform all his duties perfectly:
 

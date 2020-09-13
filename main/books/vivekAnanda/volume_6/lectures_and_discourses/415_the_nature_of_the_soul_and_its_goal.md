@@ -90,11 +90,11 @@ a man died, his Self went away, taking along with it the bright body.
 There were other people who denied the atomic nature of the soul on the
 same ground on which they had denied that this bright body was the soul.
 
-Out of all these various opinions rose Sânkhya philosophy, where at once
+Out of all these various opinions rose Sānkhya philosophy, where at once
 we find immense differences. The idea there is that man has first this
 gross body; behind the gross body is the fine body, which is the vehicle
 of the mind, as it were; and behind even that is the Self, the
-Perceiver, as the Sânkhyas call it, of the mind; and this is
+Perceiver, as the Sānkhyas call it, of the mind; and this is
 omnipresent. That is, your soul, my soul, everyone's soul is everywhere
 at the same time. If it is formless, how can it be said to occupy space?
 Everything that occupies space has form. The formless can only be

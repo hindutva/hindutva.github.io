@@ -28,7 +28,7 @@ every day I used to go to the Fair. It is a tremendous affair. One must
 take at least ten days to go through it. The lady to whom Varada Rao
 introduced me and her husband belong to the highest Chicago society, and
 they were so very kind to me. I took my departure from Chicago and came
-to Boston. Mr. Lâlubhâi was with me up to Boston. He was very kind to
+to Boston. Mr. Lālubhāi was with me up to Boston. He was very kind to
 me. . . .
 
 The expense I am bound to run into here is awful. You remember, you gave
@@ -71,7 +71,7 @@ who really feel, and not those. . . .
 In Chicago, the other day, a funny thing happened The Raja of Kapurthala
 was here, and he was being lionised by some portion of Chicago society.
 I once met the Raja in the Fair grounds, but he was too big to speak
-with a poor Fakir. There was an eccentric Mahratta Brâhmin selling
+with a poor Fakir. There was an eccentric Mahratta Brāhmin selling
 nail-made pictures in the Fair, dressed in a dhoti. This fellow told the
 reporters all sorts of things against the Raja —, that he was a man of
 low caste, that those Rajas were nothing but slaves, and that they
@@ -118,7 +118,7 @@ The slave and the tyrant are synonymous.
 
 Balaji and G. G. may remember one evening at Pondicherry — we were
 discussing the matter of sea-voyage with a Pandit, and I shall always
-remember his brutal gestures and his Kadâpi Na (never)! They do not know
+remember his brutal gestures and his Kadāpi Na (never)! They do not know
 that India is a very small part of the world, and the whole world looks
 down with contempt upon the three hundred millions of earthworms
 crawling upon the fair soil of India and trying to oppress each other.
@@ -140,7 +140,7 @@ the poor and the low in such a fashion as Hinduism. The Lord has shown
 me that religion is not in fault, but it is the Pharisees and Sadducees
 in Hinduism, hypocrites, who invent all sorts of engines of tyranny in
 the shape of doctrines of  
-Pâramârthika and Vyâvahârika.
+Pāramārthika and Vyāvahārika.
 
 Despair not; remember the Lord says in the Gita, "To work you have the
 right, but not to the result." Gird up your loins, my boy. I am called
@@ -180,7 +180,7 @@ the world to this strange land, seeking for help. The Lord is great. I
 know He will help me. I may perish of cold or hunger in this land, but I
 bequeath to you, young men, this sympathy, this struggle for the poor,
 the ignorant, the oppressed. Go now this minute to the temple of
-Pârthasârathi, (Shri Krishna as Sârathi, charioteer, of Pârtha or
+Pārthasārathi, (Shri Krishna as Sārathi, charioteer, of Pārtha or
 Arjuna.) and before Him who was friend to the poor and lowly cowherds of
 Gokula, who never shrank to embrace the Pariah Guhaka, who accepted the
 invitation of a prostitute in preference to that of the nobles and saved
@@ -192,7 +192,7 @@ of the redemption of these three hundred millions, going down and down
 every day.
 
 It is not the work of a day, and the path is full of the most deadly
-thorns. But Parthasarathi is ready to be our Sârathi — we know that. And
+thorns. But Parthasarathi is ready to be our Sārathi — we know that. And
 in His name and with eternal faith in Him, set fire to the mountain of
 misery that has been heaped upon India for ages — and it shall be burned
 down. Come then, look it in the face, brethren, it is a grand task, and
@@ -209,7 +209,7 @@ look back to see who falls — forward — onward! Thus and thus we shall go
 on, brethren. One falls, and another takes up the work.
 
 From this village I am going to Boston tomorrow. I am going to speak at
-a big Ladies' Club here, which is helping Ramâbâi. I must first go and
+a big Ladies' Club here, which is helping Ramābāi. I must first go and
 buy some clothing in Boston. If I am to live longer here, my quaint
 dress will not do. People gather by hundreds in the streets to see me.
 So what I want is to dress myself in a long black coat, and keep a red

@@ -101,7 +101,7 @@ blood and tingled with every drop in our veins, and has become one with
 our constitution, become the very vitality of our lives. Can you give
 such religion up without the rousing of the same energy in reaction,
 without filling the channel which that mighty river has cut out for
-itself in the course of thousands of years? Do you want that the Gangâ
+itself in the course of thousands of years? Do you want that the Gangā
 should go back to its icy bed and begin a new course? Even if that were
 possible, it would be impossible for this country to give up her
 characteristic course of religious life and take up for herself a new
@@ -247,7 +247,7 @@ preached. At the same time, just as our God is an Impersonal and yet a
 Personal God, so is our religion a most intensely impersonal one — a
 religion based upon principles — and yet with an infinite scope for the
 play of persons; for what religion gives you more Incarnations, more
-prophets and seers, and still waits for infinitely more? The *Bhâgavata*
+prophets and seers, and still waits for infinitely more? The *Bhāgavata*
 says that Incarnations are infinite, leaving ample scope for as many as
 you like to come. Therefore if any one or more of these persons in
 India's religious history, any one or more of these Incarnations, and
@@ -265,7 +265,7 @@ of Ishta which gives you the fullest and the freest choice possible
 among these great religious personalities. You may take up any one of
 the prophets or teachers as your guide and the object of your special
 adoration; you are even allowed to think that he whom you have chosen is
-the greatest of the prophets, greatest of all the Avatâras; there is no
+the greatest of the prophets, greatest of all the Avatāras; there is no
 harm in that, but you must keep to a firm background of eternally true
 principles. The strange fact here is that the power of our Incarnations
 has been holding good with us only so far as they are illustrations of
@@ -521,7 +521,7 @@ seashore, and there he was taken into an American vessel and brought
 over to America. And this boy made that speech! After that, what was I
 to think of your doctrine of heredity!
 
-Ay, Brâhmins, if the Brahmin has more aptitude for learning on the
+Ay, Brāhmins, if the Brahmin has more aptitude for learning on the
 ground of heredity than the Pariah, spend no more money on the Brahmin's
 education, but spend all on the Pariah. Give to the weak, for there all
 the gift is needed. If the Brahmin is born clever, he can educate
@@ -665,7 +665,7 @@ What police, what military are necessary to govern them? Why should any
 one govern them at all? Why should they live under a government? They
 are good and noble, and they are the men of God; these are our ideal
 Brahmins, and we read that in the Satya Yuga there was only one caste,
-and that was the Brahmin. We read in the Mahâbhârata that the whole
+and that was the Brahmin. We read in the Mahābhārata that the whole
 world was in the beginning peopled with Brahmins, and that as they began
 to degenerate, they became divided into different castes, and that when
 the cycle turns round, they will all go back to that Brahminical origin.
@@ -708,7 +708,7 @@ can sink and die together in peace. Be patriots, love the race which has
 done such great things for us in the past. Ay, the more I compare notes,
 the more I love you, my fellow-countrymen; you are good and pure and
 gentle. You have been always tyrannised over, and such is the irony of
-this material world of Mâyâ. Never mind that; the Spirit will triumph in
+this material world of Māyā. Never mind that; the Spirit will triumph in
 the long run. In the meanwhile let us work and let us not abuse our
 country, let us not curse and abuse the weather-beaten and work-worn
 institutions of our thrice-holy motherland. Have no word of condemnation

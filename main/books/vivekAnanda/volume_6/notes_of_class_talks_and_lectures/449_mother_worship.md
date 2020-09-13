@@ -81,7 +81,7 @@ the first opening out of the idea of one universal power.
 "I stretch the bows of Rudra when He desires to destroy evil" (Rig-Veda,
 X. 125, *Devi-Sukta*).
 
-Very soon in the Gitâ (IX. 19, also X. 4-5) we find, "O Arjuna, I am the
+Very soon in the Gitā (IX. 19, also X. 4-5) we find, "O Arjuna, I am the
 Sat and I am the Asat, I am the good and I am the bad, I am the power of
 saints, I am the power of the wicked." But soon the speaker patches up
 truth, and the idea goes to sleep. I am power in good so long as it is
@@ -126,7 +126,7 @@ difference. Light knows no evil; you and I make it good or evil.
 
 This idea must have a new name. It is called Mother, because in a
 literal sense it began long ago with a feminine writer elevated to a
-goddess. Then came Sânkhya, and with it all energy is female. The magnet
+goddess. Then came Sānkhya, and with it all energy is female. The magnet
 is still, the iron filings are active.
 
 The highest of all feminine types in India is mother, higher than wife.

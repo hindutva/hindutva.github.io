@@ -24,7 +24,7 @@ discussed?
 
 *A*. — As I have said, the majority of the Indian people are practically
 dualists, and the minority are monists. The main subject of discussion
-is Mâyâ and Jiva. When I came to this country, I found that the
+is Māyā and Jiva. When I came to this country, I found that the
 labourers were informed of the present condition of politics; but when I
 asked them, "What is religion, and what are the doctrines of this and
 that particular sect?" they said, "We do not know; we go to church." In
@@ -43,14 +43,14 @@ system he likes. There was never an organised church in India; so there
 was never a body of men to formulate doctrines of orthodoxy. In a
 general way, we say that those who believe in the Vedas are orthodox;
 but in reality we find that many of the dualistic sects believe more in
-the Purânas than in the Vedas alone.
+the Purānas than in the Vedas alone.
 
 *Q*. — What influence had your Hindu philosophy on the Stoic philosophy
 of the Greeks?
 
 *A*. — It is very probable that it had some influence on it through the
 Alexandrians. There is some suspicion of Pythagoras' being influenced by
-the Sânkhya thought. Anyway, we think the Sankhya philosophy is the
+the Sānkhya thought. Anyway, we think the Sankhya philosophy is the
 first attempt to harmonise the philosophy of the Vedas through reason.
 We find Kapila mentioned even in the Vedas: "‍ऋषिं प्रसूतं कपिलं
 यस्तमग्रे — He who (supports through knowledge) the first-born sage
@@ -59,7 +59,7 @@ Kapila."
 *Q*. — What is the antagonism of this thought with Western science?
 
 *A*. — No antagonism at all. We are in harmony with it. Our theory of
-evolution and of Âkâsha and Prâna is exactly what your modern
+evolution and of Âkāsha and Prāna is exactly what your modern
 philosophies have. Your belief in evolution is among our Yogis and in
 the Sankhya philosophy. For instance, Patanjali speaks of one species
 being changed into another by the infilling of nature —
@@ -139,7 +139,7 @@ universe is going — that of love. If this circle of love is increased
 indefinitely, we reach the one universal love. The other is the "Neti",
 "Neti" — "not this", "not this" — stopping every wave in the mind which
 tries to draw it out; and at last the mind dies, as it were, and the
-Real discloses Itself. We call that Samâdhi, or superconsciousness.
+Real discloses Itself. We call that Samādhi, or superconsciousness.
 
 *Q*. — That would be, then, merging the subject in the object!
 
@@ -157,9 +157,9 @@ ours is that there is no thought of fear. It is always, love God. There
 is no worship through fear, but always through love, from beginning to
 end. In the second place, the assumption is quite unnecessary. Bhakti is
 spoken of in the oldest of the Upanishads, which is much older than the
-Christian Bible. The germs of Bhakti are even in the Samhitâ (the Vedic
+Christian Bible. The germs of Bhakti are even in the Samhitā (the Vedic
 hymns). The word Bhakti is not a Western word. It was suggested by the
-word Shraddhâ.
+word Shraddhā.
 
 *Q*. — What is the Indian idea of the Christian faith?
 
@@ -348,7 +348,7 @@ practiced. It will take time to make you gentle and good. This feeling
 tingles in every drop of blood in India. If I go to the villages to
 teach the people politics, they will not understand; but if I go to
 teach them Vedanta, they will say, "Now, Swami, you are all right". That
-Vairâgya, non-attachment, is everywhere in India, even today. We are
+Vairāgya, non-attachment, is everywhere in India, even today. We are
 very much degenerated now; but kings will give up their thrones and go
 about the country without anything.
 
@@ -421,7 +421,7 @@ countries I find that there have been strong attempts to manufacture
 caste, only they have failed. The Buddhists' caste is practically
 nothing, but they take pride in it in their own minds.
 
-Buddha was one of the Sannyâsins of the Vedanta. He started a new sect,
+Buddha was one of the Sannyāsins of the Vedanta. He started a new sect,
 just as others are started even today. The ideas which now are called
 Buddhism were not his. They were much more ancient. He was a great man
 who gave the ideas power. The unique element in Buddhism was its social
@@ -430,7 +430,7 @@ of the Upanishads were written by Kshatriyas, while the ritualistic
 portions of the Vedas came from the Brahmins. Most of our great teachers
 throughout India have been Kshatriyas, and were always universal in
 their teachings; whilst the Brahmana prophets with two exceptions were
-very exclusive. Râma, Krishna, and Buddha — worshipped as Incarnations
+very exclusive. Rāma, Krishna, and Buddha — worshipped as Incarnations
 of God — were Kshatriyas.
 
 *Q*. — Are sects, ceremonies, and scriptures helps to realisation?

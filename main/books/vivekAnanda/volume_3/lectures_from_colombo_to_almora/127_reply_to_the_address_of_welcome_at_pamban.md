@@ -31,7 +31,7 @@ seeds of Hindu philosophy in the cultured minds of the great Western
 nations are being crowned with so much success that we already see all
 around the bright and cheerful aspect of the bearing of excellent fruits
 in great abundance, and most humbly pray that Your Holiness will, during
-your sojourn in Âryâvarta, be graciously pleased to exert yourself even
+your sojourn in Âryāvarta, be graciously pleased to exert yourself even
 a little more than you did in the West to awaken the minds of your
 brethren in this our motherland from their dreary lifelong slumber and
 make them recall to their minds the long-forgotten gospel of truth.
@@ -94,7 +94,7 @@ India all through the ages.
 
 Since the dawn of history, no missionary went out of India to propagate
 the Hindu doctrines and dogmas; but now a wonderful change is coming
-over us. Shri Bhagavân Krishna says, "Whenever virtue subsides and
+over us. Shri Bhagavān Krishna says, "Whenever virtue subsides and
 immorality prevails, then I come again and again to help the world."
 Religious researches disclose to us the fact that there is not a country
 possessing a good ethical code but has borrowed something of it from us,

@@ -46,7 +46,7 @@ I would rather be here this summer.
 Again, I am afraid my health is breaking down under constant work. I
 want some rest. We are so unused to these Western methods, especially
 the keeping to time. I will leave you to decide all these. The
-*Brahmavâdin* is going on here very satisfactorily. I have begun to
+*Brahmavādin* is going on here very satisfactorily. I have begun to
 write articles on Bhakti; also send them a monthly account of the work.
 Miss Müller wants to come to America. I do not know whether she will or
 not. Some friends here are publishing my Sunday lectures. I have sent

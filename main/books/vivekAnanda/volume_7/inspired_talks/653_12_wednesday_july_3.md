@@ -41,7 +41,7 @@ is the very soul of Vedanta. Dualists naturally tend to become
 intolerant, to think theirs as the only way. The Vaishnavas in India,
 who are dualists, are a most intolerant sect. Among the Shaivas, another
 dualistic sect, the story is told of a devotee by the name of
-Ghantâkarna or the Bell-eared, who was so devout a worshipper of Shiva
+Ghantākarna or the Bell-eared, who was so devout a worshipper of Shiva
 that he did not wish even to hear the name of any other deity; so he
 wore two bells tied to his ears in order to drown the sound of any voice
 uttering other Divine names. On account of his intense devotion to
@@ -144,7 +144,7 @@ deferred, it is the greater!
 Those who have attained sameness are said to be living in God. All
 hatred is killing the "Self by the self", therefore love is the law of
 life. To rise to this is to be perfect; but the more perfect we are,
-less work (so-called) can we do. The Sâttvika see and know that all is
+less work (so-called) can we do. The Sāttvika see and know that all is
 mere child's play and do not trouble themselves about anything.
 
 It is easy to strike a blow, but tremendously hard to stay the hand,

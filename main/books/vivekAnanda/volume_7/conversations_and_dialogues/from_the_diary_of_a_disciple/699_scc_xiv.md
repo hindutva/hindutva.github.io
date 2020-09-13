@@ -153,7 +153,7 @@ about the garden talking the while, and began to narrate to a disciple,
 Mahashaya lay fasting in his humbled tiled lodgings in Calcutta. Myself,
 Swami Turiyananda, and another went together and appeared at Nag
 Mahashaya's cottage. Seeing us he rose from his bed. We said, 'We shall
-have our Bhikshâ (food) here today.' At once Nag Mahashaya brought rice,
+have our Bhikshā (food) here today.' At once Nag Mahashaya brought rice,
 cooking pot, fuel, etc. from the bazaar and began to cook. We thought
 that we would eat and make Nag Mahashaya also eat. Cooking over, he gave
 the food to us; we set apart something for him and then sat down to eat.

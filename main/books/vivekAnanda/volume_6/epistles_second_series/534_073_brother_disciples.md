@@ -63,7 +63,7 @@ Every morning there should be a little reading from the scriptures,
 which Kali and others may superintend by turns. In the evening there
 should be another class, with a little practice in meditation and
 Sankirtanas etc. You may divide the work, and set apart one day for
-Yoga, a day for Bhakti, another for Jnâna, and so forth: It will be
+Yoga, a day for Bhakti, another for Jnāna, and so forth: It will be
 excellent if you fix a routine like this, so that outside people also
 may join in the evening classes. And every Sunday, from ten in the
 morning up till night, there should be a continuous succession of

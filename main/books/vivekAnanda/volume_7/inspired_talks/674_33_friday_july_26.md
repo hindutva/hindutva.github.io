@@ -12,9 +12,9 @@ title: 'RECORDED BY MISS S. E. WALDO
 
 ## RECORDED BY MISS S. E. WALDO (A DISCIPLE)
 
-FRIDAY, *July 26, 1895*. (*Brihadâranyakopanishad*.)
+FRIDAY, *July 26, 1895*. (*Brihadāranyakopanishad*.)
 
-Love all things only through and for the Self. Yâjnavalkya said to
+Love all things only through and for the Self. Yājnavalkya said to
 Maitreyi, his wife, "Through the Atman we know all things." The Atman
 can never be the object of knowledge, nor can the Knower be known. He
 who knows he is the Atman, he is law unto himself. He knows he is the

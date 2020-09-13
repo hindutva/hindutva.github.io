@@ -10,7 +10,7 @@ title: NIRVANASHATKAM, OR SIX STANZAS ON NIRVANA
 
 ## NIRVANASHATKAM, OR SIX STANZAS ON NIRVANA
 
-(Translation of a poem by Shankarâchârya.)
+(Translation of a poem by Shankarāchārya.)
 
 I am neither the mind, nor the intellect, nor the ego, nor the
 mind-stuff;  
@@ -21,7 +21,7 @@ I am Existence Absolute, Knowledge Absolute, Bliss Absolute —
 
 I am He, I am He. (Shivoham, Shivoham).
 
-I am neither the Prâna, nor the five vital airs;  
+I am neither the Prāna, nor the five vital airs;  
 I am neither the materials of the body, nor the five sheaths;  
 Neither am I the organs of action, nor object of the senses;  
 I am Existence Absolute, Knowledge Absolute, Bliss Absolute —

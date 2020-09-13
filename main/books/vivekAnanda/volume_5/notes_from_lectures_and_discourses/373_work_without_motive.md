@@ -11,7 +11,7 @@ title: WORK WITHOUT MOTIVE
 ## WORK WITHOUT MOTIVE
 
 At the forty-second meeting of the Ramakrishna Mission held at the
-premises No. 57 Râmkânta Bose Street, Baghbazar, Calcutta, on the 20th
+premises No. 57 Rāmkānta Bose Street, Baghbazar, Calcutta, on the 20th
 March, 1898, Swami Vivekananda gave an address on "Work without Motive",
 and spoke to the following effect:
 
@@ -20,14 +20,14 @@ controversy between two sects. One party considered the Vedic Yajnas and
 animal sacrifices and such like Karmas to constitute the whole of
 religion. The other preached that the killing of numberless horses and
 cattle cannot be called religion. The people belonging to the latter
-party were mostly Sannyâsins and followers of Jnâna. They believed that
+party were mostly Sannyāsins and followers of Jnāna. They believed that
 the giving up of all work and the gaining of the knowledge of the Self
 was the only path to Moksha By the preaching of His great doctrine of
 work without motive, the Author of the Gita set at rest the disputes of
 these two antagonistic sects.
 
 Many are of opinion that the Gita was not written at the time of the
-Mahâbhârata, but was subsequently added to it. This is not correct. The
+Mahābhārata, but was subsequently added to it. This is not correct. The
 special teachings of the Gita are to be found in every part of the
 Mahabharata, and if the Gita is to be expunged, as forming no part of
 it, every other portion of it which embodies the same teachings should
@@ -65,7 +65,7 @@ concentration, losing all consciousness of oneself the work that is done
 will be infinitely better, and this every one may have experienced in
 his own life. We perform many works subconsciously, such as the
 digestion of food etc., many others consciously, and others again by
-becoming immersed in Samâdhi as it were, when there is no consciousness
+becoming immersed in Samādhi as it were, when there is no consciousness
 of the smaller ego. If the painter, losing the consciousness of his ego,
 becomes completely immersed in his painting, he will be able to produce
 masterpieces. The good cook concentrates his whole self on the
@@ -87,7 +87,7 @@ been conquered, the force of evil would have triumphed over the force of
 good, and thus a great calamity would have fallen on the country. The
 government of the country would have been usurped by a body of proud
 unrighteous kings, to the great misfortune of the people. Similarly,
-Shri Krishna killed Kamsa, Jarâsandha, and others who were tyrants, but
+Shri Krishna killed Kamsa, Jarāsandha, and others who were tyrants, but
 not a single one of his deeds was done for himself. Every one of them
 was for the good of others. We are reading the Gita by candle-light, but
 numbers of insects are being burnt to death. Thus it is seen that some

@@ -20,19 +20,19 @@ CHAPTER I
 "He is the Soul of the Universe; He is Immortal; His is the Rulership;
 He is the All-knowing, the All-pervading, the Protector of the Universe,
 the Eternal Ruler. None else is there efficient to govern the world
-eternally. He who at the beginning of creation projected Brahmâ (i.e.
+eternally. He who at the beginning of creation projected Brahmā (i.e.
 the universal consciousness), and who delivered the Vedas unto him —
 seeking liberation I go for refuge unto that effulgent One, whose light
 turns the understanding towards the Âtman."
 
-Shvetâshvatara-Upanishad, VI. 17-18.
+Shvetāshvatara-Upanishad, VI. 17-18.
 
 DEFINITION OF BHAKTI
 
 Bhakti-Yoga is a real, genuine search after the Lord, a search
 beginning, continuing, and ending in love. One single moment of the
 madness of extreme love to God brings us eternal freedom. "Bhakti", says
-Nârada in his explanation of the Bhakti-aphorisms, "is intense love to
+Nārada in his explanation of the Bhakti-aphorisms, "is intense love to
 God"; "When a man gets it, he loves all, hates none; he becomes
 satisfied for ever"; "This love cannot be reduced to any earthly
 benefit", because so long as worldly desires last, that kind of love
@@ -41,9 +41,9 @@ these are intended for an object in view, while Bhakti is its own
 fruition, its own means and its own end."
 
 Bhakti has been the one constant theme of our sages. Apart from the
-special writers on Bhakti, such as Shândilya or Narada, the great
-commentators on the *Vyâsa-Sutras*, evidently advocates of knowledge
-(Jnâna), have also something very suggestive to say about love. Even
+special writers on Bhakti, such as Shāndilya or Narada, the great
+commentators on the *Vyāsa-Sutras*, evidently advocates of knowledge
+(Jnāna), have also something very suggestive to say about love. Even
 when the commentator is anxious to explain many, if not all, of the
 texts so as to make them import a sort of dry knowledge, the *Sutras*,
 in the chapter on worship especially, do not lend themselves to be
@@ -52,7 +52,7 @@ easily manipulated in that fashion.
 There is not really so much difference between knowledge (Jnana) and
 love (Bhakti) as people sometimes imagine. We shall see, as we go on,
 that in the end they converge and meet at the same point. So also is it
-with Râja-Yoga, which when pursued as a means to attain liberation, and
+with Rāja-Yoga, which when pursued as a means to attain liberation, and
 not (as unfortunately it frequently becomes in the hands of charlatans
 and mystery-mongers) as an instrument to hoodwink the unwary, leads us
 also to the same goal.
@@ -63,7 +63,7 @@ disadvantage is that in its lower forms it oftentimes degenerates into
 hideous fanaticism. The fanatical crew in Hinduism, or Mohammedanism, or
 Christianity, have always been almost exclusively recruited from these
 worshippers on the lower planes of Bhakti. That singleness of attachment
-(Nishthâ) to a loved object, without which no genuine love can grow, is
+(Nishthā) to a loved object, without which no genuine love can grow, is
 very often also the cause of the denunciation of everything else. All
 the weak and undeveloped minds in every religion or country have only
 one way of loving their own ideal, i.e. by hating every other ideal.
@@ -85,7 +85,7 @@ brotherhood.
 
 But this danger exists only in that stage of Bhakti which is called the
 *preparatory* (Gauni). When Bhakti has become ripe and has passed into
-that form which is called the *supreme* (Parâ), no more is there any
+that form which is called the *supreme* (Parā), no more is there any
 fear of these hideous manifestations of fanaticism; that soul which is
 overpowered by this higher form of Bhakti is too near the God of Love to
 become an instrument for the diffusion of hatred.
@@ -117,8 +117,8 @@ is inseparable.
 
 Bearing this in mind let us try to understand what the great Vedantic
 commentators have to say on the subject. In explaining the Sutra
-Âvrittirasakridupadeshât (Meditation is necessary, that having been
-often enjoined.), Bhagavân Shankara says, "Thus people say, 'He is
+Âvrittirasakridupadeshāt (Meditation is necessary, that having been
+often enjoined.), Bhagavān Shankara says, "Thus people say, 'He is
 devoted to the king, he is devoted to the Guru'; they say this of him
 who follows his Guru, and does so, having that following as the one end
 in view. Similarly they say, 'The loving wife meditates on her loving
@@ -157,19 +157,19 @@ Therefore it is said that, to whomsoever this remembering, which is of
 the same form as direct perception, is very dear, because it is dear to
 the Object of such memory perception, he is desired by the Supreme
 Atman, by him the Supreme Atman is attained. This constant remembrance
-is denoted by the word Bhakti." So says Bhagavân Râmânuja in his
-commentary on the Sutra Athâto Brahma-jijnâsâ (Hence follows a
+is denoted by the word Bhakti." So says Bhagavān Rāmānuja in his
+commentary on the Sutra Athāto Brahma-jijnāsā (Hence follows a
 dissertation on Brahman.).
 
-In commenting on the Sutra of Patanjali, Ishvara pranidhânâdvâ, i.e. "Or
-by the worship of the Supreme Lord" — Bhoja says, "Pranidhâna is that
+In commenting on the Sutra of Patanjali, Ishvara pranidhānādvā, i.e. "Or
+by the worship of the Supreme Lord" — Bhoja says, "Pranidhāna is that
 sort of Bhakti in which, without seeking results, such as
 sense-enjoyments etc., all works are dedicated to that Teacher of
-teachers." Bhagavan Vyâsa also, when commenting on the same, defines
+teachers." Bhagavan Vyāsa also, when commenting on the same, defines
 Pranidhana as "the form of Bhakti by which the mercy of the Supreme Lord
 comes to the Yogi, and blesses him by granting him his desires".
-According to Shândilya, "Bhakti is intense love to God." The best
-definition is, however, that given by the king of Bhaktas, Prahlâda:
+According to Shāndilya, "Bhakti is intense love to God." The best
+definition is, however, that given by the king of Bhaktas, Prahlāda:
 
 या प्रीतिरविवेकानां विषयेष्वनपायिनी।त्वामनुस्मरतः सा मे
 हृदयान्मापसर्पतु॥
@@ -178,14 +178,14 @@ definition is, however, that given by the king of Bhaktas, Prahlâda:
 the senses — as I keep meditating on Thee — may not that love slip away
 from my heart!" *Love*! For whom? For the Supreme Lord Ishvara. Love for
 any other being, however great cannot be Bhakti; for, as Ramanuja says
-in his *Shri Bhâshya*, quoting an ancient Âchârya, i.e. a great teacher:
+in his *Shri Bhāshya*, quoting an ancient Âchārya, i.e. a great teacher:
 
 आब्रह्मस्तम्बपर्यन्ताः जगदन्तर्व्यवस्थिताः। प्राणिनः
 कर्मजनितसंसारवशवर्तिनः॥  
 यतस्ततो न ते ध्याने ध्यानिनामुपकारकाः। अविद्यान्तर्गतास्सर्वे ते हि
 संसारगोचराः॥
 
-"From Brahmâ to a clump of grass, all things that live in the world are
+"From Brahmā to a clump of grass, all things that live in the world are
 slaves of birth and death caused by Karma; therefore they cannot be
 helpful as objects of meditation, because they are all in ignorance and
 subject to change." In commenting on the word Anurakti used by

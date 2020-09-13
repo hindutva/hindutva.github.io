@@ -14,10 +14,10 @@ CHAPTER VIII
 
 The next points to be considered are the worship of Pratikas or of
 things more or less satisfactory as substitutes for God, and the worship
-of Pratimâs or images. What is the worship of God through a Pratika? It
+of Pratimās or images. What is the worship of God through a Pratika? It
 is अब्रह्मणि ब्रह्मदृष्ट्याऽनुसन्धानम् — Joining the mind with devotion
-to that which is not Brahman, taking it to be Brahman" — says Bhagavân
-Râmânuja. "Worship the mind as Brahman this is internal; and the Âkâsha
+to that which is not Brahman, taking it to be Brahman" — says Bhagavān
+Rāmānuja. "Worship the mind as Brahman this is internal; and the Âkāsha
 as Brahman, this is with regard to the Devas", says Shankara. The mind
 is an internal Pratika, the Akasha is an external one, and both have to
 be worshipped as substitutes of God. He continues, "Similarly — 'the Sun
@@ -27,7 +27,7 @@ word Pratika means going towards; and worshipping a Pratika is
 worshipping something as a substitute which is, in some one or more
 respects, like Brahman more and more, but is not Brahman. Along with the
 Pratikas mentioned in the Shrutis there are various others to be found
-in the Purânas and the Tantras. In this kind of Pratika-worship may be
+in the Purānas and the Tantras. In this kind of Pratika-worship may be
 included all the various forms of Pitri-worship and Deva-worship.
 
 Now worshipping Ishvara and Him alone is Bhakti; the worship of anything
@@ -39,7 +39,7 @@ rise to Bhakti nor lead to Mukti. One thing, therefore, has to be
 carefully borne in mind. If, as it may happen in some cases, the highly
 philosophic ideal, the supreme Brahman, is dragged down by
 Pratika-worship to the level of the Pratika, and the Pratika itself is
-taken to be the Atman of the worshipper or his Antaryâmin (Inner Ruler),
+taken to be the Atman of the worshipper or his Antaryāmin (Inner Ruler),
 the worshipper gets entirely misled, as no Pratika can really be the
 Atman of the worshipper.
 
@@ -51,7 +51,7 @@ worship is positively beneficial; nay, it is absolutely necessary for
 all mankind until they have all got beyond the primary or preparatory
 state of the mind in regard to worship. When, therefore, any gods or
 other beings are worshipped in and for themselves, such worship is only
-a ritualistic Karma; and as a Vidyâ (science) it gives us only the fruit
+a ritualistic Karma; and as a Vidyā (science) it gives us only the fruit
 belonging to that particular Vidya; but when the Devas or any other
 beings are looked upon as Brahman and worshipped, the result obtained is
 the same as by the worshipping of Ishvara. This explains how, in many
@@ -60,10 +60,10 @@ other extraordinary being is taken up and lifted, as it were, out of his
 own nature and idealised into Brahman, and is then worshipped. Says the
 Advaitin, "Is not everything Brahman when the name and the form have
 been removed from it?" "Is not He, the Lord, the innermost Self of every
-one?" says the Vishishtâdvaitin. फलम् आदित्याद्युपासनेषु ब्रह्मैव
+one?" says the Vishishtādvaitin. फलम् आदित्याद्युपासनेषु ब्रह्मैव
 दास्यति सर्वाध्यक्षत्वात् — "The fruition of even the worship of Adityas
 etc. Brahman Himself bestows, because He is the Ruler of all." Says
-Shankara in his *Brahma-Sutra-Bhâsya* — ईदृशं चात्र ब्रह्मण उपास्यत्वं
+Shankara in his *Brahma-Sutra-Bhāsya* — ईदृशं चात्र ब्रह्मण उपास्यत्वं
 यतः प्रतीकेषु तत्दृष्ट्याध्यारोपणं प्रतिमादिषु इव विष्ण्वादीनाम्। "Here
 in this way does Brahman become the object of worship, because He, as
 Brahman, is superimposed on the Pratikas, just as Vishnu etc. are

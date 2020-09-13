@@ -32,7 +32,7 @@ significant, showing the manner in which her heart was moved: "I ask not
 for wealth; I ask not for position; I ask not for salvation; place me in
 a hundred hells if it be Thy wish, but let me continue to regard Thee as
 my love." The early language abounds in beautiful prayers of this woman.
-When her end came, she entered into Samâdhi on the banks of a river. She
+When her end came, she entered into Samādhi on the banks of a river. She
 composed a beautiful song, in which she stated that she was going to
 meet her Beloved.
 

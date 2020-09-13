@@ -15,7 +15,7 @@ title: III
 (From the Diary of a Disciple)
 
 (The disciple is Sharatchandra Chakravarty, who published his records in
-a Bengali book, *Swami-Shishya-Samvâda*, in two parts. The present
+a Bengali book, *Swami-Shishya-Samvāda*, in two parts. The present
 series of "Conversations and Dialogues" is a revised translation from
 this book. Five dialogues of this series have already appeared in the
 *Complete Works*, [Vol.
@@ -42,7 +42,7 @@ dignified serious mood, was giving out to them calmly his own well
 argued conclusions about those questions.
 
 In the discussion with the Pundits Swamiji represented the side of the
-Siddhânta or conclusions to be established, while the Pundits
+Siddhānta or conclusions to be established, while the Pundits
 represented that of the Purvapaksha or objections to be raised. The
 disciple remembers that, while arguing, Swamiji wrongly used in one
 place the word Asti instead of Svasti, which made the Pundits laugh out.
@@ -55,8 +55,8 @@ their greetings to Swamiji.
 
 After the Pundits had left, the disciple learnt from Swamiji that these
 Pundits who took the side of the Purvapaksha were well versed in the
-Purva-Mimâmsâ Shâstras, Swamiji advocated the philosophy of the
-Uttara-Mimâmsâ or Vedanta and proved to them the superiority of the path
+Purva-Mimāmsā Shāstras, Swamiji advocated the philosophy of the
+Uttara-Mimāmsā or Vedanta and proved to them the superiority of the path
 of knowledge, and they were obliged to accept his conclusions.
 
 About the way the Pundits laughed at Swamiji, picking up one grammatical
@@ -102,10 +102,10 @@ well in you.' To which I would reply, 'We are children of bliss, why
 should we look morose and sombre?' But I doubt if they could rightly
 catch the drift of my words."
 
-That day Swamiji spoke many things about Bhâva Samâdhi and Nirvikalpa
+That day Swamiji spoke many things about Bhāva Samādhi and Nirvikalpa
 Samadhi as well. These are produced below as far as possible:
 
-Suppose a man is cultivating that type of devotion to God which Hanumân
+Suppose a man is cultivating that type of devotion to God which Hanumān
 represents. The more intense the attitude becomes, the more will the
 pose and demeanour of that aspirant, nay even his physical
 configuration, be cast in that would. It is in this way that
@@ -156,7 +156,7 @@ century past has India produced so great, so wonderful, a teacher of
 religious synthesis."
 
 A brother-disciple of Swamiji at that time asked him, "Why did you not
-publicly preach Shri Ramakrishna as an Avatâra in the West?"
+publicly preach Shri Ramakrishna as an Avatāra in the West?"
 
 Swamiji: They make much flourish and fuss over their science and
 philosophy. Hence, unless you first knock to pieces their intellectual

@@ -11,13 +11,13 @@ title: THE SANNYASIN AND THE HOUSEHOLDER
 ## THE SANNYASIN AND THE HOUSEHOLDER
 
 The men of the world should have no voice in the affairs of the
-Sannyâsins. The Sannyasin should have nothing to do with the rich, his
+Sannyāsins. The Sannyasin should have nothing to do with the rich, his
 duty is with the poor. He should treat the poor with loving care and
 serve them joyfully with all his might. To pay respects to the rich and
 hang on them for support has been the bane of all the Sannyasin
 communities of our country. A true Sannyasin should scrupulously avoid
 that. Such conduct becomes a public woman rather than one who professes
-to have renounced the world. How should a man immersed in Kâma-Kânchana
+to have renounced the world. How should a man immersed in Kāma-Kānchana
 (lust and greed) become a devotee of one whose central ideal is the
 renunciation of Kama-Kanchana? Shri Ramakrishna wept and prayed to the
 Divine Mother to send him such a one to talk with as would not have in
@@ -26,7 +26,7 @@ burn when I talk with the worldly-minded." He also used to say that he
 could not even bear the touch of the worldly-minded and the impure. That
 King of Sannyasins (Shri Ramakrishna) can never be preached by men of
 the world. The latter can never be perfectly sincere; for he cannot but
-have some selfish motives to serve. If Bhagavân (God) incarnates Himself
+have some selfish motives to serve. If Bhagavān (God) incarnates Himself
 as a householder, I can never believe Him to be sincere. When a
 householder takes the position of the leader of a religious sect, he
 begins to serve his own interests in the name of principle, hiding the
@@ -51,9 +51,9 @@ begging excursion would be a great help to a Sannyasin at a time when
 the householders strictly obeyed the injunctions of Manu and other
 law-givers, by setting apart every day a portion of their meal for
 ascetic guests. Nowadays things have changed considerably, especially,
-as in Bengal, where no Mâdhukari[1](#fn1) system prevails. Here it would
+as in Bengal, where no Mādhukari[1](#fn1) system prevails. Here it would
 be mere waste of energy to try to live on Madhukari, and you would
-profit nothing by it. The injunction of Bhikshâ (begging) is a means to
+profit nothing by it. The injunction of Bhikshā (begging) is a means to
 serve the above two ends, which will not be served by that way now. It
 does not, therefore, go against the principle of renunciation under such
 circumstances if a Sannyasin provides for mere necessaries of life and

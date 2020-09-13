@@ -43,7 +43,7 @@ in the past by crowds, and the process is still going on.
 
 "In my own opinion, this statement not only applies to aboriginal
 tribes, to outlying nations, and to almost all our conquerors before the
-Mohammedan conquest, but also in the Purânas. I hold that they have been
+Mohammedan conquest, but also in the Purānas. I hold that they have been
 aliens thus adopted.
 
 "Ceremonies of expiation are no doubt suitable in the case of willing
@@ -60,7 +60,7 @@ castes, of course. And new people will make theirs. You will remember,"
 he added, "that this has already been done in the case of Vaishnavism.
 Converts from different castes and aliens were all able to combine under
 that flag and form a caste by themselves — and a very respectable one
-too. From Râmânuja down to Chaitanya of Bengal, all great Vaishnava
+too. From Rāmānuja down to Chaitanya of Bengal, all great Vaishnava
 Teachers have done the same."
 
 "And where should these new people expect to marry?" I asked.

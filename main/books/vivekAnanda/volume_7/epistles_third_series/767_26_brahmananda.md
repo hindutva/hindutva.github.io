@@ -24,7 +24,7 @@ DEAR AND BELOVED (Swami Brahmananda.),
 . . . Well, do you think there is any religion left in India! The paths
 of knowledge, devotion, and Yoga — all have gone, and now there remains
 only that of Don't touchism — "Don't touch me! Don't touch me!" The
-whole world is impure, and I alone am pure. Lucid Brahmajnâna! Bravo!
+whole world is impure, and I alone am pure. Lucid Brahmajnāna! Bravo!
 Great God! Nowadays Brahman is neither in the recesses of the heart, nor
 in the highest heaven, nor in all beings — now He is in the cooking-pot.
 Formerly the characteristic of a noble-minded man was

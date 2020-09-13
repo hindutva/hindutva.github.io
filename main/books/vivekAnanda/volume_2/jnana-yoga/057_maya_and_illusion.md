@@ -14,7 +14,7 @@ CHAPTER III
 
 (*Delivered in London*)
 
-Almost all of you have heard of the word Mâyâ. Generally it is used,
+Almost all of you have heard of the word Māyā. Generally it is used,
 though incorrectly, to denote illusion, or delusion, or some such thing.
 But the theory of Maya forms one of the pillars upon which the Vedanta
 rests; it is, therefore, necessary that it should be properly
@@ -36,11 +36,11 @@ later on, in one of the latest Upanishads, we find the word Maya
 reappearing, but this time, a transformation has taken place in it, and
 a mass of new meaning has attached itself to the word. Theories had been
 propounded and repeated, others had been taken up, until at last the
-idea of Maya became fixed. We read in the Shvetâshvatara Upanishad,
+idea of Maya became fixed. We read in the Shvetāshvatara Upanishad,
 "Know nature to be Maya and the Ruler of this Maya is the Lord Himself."
 Coming to our philosophers, we find that this word Maya has been
 manipulated in various fashions, until we come to the great
-Shankarâchârya. The theory of Maya was manipulated a little by the
+Shankarāchārya. The theory of Maya was manipulated a little by the
 Buddhists too, but in the hands of the Buddhists it became very much
 like what is called Idealism, and that is the meaning that is now
 generally given to the word Maya. When the Hindu says the world is Maya,
@@ -66,7 +66,7 @@ it was in principle. When they tried to demonstrate the workings of that
 principle, they made many mistakes. The theory of the all-pervading life
 principle, of which all life in this universe is but a differing
 manifestation, was understood in Vedic times; it is found in the
-Brâhmanas. There is a long hymn in the Samhitâs in praise of Prâna of
+Brāhmanas. There is a long hymn in the Samhitās in praise of Prāna of
 which all life is but a manifestation. By the by, it may interest some
 of you to know that there are theories in the Vedic philosophy about the
 origin of life on this earth very similar to those which have been

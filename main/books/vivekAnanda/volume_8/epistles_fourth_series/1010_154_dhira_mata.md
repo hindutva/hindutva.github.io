@@ -47,7 +47,7 @@ need not break my health again by that sort of work.
 It is becoming clearer to me that I lay down all the concerns of the
 Math and for a time go back to my mother. She has suffered much through
 me. I must try to smooth her last days. Do you know, this was just
-exactly what the great Shankarâchârya himself had to do! He had to go
+exactly what the great Shankarāchārya himself had to do! He had to go
 back to his mother in the last few days of her life! I accept it, I am
 resigned. I am calmer than ever. The only difficulty is the financial
 part. Well, the Indian people owe something. I will try Madras and a few
@@ -68,7 +68,7 @@ vividly now. Of course you were the one to whom She showed it first. I
 would not believe it then. But then, it is now shown that — leaving my
 mother was a great renunciation in 1884 — it is *a greater renunciation
 to go back to my mother now*. Probably Mother wants me to undergo the
-same that She made the great Âchârya undergo in old days. Is it? I am
+same that She made the great Âchārya undergo in old days. Is it? I am
 surer of your guidance than of my own. Joe and Margot are great souls,
 but to you Mother is now sending the light for my guidance. Do you see
 light? What do you advise? At least do not go out of this country

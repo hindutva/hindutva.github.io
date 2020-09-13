@@ -31,7 +31,7 @@ self-consciousness, and blissfulness.
 
 This state in the same way cannot be two. It must only be a unit, and
 all fictitious distinctions of I, thou, etc., all the different
-variations must vanish, as they belong to the state of change or Mâyâ.
+variations must vanish, as they belong to the state of change or Māyā.
 It may be said that this state of change has come now upon the Self,
 showing that, before this, it had the state of rest and liberty; that at
 present the state of differentiation is the only real state, and the

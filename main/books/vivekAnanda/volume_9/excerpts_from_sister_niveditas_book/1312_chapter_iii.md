@@ -25,7 +25,7 @@ from the woman's need of protection, in combination. And he traced out
 the relation of the whole subject to the philosophy of the Absolute.
 
 Another morning he began by observing that as there were four main
-castes — Brahmin, Kshatriya, Bâniyâ \[Vaishya\], Shudra — so there were
+castes — Brahmin, Kshatriya, Bāniyā \[Vaishya\], Shudra — so there were
 four great national functions: the religious or priestly, fulfilled by
 the Hindus; the military, by the Roman Empire; the mercantile, by
 England today; and the democratic, by America in the future. And here he
@@ -73,7 +73,7 @@ countries of Europe — land of religion and of art; alike of imperial
 organization and of Mazzini; mother of ideas, of culture and of freedom!
 
 One day it was Shivaji and the Mahrattas and the year's wandering as a
-Sannyâsin that won him home to Raigarh. "And to this day", said the
+Sannyāsin that won him home to Raigarh. "And to this day", said the
 Swami, "authority in India dreads the Sannyasin, lest he conceals
 beneath his yellow garb another Shivaji".
 
@@ -89,12 +89,12 @@ Sometimes the Swami would deal with the rift between Brahmins and
 Kshatriyas, painting the whole history of India as a struggle between
 the two and showing that the latter had always embodied the rising,
 fetter-destroying impulses of the nation. He could give excellent reason
-too for the faith that was in him that the Kâyasthas of modern Bengal
+too for the faith that was in him that the Kāyasthas of modern Bengal
 represented the pre-Mauryan Kshatriyas. He would portray the two
 opposing types of culture: the one, classical, intensive and saturated
 with an ever-deepening sense of tradition and custom; the other,
 defiant, impulsive and liberal in its outlook. It was part of a
-deep-lying law of the historic development that Râma, Krishna and Buddha
+deep-lying law of the historic development that Rāma, Krishna and Buddha
 had all arisen in the kingly, and not in the priestly caste. And in this
 paradoxical moment Buddhism was reduced to a caste-smashing formula — "a
 religion invented by the Kshatriyas" as a crushing rejoinder to
@@ -116,7 +116,7 @@ And he came into my room when I was a boy and I fell at his feet! For I
 knew it was the Lord Himself!
 
 Many times he spoke of Buddha in this fashion, sometimes at Belur and
-sometimes afterwards. And once he told us the story of Ambâpâli, the
+sometimes afterwards. And once he told us the story of Ambāpāli, the
 beautiful courtesan who feasted him. . . .
 
 National feeling did not have it all its own way. For one morning when
@@ -141,7 +141,7 @@ without seeking personal expression for their love, and their high
 potentiality.
 
 Another day coming at sunrise when the snows could be seen,
-dawn-lighted, from the garden, it was Shiva and Umâ on whom he dwelt —
+dawn-lighted, from the garden, it was Shiva and Umā on whom he dwelt —
 and that was Shiva up there, the white snow-peaks, and the light that
 fell upon Him was the Mother of the World! For a thought on which at
 this time he was dwelling much was that God is the Universe — not within
@@ -160,16 +160,16 @@ highest realization to which life and the world are merely play. Long
 after, we learned how Shri Ramakrishna had spoken of him in his boyhood
 as "my Shuka". And never can I forget the look, as of one gazing far
 into depths of joy, with which he once stood and quoted the words of
-Shiva in praise of the deep spiritual significance of the Bhagavad-Gitâ
+Shiva in praise of the deep spiritual significance of the Bhagavad-Gitā
 and of the greatness of Shuka: "I know the real meaning of the teachings
-of the Bhagavad-Gita, and Shuka knows, and *perhaps* Vyâsa knows — a
+of the Bhagavad-Gita, and Shuka knows, and *perhaps* Vyāsa knows — a
 little!"
 
 Another day in Almora the Swami talked of the great humanizing lives
 that had arisen in Bengal, at the long inrolling wash of the first wave
 of modern consciousness on the ancient shores of Hindu culture. Of Ram
 Mohan Roy we had already heard from him at Naini Tal. And now of the
-Pundit Vidyâsâgar he exclaimed, "There is not a man of my age in
+Pundit Vidyāsāgar he exclaimed, "There is not a man of my age in
 northern India on whom his shadow has not fallen!" It was a great joy to
 him to remember that these men and Shri Ramakrishna had all been born
 within a few miles of each other.
@@ -185,11 +185,11 @@ faster nor slower for this information, and presently the messenger
 contrived to express a discreet astonishment, whereupon his master
 turned on him angrily. "Wretch!" he said. "Am I to abandon the gait of
 my ancestors because a few sticks happen to be burning?" And Vidyasagar,
-walking behind, determined to stick to the Châdar, Dhoti and sandals,
+walking behind, determined to stick to the Chādar, Dhoti and sandals,
 not even adopting coat and slippers.
 
 The picture of Vidyasagar going into retreat for a month for the study
-of the Shâstras, when his mother had suggested to him the remarriage of
+of the Shāstras, when his mother had suggested to him the remarriage of
 child-widows, was very forcible. "He came out of his retirement of
 opinion that they were *not* against such remarriage, and he obtained
 the signatures of the pundits that they agreed in this opinion. Then the
@@ -388,9 +388,9 @@ religious teachers had been fortunate enough to have "enemies as well as
 friends", so that their historical careers were beyond dispute. As for
 Krishna, he was the most shadowy of all. A poet, a cowherd, a great
 ruler, a warrior and a sage had all perhaps been merged in one beautiful
-figure holding the Gitâ in his hand.
+figure holding the Gitā in his hand.
 
-But today Krishna was "the most perfect of the Avatâras". And a
+But today Krishna was "the most perfect of the Avatāras". And a
 wonderful picture followed of the charioteer who reined in his horses
 while he surveyed the field of battle and in one brief glance noted the
 disposition of the forces, at the same moment that he commenced to utter
@@ -399,7 +399,7 @@ to his royal pupil the deep spiritual truths of the Gita.
 And indeed as we went through the countrysides of northern India this
 summer, we had many chances of noting how deep this Krishna myth had set
 its mark upon the people. The songs that dancers chanted as they danced
-in the roadside hamlets were all of Râdhâ and Krishna. And the Swami was
+in the roadside hamlets were all of Rādhā and Krishna. And the Swami was
 fond of a statement, as to which we, of course, could have no opinion,
 that the Krishna-worshippers of India had exhausted the possibilities of
 the romantic motive in lyric poetry. . . .

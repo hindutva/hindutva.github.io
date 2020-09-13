@@ -10,7 +10,7 @@ title: 'SANNYASA: ITS IDEAL AND PRACTICE'
 
 ## SANNYASA: ITS IDEAL AND PRACTICE
 
-A parting Address was given to Swamiji by the junior Sannyâsins of the
+A parting Address was given to Swamiji by the junior Sannyāsins of the
 Math (Belur), on the eve of his leaving for the West for the second
 time. The following is the substance of Swamiji's reply as entered in
 the Math Diary on 19th June 1899:
@@ -62,7 +62,7 @@ must try to combine in your life immense idealism with immense
 practicality. You must be prepared to go into deep meditation now, and
 the next moment you must be ready to go and cultivate these fields
 (Swamiji said, pointing to the meadows of the Math). You must be
-prepared to explain the difficult intricacies of the Shâstras now, and
+prepared to explain the difficult intricacies of the Shāstras now, and
 the next moment to go and sell the produce of the fields in the market.
 You must be prepared for all menial services, not only here, but
 elsewhere also.

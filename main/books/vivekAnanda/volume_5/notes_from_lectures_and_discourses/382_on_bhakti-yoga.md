@@ -33,7 +33,7 @@ books, that you may have stuffed into your brain, will matter much —
 only what you *are* and what you have *realised*.
 
 The Personal God is the same Absolute looked at through the haze of
-Mâyâ. When we approach Him with the five senses, we can see Him only as
+Māyā. When we approach Him with the five senses, we can see Him only as
 the Personal God. The idea is that the Self cannot be objectified. How
 can the Knower know Itself ? But It can cast a shadow, as it were, if
 that can be called objectification. So the highest form of that shadow,
@@ -43,7 +43,7 @@ that Self. And out of that struggle has come this phenomenal universe
 and what we call matter, and so on. But these are very weak attempts,
 and the highest objectification of the Self possible to us is the
 Personal God. This objectification is an attempt to reveal our own
-nature. According to the Sânkhya, nature is showing all these
+nature. According to the Sānkhya, nature is showing all these
 experiences to the soul, and when it has got real experience it will
 know its own nature. According to the Advaita Vedantist, the soul is
 struggling to reveal itself. After long struggle, it finds that the
@@ -105,9 +105,9 @@ secular knowledge, as it opens the eyes of human beings towards that
 spiritual knowledge; the next is the saving of life; and the fourth is
 the gift of food.
 
-Even if the body goes in practicing Sâdhanâs (austerities for
+Even if the body goes in practicing Sādhanās (austerities for
 realisation), let it go; what of that? Realisation will come in the
-fullness of time, by living constantly in the company of Sâdhus (holy
+fullness of time, by living constantly in the company of Sādhus (holy
 men). A time comes when one understands that to serve a man even by
 preparing a Chhilam (earthen pipe) of tobacco is far greater than
 millions of meditations. He who can properly prepare a Chhilam of
@@ -116,7 +116,7 @@ tobacco can also properly meditate.
 Gods are nothing but highly developed dead men. We can get help from
 them.
 
-Anyone and everyone cannot be an Âchârya (teacher of mankind); but many
+Anyone and everyone cannot be an Âchārya (teacher of mankind); but many
 may become Mukta (liberated). The whole world seems like a dream to the
 liberated, but the Acharya has to take up his stand between the two
 states. He must have the knowledge that the world is true, or else why
@@ -140,7 +140,7 @@ intense suffering. He is abnormal.
 In every sphere of life we find that it is the person within that
 triumphs, and that personality is the secret of all success.
 
-Nowhere is seen such sublime unfoldment of feeling as in Bhagavân Shri
+Nowhere is seen such sublime unfoldment of feeling as in Bhagavān Shri
 Krishna Chaitanya, the Prophet of Nadia.
 
 Shri Ramakrishna is a force. You should not think that his doctrine is

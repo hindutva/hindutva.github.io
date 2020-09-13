@@ -11,7 +11,7 @@ title: THE NEED OF SYMBOLS
 ## THE NEED OF SYMBOLS
 
 Bhakti is divided into two portions. One is called Vaidhi, formal or
-ceremonial; the other portion is called Mukhyâ, supreme. The word Bhakti
+ceremonial; the other portion is called Mukhyā, supreme. The word Bhakti
 covers all the ground between the lowest form of worship and the highest
 form of life. All the worship that you have seen in any country in the
 world, or in any religion, is regulated by love. There is a good deal

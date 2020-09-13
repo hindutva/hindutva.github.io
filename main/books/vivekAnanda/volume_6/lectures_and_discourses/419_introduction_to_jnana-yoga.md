@@ -67,7 +67,7 @@ Ego, or personal self, the "I", is the result of these impressions. This
 itself no reality.
 
 The mind-stuff is a very fine material instrument used for taking up the
-Prâna. When a man dies, the body dies; but a little bit of the mind, the
+Prāna. When a man dies, the body dies; but a little bit of the mind, the
 seed, is left when all else is shattered; and this is the seed of the
 new body called by St. Paul "the spiritual body". This theory of the
 materiality of the mind accords with all modern theories. The idiot is

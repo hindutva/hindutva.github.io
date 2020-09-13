@@ -14,7 +14,7 @@ Nivedita's Book](excerpts_from_sister_niveditas_book_contents.htm) /
 
 AT NAINI TAL AND ALMORA
 
-PERSONS: The Swami Vivekananda, Gurubhâis, and a party of Europeans and
+PERSONS: The Swami Vivekananda, Gurubhāis, and a party of Europeans and
 disciples, amongst whom were Dhira Mata, the "Steady Mother"; one whose
 name was Jaya; and Nivedita.
 
@@ -30,7 +30,7 @@ Naini Tal was made beautiful by three things — the Master's pleasure in
 introducing to us his disciple the Raja of Khetri; the dancing girls who
 met us and asked us where to find him, and were received by him in spite
 of the remonstrances of others; and by the Mohammedan gentleman who
-said, "Swamiji, if in after-times any claim you as an Avatâra, an
+said, "Swamiji, if in after-times any claim you as an Avatāra, an
 especial incarnation of the Deity — remember that I, a Mohammedan, am
 the first!"
 

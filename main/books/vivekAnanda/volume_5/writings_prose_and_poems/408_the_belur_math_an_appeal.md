@@ -13,7 +13,7 @@ title: 'THE BELUR MATH: AN APPEAL'
 The success which attended the labours of the disciples of Shri
 Ramakrishna Paramahamsa in diffusing the principles of Hindu religion
 and obtaining some respect for our much abused faith in the West, gave
-rise to the hope of training a number of young Sannyâsins to carry on
+rise to the hope of training a number of young Sannyāsins to carry on
 the propaganda, both in and out of India. And an attempt is being made
 to educate a number of young men according to the Vedic principle of
 students living in touch with the Guru.

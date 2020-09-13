@@ -17,9 +17,9 @@ CHAPTER II
 तपः स्वाध्यायेश्वरप्रणिधानानि क्रियायोगः ॥१॥
 
 1\. Mortification, study, and surrendering fruits of work to God are
-called Kriyâ-yoga.
+called Kriyā-yoga.
 
-Those Samâdhis with which we ended our last chapter are very difficult
+Those Samādhis with which we ended our last chapter are very difficult
 to attain; so we must take them up slowly. The first step, the
 preliminary step, is called Kriya-yoga. Literally this means work,
 working towards Yoga. The organs are the horses, the mind is the rein,
@@ -38,7 +38,7 @@ but study of those works which teach the liberation of the Soul. Then
 again this study does not mean controversial studies at all. The Yogi is
 supposed to have finished his period of controversy. He has had enough
 of that, and has become satisfied. He only studies to intensify his
-convictions. Vâda and Siddhânta — these are the two sorts of scriptural
+convictions. Vāda and Siddhānta — these are the two sorts of scriptural
 knowledge — Vada (the argumentative) and Siddhanta (the decisive). When
 a man is entirely ignorant he takes up the first of these, the
 argumentative fighting, and reasoning pro and con; and when he has
@@ -47,7 +47,7 @@ conclusion. Simply arriving at this conclusion will not do. It must be
 intensified. Books are infinite in number, and time is short; therefore
 the secret of knowledge is to take what is essential. Take that and try
 to live up to it. There is an old Indian legend that if you place a cup
-of milk and water before a Râja-Hamsa (swan), he will take all the milk
+of milk and water before a Rāja-Hamsa (swan), he will take all the milk
 and leave the water. In that way we should take what is of value in
 knowledge, and leave the dross. Intellectual gymnastics are necessary at
 first. We must not go blindly into anything. The Yogi has passed the
@@ -100,7 +100,7 @@ Ignorance is the cause of egoism, attachment, aversion, and clinging to
 life. These impressions exist in different states. They are sometimes
 dormant. You often hear the expression "innocent as a baby," yet in the
 baby may be the state of a demon or of a god, which will come out by
-degrees. In the Yogi, these impressions, the Samskâras left by past
+degrees. In the Yogi, these impressions, the Samskāras left by past
 actions, are attenuated, that is, exist in a very fine state, and he can
 control them, and not allow them to become manifest. "Overpowered" means
 that sometimes one set of impressions is held down for a while by those
@@ -253,7 +253,7 @@ causal state.
 Samskaras are the subtle impressions that manifest themselves into gross
 forms later on. How are these fine Samskaras to be controlled? By
 resolving the effect into its cause. When the Chitta, which is an
-effect, is resolved into its cause, Asmitâ or Egoism, then only, the
+effect, is resolved into its cause, Asmitā or Egoism, then only, the
 fine impressions die along with it. Meditation cannot destroy these.
 
 ध्यानहेयास्तद्वृत्तयः ॥११॥
@@ -328,7 +328,7 @@ without the help of the nervous system. When the soul is acting through
 these channels, we say a man is living, and when these cease to work, a
 man is said to be dead. But when a man is able to act either with or
 without these channels, birth and death will have no meaning for him.
-All the bodies in the universe are made up of Tanmâtras, their
+All the bodies in the universe are made up of Tanmātras, their
 difference lies in the arrangement of the latter. If you are the
 arranger, you can arrange a body in one way or another. Who makes up
 this body but you? Who eats the food? If another ate the food for you,
@@ -392,7 +392,7 @@ that even the love of husbands and wives, and children and friends,
 slowly decays. Decadence seizes everything in this life. It is only when
 everything, even love, fails, that, with a flash, man finds out how
 vain, how dream-like is this world. Then he catches a glimpse of
-Vairâgya (renunciation), catches a glimpse of the Beyond. It is only by
+Vairāgya (renunciation), catches a glimpse of the Beyond. It is only by
 giving up this world that the other comes; never through holding on to
 this one. Never yet was there a great soul who had not to reject
 sense-pleasures and enjoyments to acquire his greatness. The cause of
@@ -461,7 +461,7 @@ Infinite Being, without birth or death, established in its own glory. It
 appears to have become so degenerate that if you approach to tell it,
 "You are not a pig," it begins to squeal and bite.
 
-Thus is it with us all in this Mâyâ, this dream world, where it is all
+Thus is it with us all in this Māyā, this dream world, where it is all
 misery, weeping and crying, where a few golden balls are rolled, and the
 world scrambles after them. You were never bound by laws, nature never
 had a bond for you. That is what the Yogi tells you. Have patience to
@@ -486,7 +486,7 @@ different experiences, but let us never forget the ideal.
 19\. The states of the qualities are the defined, the undefined, the
 indicated only, and the signless.
 
-The system of Yoga is built entirely on the philosophy of the Sânkhyas,
+The system of Yoga is built entirely on the philosophy of the Sānkhyas,
 as I told you before, and here again I shall remind you of the cosmology
 of the Sankhya philosophy. According to the Sankhyas, nature is both the
 material and the efficient cause of the universe. In nature there are
@@ -798,8 +798,8 @@ what remains is to practice the method of reaching it.
 
 यम-नियमासन-प्राणायाम-प्रत्याहार-धारणा-ध्यान-समाधयोऽष्टावङ्गानि ॥२९॥
 
-29\. Yama, Niyama, Âsana, Prânâyâama, Pratyâhâra, Dhâranâ, Dhyâna, and
-Samâdhi are the eight limbs of Yoga.
+29\. Yama, Niyama, Âsana, Prānāyāama, Pratyāhāra, Dhāranā, Dhyāna, and
+Samādhi are the eight limbs of Yoga.
 
 अहिंसा-सत्यास्तेय-ब्रह्मचर्यापरिग्रहा यमाः ॥३०॥
 
@@ -946,7 +946,7 @@ mind becomes concentrated and cheerful. The first sign that you are
 becoming religious is that you are becoming cheerful. When a man is
 gloomy, that may be dyspepsia, but it is not religion. A pleasurable
 feeling is the nature of the Sattva. Everything is pleasurable to the
-Sâttvika man, and when this comes, know that you are progressing in
+Sāttvika man, and when this comes, know that you are progressing in
 Yoga. All pain is caused by Tamas, so you must get rid of that;
 moroseness is one of the Exults of Tamas. The strong, the well knit, the
 young, the healthy, the daring alone are fit to be Yogis. To the Yogi
@@ -1042,7 +1042,7 @@ lungs. These, again, are varied by place and time. By place is meant
 that the Prana is held to some particular part of the body. By time is
 meant how long the Prana should be confined to a certain place, and so
 we are told how many seconds to keep one motion, and how many seconds to
-keep another. The result of this Pranayama is Udghâta, awakening the
+keep another. The result of this Pranayama is Udghāta, awakening the
 Kundalini.
 
 बाह्याभ्यन्तरविषयाक्षेपी चतुर्थः ॥५१॥

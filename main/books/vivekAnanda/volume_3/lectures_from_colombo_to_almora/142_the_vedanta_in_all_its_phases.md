@@ -31,14 +31,14 @@ plane that has ever been vouchsafed to man.
 From this ocean of the Vedanta, waves of light from time to time have
 been going Westward and Eastward. In the days of yore it travelled
 Westward and gave its impetus to the mind of the Greeks, either in
-Athens, or in Alexandria, or in Antioch. The Sânkhya system must clearly
+Athens, or in Alexandria, or in Antioch. The Sānkhya system must clearly
 have made its mark on the minds of the ancient Greeks; and the Sankhya
 and all other systems in India hail that one authority, the Upanishads,
 the Vedanta. In India, too, in spite of all these jarring sects that we
 see today and all those that have been in the past, the one authority,
 the basis of all these systems, has yet been the Upanishads, the
 Vedanta. Whether you are a dualist, or a qualified monist, an Advaitist,
-or a Vishishtâdvaitist, a Shuddhâdvaitist, or any other Advaitist, or
+or a Vishishtādvaitist, a Shuddhādvaitist, or any other Advaitist, or
 Dvaitist, or whatever you may call yourself, there stand behind you as
 authority, your Shastras, your scriptures, the Upanishads. Whatever
 system in India does not obey the Upanishads cannot be called orthodox,
@@ -73,13 +73,13 @@ attempt, my mission in life, to show that the Vedantic schools are not
 contradictory, that they all necessitate each other, all fulfil each
 other, and one, as it were, is the stepping-stone to the other, until
 the goal, the Advaita, the Tat Tvam Asi, is reached. There was a time in
-India when the Karma Kânda had its sway. There are many grand ideals, no
+India when the Karma Kānda had its sway. There are many grand ideals, no
 doubt, in that portion of the Vedas. Some of our present daily worship
 is still according to the precepts of the Karma Kanda. But with all
 that, the Karma Kanda of the Vedas has almost disappeared from India.
 Very little of our life today is bound and regulated by the orders of
 the Karma Kanda of the Vedas. In our ordinary lives we are mostly
-Paurânikas or Tântrikas, and, even where some Vedic texts are used by
+Paurānikas or Tāntrikas, and, even where some Vedic texts are used by
 the Brahmins of India, the adjustment of the texts is mostly not
 according to the Vedas, but according to the Tantras or the Puranas. As
 such, to call ourselves Vaidikas in the sense of following the Karma
@@ -97,7 +97,7 @@ qualified Advaitists, and so forth, do not matter much. As a
 classification, either they are dualists or monists, and of the sects
 existing at the present time, some of them are very new, and others seem
 to be reproductions of very ancient sects. The one class I would present
-by the life and philosophy of Râmânuja, and the other by Shankarâchârya.
+by the life and philosophy of Rāmānuja, and the other by Shankarāchārya.
 
 Ramanuja is the leading dualistic philosopher of later India, whom all
 the other dualistic sects have followed, directly or indirectly, both in
@@ -118,8 +118,8 @@ followers of Shankaracharya hold that it is Vibhu, omnipresent. There
 have been several non-dualistic sects. It seems that there have been
 sects in ancient times which Shankara's movement has entirely swallowed
 up and assimilated. You find sometimes a fling at Shankara himself in
-some of the commentaries, especially in that of Vijnâna Bhikshu who,
-although an Advaitist, attempts to upset the Mâyâvâda of Shankara. It
+some of the commentaries, especially in that of Vijnāna Bhikshu who,
+although an Advaitist, attempts to upset the Māyāvāda of Shankara. It
 seems there were schools who did not believe in this Mayavada, and they
 went so far as to call Shankara a crypto-Buddhist, Prachchhanna Bauddha,
 and they thought this Mayavada was taken from the Buddhists and brought
@@ -128,22 +128,22 @@ Advaitists have all ranged themselves under Shankaracharya; and
 Shankaracharya and his disciples have been the great preachers of
 Advaita both in Southern and in Northern India. The influence of
 Shankaracharya did not penetrate much into our country of Bengal and in
-Kashmir and the Punjab, but in Southern India the Smârtas are all
+Kashmir and the Punjab, but in Southern India the Smārtas are all
 followers of Shankaracharya, and with Varanasi as the centre, his
 influence is simply immense even in many parts of Northern India.
 
 Now both Shankara and Ramanuja laid aside all claim to originality.
 Ramanuja expressly tells us he is only following the great commentary of
-Bodhâyana. भगवद्बोधायनकृतां विस्तीर्णां ब्रह्मसूत्रवृत्तिं पूर्वाचार्याः
+Bodhāyana. भगवद्बोधायनकृतां विस्तीर्णां ब्रह्मसूत्रवृत्तिं पूर्वाचार्याः
 संचिक्षिपुः तन्मतानुसारेण सूत्राक्षराणि व्याख्यास्यन्ते। — "Ancient
 teachers abridged that extensive commentary on the *Brahma-sutras* which
-was composed by the Bhagavân Bodhayana; in accordance with their
+was composed by the Bhagavān Bodhayana; in accordance with their
 opinion, the words of the Sutra are explained." That is what Ramanuja
-says at the beginning of his commentary, the *Shri-Bhâshya*. He takes it
+says at the beginning of his commentary, the *Shri-Bhāshya*. He takes it
 up and makes of it a Samkshepa, and that is what we have today. I myself
 never had an opportunity of seeing this commentary of Bodhayana. The
-late Swami Dayânanda Saraswati wanted to reject every other commentary
-of the *Vyâsa-Sutras* except that of Bodhayana; and although he never
+late Swami Dayānanda Saraswati wanted to reject every other commentary
+of the *Vyāsa-Sutras* except that of Bodhayana; and although he never
 lost an opportunity of having a fling at Ramanuja, he himself could
 never produce the Bodhayana. I have sought for it all over India, and
 never yet have been able to see it. But Ramanuja is very plain on the
@@ -173,7 +173,7 @@ there is a recognised system of thought, there you can trace his
 influence; even if it be thousands of years back, yet he stands there,
 the shining, glorious, wonderful Kapila. His psychology and a good deal
 of his philosophy have been accepted by all the sects of India with but
-very little differences. In our own country, our Naiyâyika philosophers
+very little differences. In our own country, our Naiyāyika philosophers
 could not make much impression on the philosophical world of India. They
 were too busy with little things like species and genus, and so forth,
 and that most cumbersome terminology, which it is a life's work to
@@ -214,18 +214,18 @@ a much later date, as for instance, the Allopanishad in which Allah is
 praised and Mohammed is called the Rajasulla. I have been told that this
 was written during the reign of Akbar to bring the Hindus and
 Mohammedans together, and sometimes they got hold of some word, as
-Allah, or Illa in the Samhitâs, and made an Upanishad on it. So in this
+Allah, or Illa in the Samhitās, and made an Upanishad on it. So in this
 Allopanishad, Mohammed is the Rajasulla, whatever that may mean. There
 are other sectarian Upanishads of the same species, which you find to be
 entirely modern, and it has been so easy to write them, seeing that this
-language of the Samhitâ portion of the Vedas is so archaic that there is
+language of the Samhitā portion of the Vedas is so archaic that there is
 no grammar to it. Years ago I had an idea of studying the grammar of the
 Vedas, and I began with all earnestness to study Panini and the
-*Mahâbhâshya*, but to my surprise I found that the best part of the
+*Mahābhāshya*, but to my surprise I found that the best part of the
 Vedic grammar consists only of exceptions to rules. A rule is made, and
 after that comes a statement to the effect, "This rule will be an
 exception". So you see what an amount of liberty there is for anybody to
-write anything, the only safeguard being the dictionary of Yâska. Still,
+write anything, the only safeguard being the dictionary of Yāska. Still,
 in this you will find, for the most part, but a large number of
 synonyms. Given all that, how easy it is to write any number of
 Upanishads you please. Just have a little knowledge of Sanskrit, enough
@@ -259,7 +259,7 @@ infinite through the muscles. That attempt has been made here also. You
 find it in the Samhitas, the infinite of extension most marvellously
 painted and placed before the readers, such as has been done nowhere
 else. Mark that one sentence — तम आसीत् तमसा गूढम्, — and now mark the
-description of darkness by three poets. Take our own Kâlidâsa —
+description of darkness by three poets. Take our own Kālidāsa —
 "Darkness which can be penetrated with the point of a needle"; then
 Milton — "No light but rather darkness visible"; but come now to the
 Upanishad, "Darkness was covering darkness", "Darkness was hidden in
@@ -311,7 +311,7 @@ lightning cannot illumine; what to speak of this mortal fire!" Such
 poetry you find nowhere else. Take that most marvellous Upanishad, the
 Katha. What a wonderful finish, what a most marvellous art displayed in
 that poem! How wonderfully it opens with that little boy to whom
-Shraddhâ came, who wanted to see Yama, and how that most marvellous of
+Shraddhā came, who wanted to see Yama, and how that most marvellous of
 all teachers, Death himself, teaches him the great lessons of life and
 death! And what was his quest? To know the secret of death.
 
@@ -322,7 +322,7 @@ an authority of the Upanishads, not one verse is based upon the life of
 any one of them. These are simply figures like shadows moving in the
 background, unfelt, unseen, unrealised, but the real force is in the
 marvellous, the brilliant, the effulgent texts of the Upanishads,
-perfectly impersonal. If twenty Yâjnavalkyas came and lived and died, it
+perfectly impersonal. If twenty Yājnavalkyas came and lived and died, it
 does not matter; the texts are there. And yet it is against no
 personality; it is broad and expansive enough to embrace all the
 personalities that the world has yet produced, and all that are yet to
@@ -335,7 +335,7 @@ impersonal as any modern scientist can wish. And these are our
 scriptures. You must remember that what the Bible is to the Christians,
 what the Koran is to the Mohammedans, what the Tripitaka is to the
 Buddhist, what the Zend Avesta is to the Parsees, these Upanishads are
-to us. These and nothing but these are our scriptures. The Purânas, the
+to us. These and nothing but these are our scriptures. The Purānas, the
 Tantras, and all the other books, even the *Vyasa-Sutras*, are of
 secondary, tertiary authority, but primary are the Vedas. Manu, and the
 Puranas, and all the other books are to be taken so far as they agree
@@ -357,7 +357,7 @@ Sutras are subordinate to the authority of the Vedas. They are the words
 of the Rishis, our forefathers, and you have to believe them if you want
 to become a Hindu. You may even believe the most peculiar ideas about
 the Godhead, but if you deny the authority of the Vedas, you are a
-Nâstika. Therein lies the difference between the scriptures of the
+Nāstika. Therein lies the difference between the scriptures of the
 Christians or the Buddhists and ours; theirs are all Puranas, and not
 scriptures, because they describe the history of the deluge, and the
 history of kings and reigning families, and record the lives of great
@@ -379,7 +379,7 @@ Vedas with all the other scriptures at the present day.
 We now come to the teachings of the Upanishads. Various texts are there.
 Some are perfectly dualistic, while others are monistic. But there are
 certain doctrines which are agreed to by all the different sects of
-India. First, there is the doctrine of Samsâra or reincarnation of the
+India. First, there is the doctrine of Samsāra or reincarnation of the
 soul. Secondly, they all agree in their psychology; first there is the
 body, behind that, what they call the Sukshma Sharira, the mind, and
 behind that even, is the Jiva. That is the great difference between
@@ -396,7 +396,7 @@ the difference between the Indian and the Western mind, and it is this,
 that everything is in the soul. There is no inspiration, but properly
 speaking, expiration. All powers and all purity and all greatness —
 everything is in the soul. The Yogi would tell you that the Siddhis -
-Animâ, Laghimâ, and so on — that he wants to attain to are not to be
+Animā, Laghimā, and so on — that he wants to attain to are not to be
 attained, in the proper sense of the word, but are already there in the
 soul; the work is to make them manifest. Patanjali, for instance, would
 tell you that even in the lowest worm that crawls under your feet, all
@@ -449,14 +449,14 @@ country; and for the matter of that, during the whole of the Mohammedan
 period, with the exception of our Chaitanya, all the great religious
 leaders were born in Southern India, and it is the intellect of Southern
 India that is really governing India now; for even Chaitanya belonged to
-one of these sects, a sect of the Mâdhvas. According to Ramanuja, these
+one of these sects, a sect of the Mādhvas. According to Ramanuja, these
 three entities are eternal — God, and soul, and nature. The souls are
 eternal, and they will remain eternally existing, individualised through
 eternity, and will retain their individuality all through. Your soul
 will be different from my soul through all eternity, says Ramanuja, and
 so will this nature — which is an existing fact, as much a fact as the
 existence of soul or the existence of God — remain always different. And
-God is interpenetrating, the essence of the soul, He is the Antaryâmin.
+God is interpenetrating, the essence of the soul, He is the Antaryāmin.
 In this sense Ramanuja sometimes thinks that God is one with the soul,
 the essence of the soul, and these souls — at the time of Pralaya, when
 the whole of nature becomes what he calls Sankuchita, contracted —
@@ -465,7 +465,7 @@ beginning of the next cycle they all come out, according to their past
 Karma, and undergo the effect of that Karma. Every action that makes the
 natural inborn purity and perfection of the soul get contracted is a bad
 action, and every action that makes it come out and expand itself is a
-good action, says Ramanuja. Whatever helps to make the Vikâsha of the
+good action, says Ramanuja. Whatever helps to make the Vikāsha of the
 soul is good, and whatever makes it Sankuchita is bad. And thus the soul
 is going on, expanding or contracting in its actions, till through the
 grace of God comes salvation. And that grace comes to all souls, says
@@ -480,7 +480,7 @@ First of all, what is this Sattva? We know that according to the Sankhya
 — and it has been admitted by all our sects of philosophy — the body is
 composed of three sorts of materials — not qualities. It is the general
 idea that Sattva, Rajas, and Tamas are qualities. Not at all, not
-qualities but the materials of this universe, and with Âhâra-shuddhi,
+qualities but the materials of this universe, and with Âhāra-shuddhi,
 when the food is pure, the Sattva material becomes pure. The one theme
 of the Vedanta is to get this Sattva. As I have told you, the soul is
 already pure and perfect, and it is, according to the Vedanta, covered
@@ -497,7 +497,7 @@ has affected the whole of India, and all the different sects. Therefore
 it is necessary for us to understand what it means, for that, according
 to Ramanuja, is one of the principal factors in our life, Ahara-shuddhi.
 What makes food impure? asks Ramanuja. Three sorts of defects make food
-impure — first, Jâti-dosha, the defect in the very nature of the class
+impure — first, Jāti-dosha, the defect in the very nature of the class
 to which the food belongs, as the smell in onions, garlic, and suchlike.
 The next is Âshraya-dosha, the defect in the person from whom the food
 comes; food coming from a wicked person will make you impure. I myself
@@ -538,13 +538,13 @@ they are not.
 
 Thus, although these are to be combined and linked together to make a
 perfect whole, do not put the cart before the horse. There is a cry
-nowadays about this and that food and about Varnâshrama, and the
+nowadays about this and that food and about Varnāshrama, and the
 Bengalis are the most vociferous in these cries. I would ask every one
 of you, what do you know about this Varnashrama? Where are the four
 castes today in this country? Answer me; I do not see the four castes.
 Just as our Bengali proverb has it, "A headache without a head", so you
 want to make this Varnashrama here. There are not four castes here. I
-see only the Brâhmin and the Shudra. If there are the Kshatriyas and the
+see only the Brāhmin and the Shudra. If there are the Kshatriyas and the
 Vaishyas, where are they and why do not you Brahmins order them to take
 the Yajnopavita and study the Vedas, as every Hindu ought to do? And if
 the Vaishyas and the Kshatriyas do not exist, but only the Brahmins and
@@ -565,12 +565,12 @@ others, take the other castes up, give them a helping hand, let them
 study the Vedas and become just as good Aryans as any other Aryans in
 the world, and be you likewise Aryans, you Brahmins of Bengal.
 
-Give up this filthy Vâmâchâra that is killing your country. You have not
+Give up this filthy Vāmāchāra that is killing your country. You have not
 seen the other parts of India. When I see how much the Vamachara has
 entered our society, I find it a most disgraceful place with all its
 boast of culture. These Vamachara sects are honeycombing our society in
 Bengal. Those who come out in the daytime and preach most loudly about
-Âchâra, it is they who carry on the horrible debauchery at night and are
+Âchāra, it is they who carry on the horrible debauchery at night and are
 backed by the most dreadful books. They are ordered by the books to do
 these things. You who are of Bengal know it. The Bengali Shastras are
 the Vamachara Tantras. They are published by the cart-load, and you
@@ -594,11 +594,11 @@ has been created by God out of Himself, and at the same time God is
 eternally separate from the universe, and everything is eternally
 subordinate to the Ruler of the universe. There are sects too who also
 believe that out of Himself God has evolved this universe, and
-individuals in the long run attain to Nirvâna to give up the finite and
+individuals in the long run attain to Nirvāna to give up the finite and
 become the Infinite. But these sects have disappeared. The one sect of
 Advaitists that you see in modern India is composed of the followers of
 Shankara. According to Shankara, God is both the material and the
-efficient cause through Mâyâ, but not in reality. God has not become
+efficient cause through Māyā, but not in reality. God has not become
 this universe; but the universe is not, and God is. This is one of the
 highest points to understand of Advaita Vedanta, this idea of Maya. I am
 afraid I have no time to discuss this one most difficult point in our
@@ -633,7 +633,7 @@ same ideas brought forward in ancient India. Fortunately for us,
 Hegelianism was nipped in the bud and not allowed to sprout and cast its
 baneful shoots over this motherland of ours. Hegel's one idea is that
 the one, the absolute, is only chaos, and that the individualized form
-is the greater. The world is greater than the non-world, Samsâra is
+is the greater. The world is greater than the non-world, Samsāra is
 greater than salvation. That is the one idea, and the more you plunge
 into this Samsara the more your soul is covered with the workings of
 life, the better you are. They say, do you not see how we build houses,
@@ -645,7 +645,7 @@ that every manifestation, what you call evolution, is vain, a vain
 attempt of the unmanifested to manifest itself. Ay, you the mighty cause
 of this universe, trying to reflect yourself in little mud puddles! But
 after making the attempt for a time you find out it was all in vain and
-beat a retreat to the place from whence you came. This is Vairâgya, or
+beat a retreat to the place from whence you came. This is Vairāgya, or
 renunciation, and the very beginning of religion. How can religion or
 morality begin without renunciation itself? The Alpha and Omega is
 renunciation. "Give up," says the Veda, "give up." That is the one way,
@@ -682,7 +682,7 @@ that of renunciation. What matters it if millions fail in the attempt,
 if ten soldiers or even two return victorious! Blessed be the millions
 dead! Their blood has bought the victory. This renunciation is the one
 ideal throughout the different Vedic sects except one, and that is the
-Vallabhâchârya sect in Bombay Presidency, and most of you are aware what
+Vallabhāchārya sect in Bombay Presidency, and most of you are aware what
 comes where renunciation does not exist. We want orthodoxy — even the
 hideously orthodox, even those who smother themselves with ashes, even
 those who stand with their hands uplifted. Ay, we want them, unnatural
@@ -735,8 +735,8 @@ twists and tortures texts वाग्वैखरी शब्दझरी श�
 throwing out words, different ways of explaining texts of the
 scriptures, these are for the enjoyment of the learned, not for
 freedom." Shrotriya, he who knows the secret of the Shrutis, Avrijina,
-the sinless, and Akâmahata, unpierced by desire — he who does not want
-to make money by teaching you — he is the Shânta, the Sâdhu, who comes
+the sinless, and Akāmahata, unpierced by desire — he who does not want
+to make money by teaching you — he is the Shānta, the Sādhu, who comes
 as the spring which brings the leaves and blossoms to various plants but
 does not ask anything from the plant, for its very nature is to do good.
 It does good and there it is. Such is the Guru, तीर्णाः स्वयं

@@ -51,7 +51,7 @@ I want here to go over the psychological ideas of the Orientals about
 cosmology and all that pertains to it, and you will find how wonderfully
 they are in accordance with the latest discoveries of modern science;
 and where there is disharmony, you will find that it is modern science
-which lacks and not they. We all use the word nature. The old Sânkhya
+which lacks and not they. We all use the word nature. The old Sānkhya
 philosophers called it by two different names, Prakriti, which is very
 much the same as the word nature, and the more scientific name, Avyakta,
 undifferentiated, from which everything proceeds, such as atoms,
@@ -104,9 +104,9 @@ the effect, and so it goes on.
 What we call matter in modern times was called by; the ancient
 psychologists Bhutas, the external elements. There is one element which,
 according to them, is eternal ; every other element is produced out of
-this one. It is called Âkâsha. It is somewhat similar to the idea of
+this one. It is called Âkāsha. It is somewhat similar to the idea of
 ether of the moderns, though not exactly similar. Along with this
-element, there is the primal energy called Prâna. Prana and Akasha
+element, there is the primal energy called Prāna. Prana and Akasha
 combine and recombine and form the elements out of them. Then at the end
 of the Kalpa; everything subsides, and goes back to Akasha and Prana.
 There is in the Rig-Veda, the oldest human writing in existence, a
@@ -114,7 +114,7 @@ beautiful passage describing creation, and it is most poetical — "When
 there was neither aught nor naught, when darkness was rolling over
 darkness, what existed?" and the answer is given, "It then existed
 without vibration". This Prana existed then, but there was no motion in
-it; Ânidavâtam means "existed without vibration". Vibration had stopped.
+it; Ânidavātam means "existed without vibration". Vibration had stopped.
 Then when the Kalpa begins, after an immense interval, the Anidavatam
 (unvibrating atom) commences to vibrate, and blow after blow is given by
 Prana to Akasha. The atoms become condensed, and as they are condensed
@@ -126,7 +126,7 @@ and translates a whole book. They translate the, elements as air, fire,
 and so on; if they would go to the commentators, they would find they do
 not mean air or anything of the sort.
 
-The Akasha, acted upon by the repeated blows of Prana, produces Vâyu or
+The Akasha, acted upon by the repeated blows of Prana, produces Vāyu or
 vibrations. This Vayu vibrates, and the vibrations growing more and more
 rapid result in friction giving rise to heat, Tejas. Then this heat ends
 in liquefaction, Âpah. Then that liquid becomes solid. We had ether, and
@@ -152,7 +152,7 @@ either a beginning or an end; it is an eternal on-going.
 
 We shall state another position of these old psychologists, which is
 that all gross things are the results of fine ones. Everything that is
-gross is composed of fine things, which they call the Tanmâtras, the
+gross is composed of fine things, which they call the Tanmātras, the
 fine particles. I smell a flower. To smell, something must come in
 contact with my nose; the flower is there, but I do not see it move
 towards me. That which comes from the flower and in contact with my nose
@@ -209,7 +209,7 @@ vibration, and then resistance. For a moment the water will vibrate and
 then it will react on the stone. So when any impression comes on the
 Chitta, it first vibrates a little. That is called the Manas. The mind
 carries the impression farther in, and presents it to the determinative
-faculty, Buddhi, which reacts. Behind Buddhi is Ahamkâra, egoism, the
+faculty, Buddhi, which reacts. Behind Buddhi is Ahamkāra, egoism, the
 self-consciousness which says, "I am". Behind Ahamkara is Mahat,
 intelligence, the highest form of nature's existence. Each one is the
 effect of the succeeding one. In the case of the lake, every blow that
@@ -219,7 +219,7 @@ the intelligence is the Self of man, the Purusha, the Atman, the pure,
 the perfect, who alone is the seer, and for whom is all this change.
 
 Man looks on all these changes; he himself is never impure; but through
-what the Vedantists call Adhyâsa, by reflection, by implication, he
+what the Vedantists call Adhyāsa, by reflection, by implication, he
 seems to be impure. It is like the appearance of a crystal when a red or
 a blue flower is brought before it: the colour is reflected on it, but
 the crystal itself is pure. We shall take it for granted that there are

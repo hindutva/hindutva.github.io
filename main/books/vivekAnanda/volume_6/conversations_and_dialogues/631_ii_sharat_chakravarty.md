@@ -15,7 +15,7 @@ title: II
 (From the Diary of a Disciple)
 
 (The disciple is Sharatchandra Chakravarty, who published his records in
-a Bengali book, *Swami-Shishya-Samvâda*, in two parts. The present
+a Bengali book, *Swami-Shishya-Samvāda*, in two parts. The present
 series of "Conversations and Dialogues" is a revised translation from
 this book. Five dialogues of this series have already appeared in the
 *Complete Works*, [Vol.
@@ -31,7 +31,7 @@ found that Swamiji was just ready to go to the garden-house of Gopal Lal
 Seal. A carriage was waiting outside. He said to the disciple, "Well
 come with me." The disciple agreeing, Swamiji got up with him into the
 carriage and it started. When it drove up the Chitpur road, on seeing
-the Gangâ, Swamiji broke forth in a chant, self-involved:
+the Gangā, Swamiji broke forth in a chant, self-involved:
 "गङ्गातरङ्ग-रमणीय-जटा-कलापं" etc.[2](#fn2) The disciple listened in
 silent wonder to that wave of music, when after a short while, seeing a
 railway engine going towards the Chitpur hydraulic bridge, Swamiji said
@@ -122,7 +122,7 @@ Disciple: No, sir, I have only read it with Shankara's commentary.
 Swamiji: Among the Upanishads, one finds no other book so beautiful as
 this. I wish you would all get it by heart. What will it do only to read
 it? Rather try to bring into your life the faith, the courage, the
-discrimination, and the renunciation of Nachiketâ.
+discrimination, and the renunciation of Nachiketā.
 
 Disciple: Give your blessings, please, that I may realise these.
 
@@ -140,14 +140,14 @@ substance within, no amount of outside help will avail anything. Yet
 there comes a time for everyone to realise the Self. For everyone is
 Brahman. The distinction of higher and lower is only in the degree of
 manifestation of that Brahman. In time, everyone will have perfect
-manifestation. Hence the Shâstras say, "कालेनात्मनि विन्दति — In time,
+manifestation. Hence the Shāstras say, "कालेनात्मनि विन्दति — In time,
 That is realised in one's self."
 
 Disciples When, alas, will that happen, sir? From the Shastras we hear
 how many births we have had to pass in ignorance!
 
 Swamiji: What's the fear? When you have come here this time, the goal
-shall be attained in this life. Liberation or Samâdhi — all this
+shall be attained in this life. Liberation or Samādhi — all this
 consists in simply doing away with the obstacles to the manifestation of
 Brahman. Otherwise the Self is always shining forth like the sun. The
 cloud of ignorance has only veiled it. Remove the cloud and the sun will
@@ -198,8 +198,8 @@ concentration, and everything! In the present age, this aspect of Shri
 Krishna should be specially studied. Only contemplating the Krishna of
 Vrindaban with His flute won't do nowadays — that will not bring
 salvation to humanity. Now is needed the worship of Shri Krishna
-uttering forth the lion-roar of the Gita, of Râma with His bow and
-arrows, of Mahâvira, of Mother Kâli. Then only will the people grow
+uttering forth the lion-roar of the Gita, of Rāma with His bow and
+arrows, of Mahāvira, of Mother Kāli. Then only will the people grow
 strong by going to work with great energy and will. I have considered
 the matter most carefully and come to the conclusion that of those who
 profess and talk of religion nowadays in this country, the majority are
@@ -209,7 +209,7 @@ next. The whole country is enveloped in intense Tamas; and naturally the
 result is — servitude in this life and hell in the next.
 
 Disciple: Do you expect in view of the Rajas in the Westerners that they
-will gradually become Sâttvika?
+will gradually become Sāttvika?
 
 Swamiji: Certainly. Possessed of a plenitude of Rajas, they have now
 reached the culmination of Bhoga, or enjoyment. Do you think that it is
@@ -267,7 +267,7 @@ the next day to see Swamiji.
 
 1.  [^](#txt1)The famous actor and dramatist of Bengal and a foremost
     devotee of Shri Ramakrishna.
-2.  [^](#txt2)From Vyâsa's Hymn to Vishvanâtha, meaning "whose matted
+2.  [^](#txt2)From Vyāsa's Hymn to Vishvanātha, meaning "whose matted
     locks look charming with the waves of the Ganga playing among them".
 3.  [^](#txt3)"पतति पतत्रे विचलति पत्रे शङ्कितभवदुपयानम् ।  
     रचयति शयनं सचकितनयनं पश्यति तव पन्थानम् ॥"  
@@ -288,7 +288,7 @@ the next day to see Swamiji.
     you contain pellucid water within you, they have their interior
     bedecked with transparent gems; you soar so high, their roofs also
     kiss the sky" (Meghaduta, II. 1). Kalidasa thus introduces his
-    description of the enjoyments of Alakâpuri. So the reference here is
+    description of the enjoyments of Alakāpuri. So the reference here is
     not only to the first verse quoted but also to the whole description
     which follows.
 

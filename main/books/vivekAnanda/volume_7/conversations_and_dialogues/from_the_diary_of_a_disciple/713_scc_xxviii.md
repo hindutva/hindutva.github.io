@@ -87,11 +87,11 @@ the good of the world, for the welfare of the Jivas. The disciples of
 Jesus were all Sannyasins. The direct recipients of the grace of
 Shankara, Ramanuja, Shri Chaitanya and Buddha were the all-renouncing
 Sannyasins. It is men of this stamp who have been through succession of
-disciples spreading the Brahma-vidyâ (knowledge of Brahman) in the
+disciples spreading the Brahma-vidyā (knowledge of Brahman) in the
 world. Where and when have you heard that a man being the slave of lust
 and wealth has been able to liberate another or to show the path of God
 to him? Without himself free, how can he make others free? In Veda,
-Vedanta, Itihâsa (history), Purâna (ancient tradition), you will find
+Vedanta, Itihāsa (history), Purāna (ancient tradition), you will find
 everywhere that the Sannyasins have been the teachers of religion in all
 ages and climes. History repeats itself. It will also be likewise now.
 The capable Sannyasin children of Shri Ramakrishna, the teacher of the
@@ -111,7 +111,7 @@ discussing about him. It is not bad either to do so. But if any of his
 devotees has concluded that what he has understood of him is the only
 truth, then he is an object of pity. Some are saying that Shri
 Ramakrishna was a Tantrika and Kaula, some that he was Shri Chaitanya
-born on earth to preach "Nâradiya Bhakti" (Bhakti as taught by Nâradâ);
+born on earth to preach "Nāradiya Bhakti" (Bhakti as taught by Nāradā);
 some again that to undertake spiritual practices is opposed to faith in
 him as an Avatara while some are opining that it is not agreeable to his
 teachings to take to Sannyasa. You will hear such words from the

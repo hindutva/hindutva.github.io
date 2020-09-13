@@ -42,7 +42,7 @@ in the near future of great souls through whom that mission will be
 fulfilled.
 
 Madura, the seat of ancient learning, Madura the favoured city of the
-God Sundareshwara, the holy Dwadashântakshetram of Yogis, lags behind no
+God Sundareshwara, the holy Dwadashāntakshetram of Yogis, lags behind no
 other Indian city in its warm admiration of your exposition of Indian
 Philosophy and in its grateful acknowledgments of your priceless
 services for humanity.
@@ -132,7 +132,7 @@ scores of centuries? It cannot be. We must also remember that in every
 little village-god and every little superstition custom is that which we
 are accustomed to call our religious faith. But local customs are
 infinite and contradictory. Which are we to obey, and which not to obey?
-The Brâhmin of Southern India, for instance, would shrink in horror at
+The Brāhmin of Southern India, for instance, would shrink in horror at
 the sight of another Brahmin eating meat; a Brahmin in the North thinks
 it a most glorious and holy thing to do — he kills goats by the hundred
 in sacrifice. If you put forward your custom, they are equally ready
@@ -141,18 +141,18 @@ The greatest mistake made is that ignorant people always think that this
 local custom is the essence of our religion.
 
 But beyond this there is a still greater difficulty. There are two sorts
-of truth we find in our Shâstras, one that is based upon the eternal
+of truth we find in our Shāstras, one that is based upon the eternal
 nature of man — the one that deals with the eternal relation of God,
 soul, and nature; the other, with local circumstances, environments of
 the time, social institutions of the period, and so forth. The first
 class of truths is chiefly embodied in our Vedas, our scriptures; the
 second in the Smritis, the Puranas. etc. We must remember that for all
-periods the Vedas are the final goal and authority, and if the Purânas
+periods the Vedas are the final goal and authority, and if the Purānas
 differ in any respect from the Vedas, that part of the Puranas is to be
 rejected without mercy. We find, then, that in all these Smritis the
 teachings are different. One Smriti says, this is the custom, and this
 should be the practice of this age. Another one says, this is the
-practice of this age, and so forth. This is the Âchâra which should be
+practice of this age, and so forth. This is the Âchāra which should be
 the custom of the Satya Yuga, and this is the Achara which should be the
 custom of the Kali Yuga, and so forth. Now this is one of the most
 glorious doctrines that you have, that eternal truths, being based upon
@@ -201,11 +201,11 @@ work these customs have done for the preservation of our race. And we
 must also remember that the leaders of our societies have never been
 either generals or kings, but Rishis. And who are the Rishis? The Rishi
 as he is called in the Upanishads is not an ordinary man, but a
-Mantra-drashtâ. He is a man who sees religion, to whom religion is not
+Mantra-drashtā. He is a man who sees religion, to whom religion is not
 merely book-learning, not argumentation, nor speculation, nor much
 talking, but actual realization, a coming face to face with truths which
 transcend the senses. This is Rishihood, and that Rishihood does not
-belong to any age, or time, or even to sects or caste. Vâtsyâyana says,
+belong to any age, or time, or even to sects or caste. Vātsyāyana says,
 truth must be realised; and we have to remember that you, and I, and
 every one of us will be called upon to become Rishis; and we must have
 faith in ourselves; we must become world-movers, for everything is in

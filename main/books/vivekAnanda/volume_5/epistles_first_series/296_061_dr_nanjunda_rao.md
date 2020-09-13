@@ -21,7 +21,7 @@ DEAR DR. NANJUNDA RAO,
 I received your note this morning. As I am sailing for England tomorrow,
 I can only write a few hearty lines. I have every sympathy with your
 proposed magazine for boys, and will do my best to help it on. You ought
-to make it independent, following the same lines as the *Brahmavâdin*,
+to make it independent, following the same lines as the *Brahmavādin*,
 only making the style and matter much more popular. As for example,
 there is a great chance, much more than you ever dream of, for those
 wonderful stories scattered all over the Sanskrit literature, to be

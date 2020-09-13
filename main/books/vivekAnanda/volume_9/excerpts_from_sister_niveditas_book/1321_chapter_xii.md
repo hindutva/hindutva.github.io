@@ -44,7 +44,7 @@ AUGUST 16.
 On Tuesday he came once more to our little camp to the midday meal.
 Towards the end it began to rain heavily enough to prevent his return,
 and he took up Tod's *History of Rajasthan*, which was lying near, and
-drifted into talk of Mirâ Bâi. "Two-thirds of the national ideas now in
+drifted into talk of Mirā Bāi. "Two-thirds of the national ideas now in
 Bengal", he said, "have been gathered from this book".
 
 But the episode of Mira Bai, the queen who would not be queen, but would
@@ -59,13 +59,13 @@ such as the conversation of two great robbers, and the end by an image
 of Krishna opening and swallowing her up. I heard him on one occasion
 recite and translate one of her songs to a woman. I wish I could
 remember the whole, but it began in his rendering with the words "Cling
-to it, cling to it, cling to it, Brother", and ended with "If Ankâ and
-Bankâ, the robber brothers; Sujan, the fell butcher; and the courtesan
+to it, cling to it, cling to it, Brother", and ended with "If Ankā and
+Bankā, the robber brothers; Sujan, the fell butcher; and the courtesan
 who playfully taught her parrot to repeat the name of the Lord Krishna
 were saved, there is hope for all".
 
 Again, I have heard him tell that marvellous tale of Mira Bai in which
-on reaching Vrindaban, she sent for a certain famous Sâdhu.[1](#fn1) He
+on reaching Vrindaban, she sent for a certain famous Sādhu.[1](#fn1) He
 refused to go on the ground that women might not see men in Vrindaban.
 When this had happened three times, Mira Bai went to him herself saying
 that she had not known that there were such beings as men there; she had
@@ -75,7 +75,7 @@ call yourself a man?" And as he fell prostrate before her with a cry of
 awe, she blessed him as a mother blesses her child.
 
 Today the Swami passed on to the talk of Akbar and sang us a song of
-Tânsen, the poet-laureate of the emperor:
+Tānsen, the poet-laureate of the emperor:
 
 Seated on the throne, a god amongst men,  
 Thou, the Emperor of Delhi.  
@@ -91,7 +91,7 @@ O son of Humayoon,
 Joy of the sun, God amongst men,  
 Thou, the Emperor of Delhi!
 
-Then the talk passed to "our national hero" Pratâp Singh, who never
+Then the talk passed to "our national hero" Pratāp Singh, who never
 could be brought to submission. Once indeed he was tempted to give in,
 at that moment when having fled from Chitore and the queen herself
 having cooked the scanty evening meal, a hungry cat swooped down on that
@@ -108,7 +108,7 @@ the dust". And the soul of Pratap drew in the long breath of courage and
 renewed faith; and he arose and swept the country of its foes and made
 his own way back to Udaipur.
 
-Then there was the wonderful tale of the virgin princess Krishna Kumâri,
+Then there was the wonderful tale of the virgin princess Krishna Kumāri,
 whose hand was sought by various royal suitors at once. And when three
 armies were at the gate, her father could think of nothing better than
 to give her poison. The task was entrusted to her uncle, and he entered
@@ -131,6 +131,6 @@ he could be with us for a few days before leaving for Ganderbal.
 
 
 
-1.  [^](#fn1_1)Sanâtana, the famous Sannyâsin disciple of Shri Chaitanya
+1.  [^](#fn1_1)Sanātana, the famous Sannyāsin disciple of Shri Chaitanya
     of Bengal who gave up his office of minister to the nawab of Bengal
     to become a religious devotee.

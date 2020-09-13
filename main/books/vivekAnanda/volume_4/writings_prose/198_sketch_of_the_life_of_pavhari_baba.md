@@ -152,17 +152,17 @@ self-realisation, and the man of meekness and humility.
 The subject of this sketch was a man of wonderful humility and intense
 self-realisation.
 
-Born of Brâhmin parents in a village near Guzi, Varanasi, Pavhâri Bâbâ,
+Born of Brāhmin parents in a village near Guzi, Varanasi, Pavhāri Bābā,
 as he was called in after life, came to study and live with his uncle in
 Ghazipur, when a mere boy. At present, Hindu ascetics are split up into
-the main divisions of Sannyâsins, Yogis, Vairâgis, and Panthis. The
-Sannyasins are the followers of Advaitism after Shankarâchârya; the
+the main divisions of Sannyāsins, Yogis, Vairāgis, and Panthis. The
+Sannyasins are the followers of Advaitism after Shankarāchārya; the
 Yogis, though following the Advaita system, are specialists in
 practicing the different systems of Yoga; the Vairagis are the dualistic
-disciples of Râmânujâchârya and others; the Panthis, professing either
+disciples of Rāmānujāchārya and others; the Panthis, professing either
 philosophy, are orders founded during the Mohammedan rule. The uncle of
 Pavhari Baba belonged to the Ramanuja or Shri sect, and was a Naishthika
-Brahmachârin, i.e. one who takes the vow of lifelong celibacy. He had a
+Brahmachārin, i.e. one who takes the vow of lifelong celibacy. He had a
 piece of land on the banks of the Ganga, about two miles to the north of
 Ghazipur, and had established himself there. Having several nephews, he
 took Pavhari Baba into his home and adopted him, intending him to
@@ -171,7 +171,7 @@ succeed to his property and position.
 Not much is known of the life of Pavhari Baba at this period. Neither
 does there seem to have been any indication of those peculiarities which
 made him so well known in after years. He is remembered merely as a
-diligent student of Vyâkarana and Nyâya, and the theology of his sect,
+diligent student of Vyākarana and Nyāya, and the theology of his sect,
 and as an active lively boy whose jollity at times found vent in hard
 practical jokes at the expense of his fellow-students.
 
@@ -220,7 +220,7 @@ Bengali of the Vaishnavas of Shri Chaitanya's order, we infer that his
 stay in Southern India and Bengal could not have been very short.
 
 But on his visit to one place, the friends of his youth lay great
-stress. It was on the top of mount Girnâr in Kathiawar, they say, that
+stress. It was on the top of mount Girnār in Kathiawar, they say, that
 he was first initiated into the mysteries of practical Yoga.
 
 It was this mountain which was so holy to the Buddhists. At its foot is
@@ -232,7 +232,7 @@ by the sect of which Buddhism is now thought to be a revised edition,
 and which strangely enough did not venture into the field of
 architectural triumphs till its world-conquering descendant had melted
 away into modern Hinduism. Girnar is celebrated amongst Hindus as having
-been sanctified by the stay of the great Avadhuta Guru Dattâtreya, and
+been sanctified by the stay of the great Avadhuta Guru Dattātreya, and
 rumour has it that great and perfected Yogis are still to be met with by
 the fortunate on its top.
 
@@ -267,7 +267,7 @@ Meanwhile, the peculiarities of the saint began to grow more and more
 pronounced. He had a cave dug in the ground, like his friend near
 Varanasi, and began to go into it and remain there for hours. Then began
 a process of the most awful dietary discipline. The whole day he worked
-in his little Âshrama, conducted the worship of his beloved Râmachandra,
+in his little Âshrama, conducted the worship of his beloved Rāmachandra,
 cooked good dinners — in which art he is said to have been
 extraordinarily proficient — distributed the whole of the offered food
 amongst his friends and the poor, looked after their comforts till night
@@ -283,13 +283,13 @@ pods of red pepper, daily. Then he gave up going nightly to the woods on
 the other bank of the river and took more and more to his cave. For days
 and months, we are told, he would be in the hole, absorbed in
 meditation, and then come out. Nobody knows what he subsisted on during
-these long intervals, so the people called him Pav-âhâri (or air-eater)
-Bâbâ (or father).
+these long intervals, so the people called him Pav-āhāri (or air-eater)
+Bābā (or father).
 
 He would never during his life leave this place. Once, however, he was
 so long inside the cave that people gave him up as dead, but after a
-long time, the Baba emerged and gave a Bhândârâ (feast) to a large
-number of Sâdhus.
+long time, the Baba emerged and gave a Bhāndārā (feast) to a large
+number of Sādhus.
 
 When not absorbed in his meditations, he would be living in a room above
 the mouth of his cave, and during this time he would receive visitors.
@@ -346,7 +346,7 @@ the body?"
 
 When asked on another occasion why he, a great Yogi, should perform
 Karma, such as pouring oblations into the sacrificial fire, and
-worshipping the image of Shri Raghunâthji, which are practices only
+worshipping the image of Shri Raghunāthji, which are practices only
 meant for beginners, the reply came: "Why do you take for granted that
 everybody makes Karma for his own good? Cannot one perform Karma for
 others?"
@@ -400,7 +400,7 @@ much younger than his real age. His voice was the sweetest we have ever
 heard. For the last ten years or more of his life, he had withdrawn
 himself entirely from the gaze of mankind. A few potatoes and a little
 butter were placed behind the door of his room, and sometimes during the
-night this was taken in when he was not in Samâdhi and was living above
+night this was taken in when he was not in Samādhi and was living above
 ground. When inside his cave, he did not require even these. Thus, this
 silent life went on, witnessing to the science of Yoga, and a living
 example of purity, humility, and love.
@@ -413,7 +413,7 @@ found that the great Yogi had offered himself as the last oblation to
 his sacrificial fire, and very soon a heap of ashes was all that
 remained of his body.
 
-Let us remember the words of Kâlidâsa: "Fools blame the actions of the
+Let us remember the words of Kālidāsa: "Fools blame the actions of the
 great, because they are extraordinary and their reasons past the
 finding-out of ordinary mortals."
 

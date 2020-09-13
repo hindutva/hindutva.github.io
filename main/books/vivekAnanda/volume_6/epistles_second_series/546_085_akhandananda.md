@@ -22,9 +22,9 @@ MY DEAR AKHANDANANDA,
 
 I am very glad to receive your letter. It is excellent work that you are
 doing. R— is very liberal and openhanded, but no advantage should be
-taken over him for that reason. About the raising of funds by Shrimân —,
+taken over him for that reason. About the raising of funds by Shrimān —,
 well, it is a fair enterprise; but my boy, this is a very queer world,
-where even the World-Gods Brahmâ and Vishnu find it difficult to evade
+where even the World-Gods Brahmā and Vishnu find it difficult to evade
 the clutches of lust and gold. Wherever there is any the least concern
 with money, there is the chance for misunderstanding. Let therefore
 nobody undertake such work as raising money on behalf of the Math. ...

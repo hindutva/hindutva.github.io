@@ -55,7 +55,7 @@ its own insufficiency. Again, we cannot say that it is unreal, for all
 the reality we know and can think of is within this knowledge. Nor can
 we deny that it is sufficient for all practical purposes. This state of
 human knowledge which embraces within its scope both the external and
-the internal worlds is called Mâyâ. It is unreal because it proves its
+the internal worlds is called Māyā. It is unreal because it proves its
 own incorrectness. It is real in the sense of being sufficient for all
 the needs of the animal man.
 

@@ -14,8 +14,8 @@ Discourses](lectures_and_discourses_contents.htm) /
 20, 1896, and recorded by Mr. Josiah J. Goodwin\]*
 
 We finished in our last \[class the subject\] about Pratikas. One idea
-more of the preparatory Bhakti, and then we will go on to the Parâ, the
-Supreme. This idea is what is called Nishthâ, devotion to one idea.
+more of the preparatory Bhakti, and then we will go on to the Parā, the
+Supreme. This idea is what is called Nishthā, devotion to one idea.
 
 We know that all these ideas of worship are right and all good, and we
 have seen that the worship of God, and God alone, is Bhakti. The worship
@@ -38,7 +38,7 @@ It is not that one should hate, or even criticize, the ideals of other
 people; he knows they are all right. But, at the same time, he must
 stick to his own ideal very strictly.
 
-There is a story of Hanumân, who was a great worshipper of Râma. Just as
+There is a story of Hanumān, who was a great worshipper of Rāma. Just as
 the Christians worship Christ as the incarnation of God, so the Hindus
 worship many incarnations of God. According to them, God came nine times
 in India and will come once more. When he came as Rama, this Hanuman was
@@ -49,8 +49,8 @@ great Yogi, knew that the same God had come back again as Krishna. He
 came and served Krishna, but he said to him, "I want to see that Rama
 form of yours". Krishna said, "Is not this form enough? I am this
 Krishna; I am this Rama. All these forms are mine". Hanuman said, "I
-know that, but the Rama form is for me. The Lord of Jânaki (Janaki is a
-name of Sitâ.) and the Lord of Shri (Shri is a name of Laksmi.) are the
+know that, but the Rama form is for me. The Lord of Jānaki (Janaki is a
+name of Sitā.) and the Lord of Shri (Shri is a name of Laksmi.) are the
 same. They are both the incarnations of the Supreme Self. Yet the
 lotus-eyed Rama is my all in all". This is Nishtha — knowing that all
 these different forms of worship are right, yet sticking to one and
@@ -147,7 +147,7 @@ him with these and then take big sticks and beat the image. He \[the
 "bell-eared" demon\] is the father of all fanatics who hate all other
 gods except their own.
 
-This is the only danger in this Nishthâ Bhakti — becoming this fanatical
+This is the only danger in this Nishthā Bhakti — becoming this fanatical
 demon. The world gets full of them. It is very easy to hate. The
 generality of mankind gets so weak that in order to love one, they must
 hate another; they must take the energy out of one point in order to put
@@ -401,7 +401,7 @@ certain time, standing at ease, and all that drill nonsense, all
 mechanical, with the mind thinking of something else — all this has
 nothing to do with real religion.
 
-There was a great prophet in India, Guru Nânak, born \[some\] four
+There was a great prophet in India, Guru Nānak, born \[some\] four
 hundred years ago. Some of you have heard of the Sikhs — the fighting
 people. Guru Nanak was \[the founder and also\] a follower of the Sikh
 religion.

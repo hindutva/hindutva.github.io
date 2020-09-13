@@ -15,7 +15,7 @@ CHAPTER X
 (*Delivered in London, 5th November 1896*)
 
 The Katha Upanishad, which we have been studying, was written much later
-than that to which we now turn — the Chhândogya. The language is more
+than that to which we now turn — the Chhāndogya. The language is more
 modern, and the thought more organised. In the older Upanishads the
 language is very archaic, like that of the hymn portion of the Vedas,
 and one has to wade sometimes through quite a mass of unnecessary things
@@ -26,7 +26,7 @@ of it is still ritualistic. There is, however, one great gain in
 studying the very old Upanishads. You trace, as it were, the historical
 growth of spiritual ideas. In the more recent Upanishads, the spiritual
 ideas have been collected and brought into one place; as in the Bhagavad
-Gitâ, for instance, which we may, perhaps, look upon as the last of the
+Gitā, for instance, which we may, perhaps, look upon as the last of the
 Upanishads, you do not find any inkling of these ritualistic ideas. The
 Gita is like a bouquet composed of the beautiful flowers of spiritual
 truths collected from the Upanishads. But in the Gita you cannot study
@@ -61,7 +61,7 @@ difficulty arises, we scarcely know the real meaning of any one of these
 stories, because the traditions have nearly died out, and the little
 that is left of them has been very much exaggerated. Many new
 interpretations have been put upon them, so that when you find them in
-the Purânas they have already become lyrical poems. Just as in the West,
+the Purānas they have already become lyrical poems. Just as in the West,
 we find this prominent fact in the political development of Western
 races that they cannot bear absolute rule, that they are always trying
 to prevent any one man from ruling over them, and are gradually
@@ -198,7 +198,7 @@ indebted to nobody in this universe. You claim your own birthright, as
 it has been most poetically expressed by a great Vedantin philosopher,
 in the title of one of his books — "The attainment of our own empire".
 That empire is ours; we have lost it and we have to regain it. The
-Mâyâvâdin, however, says that this losing of the empire was a
+Māyāvādin, however, says that this losing of the empire was a
 hallucination; you never lost it. This is the only difference.
 
 Although all the systems agree so far that we had the empire, and that
@@ -357,7 +357,7 @@ make life miserable? Why let people fall into all sorts of
 superstitions? I will give ten thousand lives, if twenty of them will
 give up their superstition. Not only in this country, but in the land of
 its very birth, if you tell people this truth, they are frightened. They
-say, "This idea is for Sannyâsins who give up the world and live in
+say, "This idea is for Sannyāsins who give up the world and live in
 forests; for them it is all right. But for us poor householders, we must
 all have some sort of fear, we must have ceremonies," and so on.
 

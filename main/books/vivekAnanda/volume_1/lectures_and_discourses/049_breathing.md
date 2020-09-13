@@ -23,7 +23,7 @@ just as going to church and repeating certain prayers.... I will try to
 bring those ideas before you.
 
 I have told you how the Indian philosopher reduces the whole universe
-into two parts — Prâna and Âkâsha.
+into two parts — Prāna and Âkāsha.
 
 Prana means force — all that is manifesting itself as movement or
 possible movement, force, or attraction. ... Electricity, magnetism, all
@@ -58,7 +58,7 @@ embodied mind tries it with great trouble" (Gita, XII. 5).
 A little physical help will make the mind comfortable. What would be
 more rational than to have the mind itself accomplish the thing? But it
 cannot. The physical help is necessary for most of us. The system of
-Râja-Yoga is to utilise these physical helps, to make use of the powers
+Rāja-Yoga is to utilise these physical helps, to make use of the powers
 and forces in the body to produce certain mental states, to make the
 mind stronger and stronger until it regains its lost empire. By sheer
 force of will if anyone can attain to that, so much the better. But most
@@ -135,7 +135,7 @@ today and count. ... Even thought is manufactured by food. There is no
 doubt about it.
 
 Control of this Prana that is working everything, control of this Prana
-in the body, is called Prânâyâma. We see with our common sense that it
+in the body, is called Prānāyāma. We see with our common sense that it
 is the breath \[that\] is setting everything in motion. If I stop
 breathing, I stop. If the breath begins, \[the body\] begins to move.
 What we want to get at is not the breath itself; it is something finer

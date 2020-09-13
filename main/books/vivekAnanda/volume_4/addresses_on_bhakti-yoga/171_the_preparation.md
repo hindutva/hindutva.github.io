@@ -29,7 +29,7 @@ has seen something real beyond the senses, beyond the universe of
 senses, the idea is that he can have a strong attachment, only it should
 be transferred to the object beyond the senses, which is God. And when
 the same kind of love that has before been given to sense-objects is
-given to God, it is called Bhakti. According to the sage Râmânuja, the
+given to God, it is called Bhakti. According to the sage Rāmānuja, the
 following are the preparations for getting that intense love.
 
 The first is Viveka. It is a very curious thing, especially to people of
@@ -57,7 +57,7 @@ other alcoholic beverage, a man finds that his mind would not be
 controlled; it runs away from his control.
 
 According to Ramanuja, there are three things in food we must avoid.
-First, there is Jâti, the nature, or species of the food, that must be
+First, there is Jāti, the nature, or species of the food, that must be
 considered. All exciting food should be avoided, as meat, for instance;
 this should not be taken because it is by its very nature impure. We can
 get it only by taking the life of another. We get pleasure for a moment,
@@ -101,8 +101,8 @@ pure food brings a pure mind, and in a pure mind is a constant memory of
 God.
 
 Let me tell you the same thing as explained by another commentator,
-Shankarâchârya, who takes quite another view. This word for food, in
-Sanskrit, is derived from the root, meaning to gather. Âhâra means
+Shankarāchārya, who takes quite another view. This word for food, in
+Sanskrit, is derived from the root, meaning to gather. Âhāra means
 "gathered in". What is his explanation? He says, the passage that when
 food is pure the mind will become pure really means that lest we become
 subject to the senses we should avoid the following: First as to
@@ -169,7 +169,7 @@ child. If money help a man to do good to others, it is of some value;
 but if not, it is simply a mass of evil, and the sooner it is got rid
 of, the better.
 
-The next is Abhyâsa, practice. The mind should always go towards God. No
+The next is Abhyāsa, practice. The mind should always go towards God. No
 other things have any right to withhold it. It should continuously think
 of God, though this is a very hard task; yet it can be done by
 persistent practice. What we are now is the result of our past practice.
@@ -191,7 +191,7 @@ must talk of God. Instead of reading foolish books, we must read good
 ones which tell of God.
 
 The greatest aid to this practice of keeping God in memory is, perhaps,
-music. The Lord says to Nârada, the great teacher of Bhakti, "I do not
+music. The Lord says to Nārada, the great teacher of Bhakti, "I do not
 live in heaven, nor do I live in the heart of the Yogi, but where My
 devotees sing My praise, there am I". Music has such tremendous power
 over the human mind; it brings it to concentration in a moment. You will
@@ -200,7 +200,7 @@ their mind for a moment at other times, when they hear attractive music,
 immediately become charmed and concentrated. Even the minds of animals,
 such as dogs, lions, cats, and serpents, become charmed with music.
 
-The next is Kriyâ, work — doing good to others. The memory of God will
+The next is Kriyā, work — doing good to others. The memory of God will
 not come to the selfish man. The more we come out and do good to others,
 the more our hearts will be purified, and God will be in them. According
 to our scriptures, there are five sorts of work, called the fivefold
@@ -234,13 +234,13 @@ day; there ought to be hospitals in every city in this country for poor,
 lame, or blind horses, cows, dogs, and cats, where they should be fed
 and taken care of.
 
-Then there is Kalyâna, purity, which comprises the following: Satya,
+Then there is Kalyāna, purity, which comprises the following: Satya,
 truthfulness. He who is true, unto him the God of truth comes. Thought,
 word, and deed should be perfectly true. Next Ârjava,
 straightforwardness, rectitude. The word means, to be simple, no
 crookedness in the heart, no double-dealing. Even if it is a little
-harsh, go straightforward, and not crookedly. Dayâ, pity, compassion.
-Ahimsâ, not injuring any being by thought, word, or deed. Dâna, charity.
+harsh, go straightforward, and not crookedly. Dayā, pity, compassion.
+Ahimsā, not injuring any being by thought, word, or deed. Dāna, charity.
 There is no higher virtue than charity. The lowest man is he whose hand
 draws in, in receiving; and he is the highest man whose hand goes out in
 giving. The hand was made to give always. Give the last bit of bread you
@@ -251,7 +251,7 @@ already. They cannot give away. They want to enjoy their children, and
 they must pay for it. Are there not enough children in the world? It is
 only selfishness which says, "I'll have a child for myself".
 
-The next is Anavasâda — not desponding, cheerfulness. Despondency is not
+The next is Anavasāda — not desponding, cheerfulness. Despondency is not
 religion, whatever else it may be. By being pleasant always and smiling,
 it takes you nearer to God, nearer than any prayer. How can those minds
 that are gloomy and dull love? If they talk of love, it is false; they

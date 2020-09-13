@@ -10,7 +10,7 @@ title: ON DR. PAUL DEUSSEN
 
 ## ON DR. PAUL DEUSSEN
 
-(Written for the *Brahmavâdin*, 1896.)
+(Written for the *Brahmavādin*, 1896.)
 
 More than a decade has passed since a young German student, one of eight
 children of a not very well-to-do clergyman, heard on a certain day
@@ -24,7 +24,7 @@ Lassen was almost the last of that heroic band of German scholars, the
 pioneers of Sanskrit scholarship in Germany. Heroic certainly they were
 — what interest except their pure and unselfish love of knowledge could
 German scholars have had at that time in Indian literature? The veteran
-Professor was expounding a chapter of *Shakuntalâ*; and on that day
+Professor was expounding a chapter of *Shakuntalā*; and on that day
 there was no one present more eagerly and attentively listening to
 Lassen's exposition than our young student. The subject-matter of the
 exposition was of course interesting and wonderful, but more wonderful
@@ -138,7 +138,7 @@ the help of any needy Pandit whose "brains could be picked", as the
 Americans say, for ten shillings a month, and a mere mention of his name
 in the introduction to some book of "very new researches" — think of
 this man, spending days and sometimes months in elucidating the correct
-reading and meaning of a word or a sentence in the commentary of Sâyana
+reading and meaning of a word or a sentence in the commentary of Sāyana
 (as he has himself told me), and in the end succeeding in making an easy
 road through the forest of Vedic literature for all others to go along;
 think of him and his work, and then say what he really is to us! Of
@@ -177,7 +177,7 @@ social needs! Just now we very much require the help of such genuine
 friends as these to check the growing virulence of the disease, very
 prevalent in India, of running either to the one extreme of slavish
 panegyrists who cling to every village superstition as the innermost
-essence of the Shâstras, or to the other extreme of demoniacal
+essence of the Shāstras, or to the other extreme of demoniacal
 denouncers who see no good in us and in our history, and will, if they
 can, at once dynamite all the social and spiritual organizations of our
 ancient land of religion and philosophy.

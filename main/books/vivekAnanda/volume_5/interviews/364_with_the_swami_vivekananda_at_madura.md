@@ -80,7 +80,7 @@ to point out to me any truth which is not treated of in them.
 
 *Q*. — What is the notion of Mukti, according to the Advaita philosophy,
 or in other words, is it a conscious state? Is there any difference
-between the Mukti of the Advaitism and the Buddhistic Nirvâna?
+between the Mukti of the Advaitism and the Buddhistic Nirvāna?
 
 *A*. — There is a consciousness in Mukti, which we call
 superconsciousness. It differs from your present consciousness. It is
@@ -97,19 +97,19 @@ Nirvana has a negative definition.
 for the purpose of manifestation of the world's creation?
 
 *A*. — The question itself is most illogical. Brahman is
-*Avângmanasogocharam*, meaning that which is incapable of being grasped
+*Avāngmanasogocharam*, meaning that which is incapable of being grasped
 by word and mind. Whatever lies beyond the region of space, time and
 causation cannot be conceived by the human mind, and the function of
 logic and enquiry lies only within the region of space, time, and
 causation. While that is so, it is a vain attempt to question about what
 lies beyond the possibilities of human conception.
 
-*Q*. — Here and there attempts are made to import into the Purânas
+*Q*. — Here and there attempts are made to import into the Purānas
 hidden ideas which are said to have been allegorically represented.
 Sometimes it is said that the Puranas need not contain any historical
 truth, but are mere representations of the highest ideals illustrated
-with fictitious characters. Take for instance, Vishnupurâna, Râmâyana,
-or Bhârata. Do they contain historical veracity or are they mere
+with fictitious characters. Take for instance, Vishnupurāna, Rāmāyana,
+or Bhārata. Do they contain historical veracity or are they mere
 allegorical representations of metaphysical truths, or are they
 representations of the highest ideals for the conduct of humanity, or
 are they mere epic poems such as those of Homer?
@@ -118,7 +118,7 @@ are they mere epic poems such as those of Homer?
 of the Puranas is to teach mankind the sublime truth in various forms;
 and even if they do not contain any historical truth, they form a great
 authority for us in respect of the highest truth which they inculcate.
-Take the Râmâyana, for illustration, and for viewing it as an authority
+Take the Rāmāyana, for illustration, and for viewing it as an authority
 on building character, it is not even necessary that one like Rama
 should have ever lived. The sublimity of the law propounded by Ramayana
 or Bharata does not depend upon the truth of any personality like Rama
@@ -167,8 +167,8 @@ past incarnations, for their present brain had its Bija (seed) in the
 Sukshma man after death.
 
 *Q*. — Does the spirit of Hinduism permit the proselytism of strangers
-into it? And can a Brâhmin listen to the exposition of philosophy made
-by a Chandâla?
+into it? And can a Brāhmin listen to the exposition of philosophy made
+by a Chandāla?
 
 *A*. — Proselytism is tolerated by Hinduism. Any man, whether he be a
 Shudra or Chandala, can expound philosophy even to a Brahmin. The truth

@@ -41,7 +41,7 @@ directly they are on the field of work.
 
 All strength is in you, have faith in it. It will not go unmanifested.
 Accept my heartiest love and blessings, and convey them to the
-Brahmachârin. Write now and then fiery letters to the Math, so that all
+Brahmachārin. Write now and then fiery letters to the Math, so that all
 may take heart and work. Victory to the Guru!
 
 Yours affly.,

@@ -23,7 +23,7 @@ Book of John, saying that since we were all Christians, it was proper
 that he should begin with the Christian scriptures*.)
 
 "In the beginning was the Word, and the Word was with God, and the Word
-was God." The Hindu calls this Mâyâ, the manifestation of God, because
+was God." The Hindu calls this Māyā, the manifestation of God, because
 it is the power of God. The Absolute reflecting through the universe is
 what we call nature. The Word has two manifestations — the general one
 of nature, and the special one of the great Incarnations of God —

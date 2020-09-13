@@ -10,9 +10,9 @@ title: ON PROFESSOR MAX MÜLLER
 
 ## ON PROFESSOR MAX MÜLLER
 
-(Written for the *Brahmâvadin*, from London, June 6, 1896.)
+(Written for the *Brahmāvadin*, from London, June 6, 1896.)
 
-Though the ideal of work of our *Brahmavâdin* should always be
+Though the ideal of work of our *Brahmavādin* should always be
 "कर्मण्येवाधिकारस्ते मा फलेषु कदाचन — To work thou hast the right, but
 never to the fruits thereof", yet no sincere worker passes out of the
 field of activity without making himself known and catching at least a
@@ -63,9 +63,9 @@ should we be in a hurry? The real working force of all great work is in
 its almost unperceived beginnings.
 
 Whoever could have thought that the life and teachings of a boy born of
-poor Brâhmin parents in a wayside Bengal village would, in a few years,
+poor Brāhmin parents in a wayside Bengal village would, in a few years,
 reach such distant lands as our ancestors never even dreamed of? I refer
-to Bhagavan Ramâkrishna. Do you know that Prof. Max Müller has already
+to Bhagavan Ramākrishna. Do you know that Prof. Max Müller has already
 written an article on Shri Ramakrishna for the *Nineteenth Century*, and
 will be very glad to write a larger and fuller account of his life and
 teachings if sufficient materials are forthcoming? What an extraordinary
@@ -78,7 +78,7 @@ My best devotees." Is that not true?
 
 The Professor was first induced to inquire about the power behind, which
 led to sudden and momentous changes in the life of the late Keshab
-Chandra Sen, the great Brâhmo leader; and since then, he has been an
+Chandra Sen, the great Brāhmo leader; and since then, he has been an
 earnest student and admirer of the life and teachings of Shri
 Ramakrishna. "Ramakrishna is worshipped by thousands today, Professor",
 I said. "To whom else shall worship be accorded, if not to such", was
@@ -98,7 +98,7 @@ opposition and contempt, and at last creating a respect for the thoughts
 of the sages of ancient India — the trees, the flowers, the calmness,
 and the clear sky — all these sent me back in imagination to the
 glorious days of Ancient India, the days of our Brahmarshis and
-Râjarshis, the days of the great Vânaprasthas, the days of Arundhatis
+Rājarshis, the days of the great Vānaprasthas, the days of Arundhatis
 and Vasishthas.
 
 It was neither the philologist nor the scholar that I saw, but a soul

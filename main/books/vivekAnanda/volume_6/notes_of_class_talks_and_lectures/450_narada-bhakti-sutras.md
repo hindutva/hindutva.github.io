@@ -29,7 +29,7 @@ and finds pleasure only in God.
 6\. It cannot be used to fill any desire, itself being the check to all
 desires.
 
-7\. Sannyâsa is giving up both the popular and the scriptural forms of
+7\. Sannyāsa is giving up both the popular and the scriptural forms of
 worship.
 
 8\. The Bhakti-Sannyasin is the one whose whole soul goes unto God, and
@@ -45,7 +45,7 @@ firm;
 12\. When love becomes established, even social forms are given up,
 except those which are necessary for the preservation of life.
 
-13\. There have been many definitions of love, but Nârada gives these as
+13\. There have been many definitions of love, but Nārada gives these as
 the signs of love: When all thoughts, all words, and all deeds are given
 up unto the Lord, and the least forgetfulness of God makes one intensely
 miserable, then *love has begun*.
@@ -62,8 +62,8 @@ reciprocity, which desire is in all human love.
 
 CHAPTER II
 
-1\. Bhakti is greater than Karma, greater than Jnâna, greater than Yoga
-(Râja-Yoga), because Bhakti itself is its result, because Bhakti is both
+1\. Bhakti is greater than Karma, greater than Jnāna, greater than Yoga
+(Rāja-Yoga), because Bhakti itself is its result, because Bhakti is both
 the means and the end (fruit).
 
 2\. As a man cannot satisfy his hunger by simple knowledge or sight of
@@ -133,8 +133,8 @@ differently.
 
 7\. The qualities are: Tamas (dullness, heaviness), Rajas (restlessness,
 activity), Sattva (serenity, purity); and the conditions are: Ârta
-(afflicted), Arthârthi (wanting something), Jijnâsu (searching truth),
-Jnâni, (knower).
+(afflicted), Arthārthi (wanting something), Jijnāsu (searching truth),
+Jnāni, (knower).
 
 8\. Of these the latter are higher than the preceding ones.
 
@@ -184,7 +184,7 @@ result.
 9\. Giving up all desires of pleasure and pain, gain and loss, worship
 God day and night. Not a moment is to be spent in vain.
 
-10\. Ahimsâ (non-killing), truthfulness, purity, mercy, and godliness
+10\. Ahimsā (non-killing), truthfulness, purity, mercy, and godliness
 are always to be kept.
 
 11\. Giving up all other thoughts, the whole mind should day and night

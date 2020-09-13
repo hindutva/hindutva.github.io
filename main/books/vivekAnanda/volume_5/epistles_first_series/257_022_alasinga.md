@@ -39,12 +39,12 @@ teachings, his eclecticism, etc. This is the theme. The life of Shri
 Ramakrishna was an extraordinary searchlight under whose illumination
 one is able to really understand the whole scope of Hindu religion. He
 was the object-lesson of all the theoretical knowledge given in the
-Shâstras (scriptures). He showed by his life what the Rishis and
-Avatâras really wanted to teach. The books were theories, he was the
+Shāstras (scriptures). He showed by his life what the Rishis and
+Avatāras really wanted to teach. The books were theories, he was the
 realisation. This man had in fifty-one years lived the five thousand
 years of national spiritual life and so raised himself to be an
 object-lesson for future generations. The Vedas can only be explained
-and the Shastras reconciled by his theory calf Avasthâ or stages — that
+and the Shastras reconciled by his theory calf Avasthā or stages — that
 we must not only tolerate others, but positively embrace them, and that
 truth is the basis of all religions. Now on these lines a most
 impressive and beautiful life can be written. Well, everything in good

@@ -66,9 +66,9 @@ do not know, I do not care to know or understand all these your
 hair-splitting ratiocinations; I want God, I want the Atman, I want to
 go to that Beyond, where there is no universe, where there is no
 pleasure or pain, where dwells the Bliss Supreme"; who say, "I believe
-in salvation by bathing in the holy Gangâ with faith"; who say,
+in salvation by bathing in the holy Gangā with faith"; who say,
 "whomsoever you may worship with singleness of faith and devotion as the
-one God of the universe, in whatsoever form as Shiva, Râma, Vishnu,
+one God of the universe, in whatsoever form as Shiva, Rāma, Vishnu,
 etc., you will get Moksha"; to that sturdy ancient class I am proud to
 belong.
 
@@ -78,7 +78,7 @@ hearts. What is the teaching of the Great Ones? — "Where there is Rama,
 there is no Kama; where there is Kama, there Rama is not. Night and day
 can never exist together." The voice of the ancient sages proclaim to
 us, "If you desire to attain God, you will have to renounce
-Kâma-Kânchana (lust and possession). The Samsâra is unreal, hollow, void
+Kāma-Kānchana (lust and possession). The Samsāra is unreal, hollow, void
 of substance. Unless you give it up, you can never reach God, try
 however you may. If you cannot do that, own that you are weak, but by no
 means lower the Ideal. Do not cover the corrupting corpse with leaves of
@@ -101,7 +101,7 @@ next is Mumukshutva. Though our means of realisation vary according to
 the difference in sects and individuals — though different individuals
 can lay claim to their special rights and means to gain knowledge, which
 vary according to their different stations in life — yet it can be said
-in general without fear of contradiction that without this Mumukshutâ,
+in general without fear of contradiction that without this Mumukshutā,
 realisation of God is impossible. What is Mumukshutva? It is the strong
 desire for Moksha — earnest yearning to get out of the sphere of pain
 and pleasure — utter disgust for the world. When that intense burning
@@ -109,7 +109,7 @@ desire to see God comes, then you should know that you are entitled to
 the realisation of the Supreme.
 
 Then another thing is necessary, and that is the coming in direct
-contact with the Mahâpurushas, and thus moulding our lives in accordance
+contact with the Mahāpurushas, and thus moulding our lives in accordance
 with those of the great-souled ones who have reached the Goal. Even
 disgust for the world and a burning desire for God are not sufficient.
 Initiation by the Guru is necessary. Why? Because it is the bringing of
@@ -122,14 +122,14 @@ spirituality. Whom then shall I accept as my Guru?
 श्रोत्रियोऽवृजिनोऽकामहतो यो ब्रह्मावित्तमः — "He who is versed in the
 Vedas, without taint, unhurt by desire, he who is the best of the
 knowers of Brahman." Shrotriya — he who is not only learned in the
-Shâstras, but who knows their subtle secrets, who has realised their
+Shāstras, but who knows their subtle secrets, who has realised their
 true import in his life. "Reading merely the various scriptures, they
 have become only parrots, and not Pandits. He indeed has become a Pandit
 who has gained Prema (Divine Love) by reading even one word of the
-Shâstras." Mere book-learned Pandits are of no avail. Nowadays, everyone
+Shāstras." Mere book-learned Pandits are of no avail. Nowadays, everyone
 wants to be a Guru; even a poor beggar wants to make a gift of a lakh of
 rupees! Then the Guru must be without a touch of taint, and he must be
-Akâmahata — unhurt by any desire — he should have no other motive except
+Akāmahata — unhurt by any desire — he should have no other motive except
 that of purely doing good to others, he should be an ocean of
 mercy-without-reason and not impart religious teaching with a view to
 gaining name or fame, or anything pertaining to selfish interest. And he
@@ -139,7 +139,7 @@ Such is the Guru, says the Shruti. When spiritual union is established
 with such a Guru, then comes realisation of God — then god-vision
 becomes easy of attainment.
 
-After initiation there should be in the aspirant after Truth, Abhyâsa or
+After initiation there should be in the aspirant after Truth, Abhyāsa or
 earnest and repeated attempt at practical application of the Truth by
 prescribed means of constant meditation upon the Chosen Ideal. Even if
 you have a burning thirst for God, or have gained the Guru, unless you

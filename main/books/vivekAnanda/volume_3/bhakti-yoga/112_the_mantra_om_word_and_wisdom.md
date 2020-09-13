@@ -12,12 +12,12 @@ CHAPTER VII
 
 ## THE MANTRA: OM: WORD AND WISDOM
 
-But we are now considering not these Mahâ-purushas, the great
+But we are now considering not these Mahā-purushas, the great
 Incarnations, but only the Siddha-Gurus (teachers who have attained the
 goal); they, as a rule, have to convey the germs of spiritual wisdom to
 the disciple by means of words (Mantras) to be meditated upon. What are
 these Mantras? The whole of this universe has, according to Indian
-philosophy, both name and form (Nâma-Rupa) as its conditions of
+philosophy, both name and form (Nāma-Rupa) as its conditions of
 manifestation. In the human microcosm, there cannot be a single wave in
 the mind-stuff (Chittavritti) unconditioned by name and form. If it be
 true that nature is built throughout on the same plan, this kind of
@@ -28,12 +28,12 @@ known", so the knowledge of the microcosm must lead to the knowledge of
 the macrocosm. Now form is the outer crust, of which the name or the
 idea is the inner essence or kernel. The body is the form, and the mind
 or the Antahkarana is the name, and sound-symbols are universally
-associated with Nâma (name) in all beings having the power of speech. In
+associated with Nāma (name) in all beings having the power of speech. In
 the individual man the thought-waves rising in the limited Mahat or
 Chitta (mind-stuff), must manifest themselves, first as *words*, and
 then as the more concrete *forms*.
 
-In the universe, Brahmâ or Hiranyagarbha or the cosmic Mahat first
+In the universe, Brahmā or Hiranyagarbha or the cosmic Mahat first
 manifested himself as name, and then as form, i.e. as this universe. All
 this expressed sensible universe is the form, behind which stands the
 eternal inexpressible Sphota, the manifester as *Logos* or Word. This
@@ -55,7 +55,7 @@ the whole ground, and there is none other like it. The Sphota is the
 material of all words, yet it is not any definite word in its fully
 formed state. That is to say, if all the peculiarities which distinguish
 one word from another be removed, then what remains will be the Sphota;
-therefore this Sphota is called the Nâda-Brahma. the *Sound-Brahman*.
+therefore this Sphota is called the Nāda-Brahma. the *Sound-Brahman*.
 
 Now, as every word-symbol, intended to express the inexpressible Sphota,
 will so particularise it that it will no longer be the Sphota, that
@@ -77,7 +77,7 @@ And as the symbol can never be separated from the thing signified, the
 Om and the Sphota are one. And as the Sphota, being the finer side of
 the manifested universe, is nearer to God and is indeed that first
 manifestation of divine wisdom this Om is truly symbolic of God. Again,
-just as the "One only" Brahman, the Akhanda-Sachchidânanda, the
+just as the "One only" Brahman, the Akhanda-Sachchidānanda, the
 undivided Existence-Knowledge-Bliss, can be conceived by imperfect human
 souls only from particular standpoints and associated with particular
 qualities, so this universe, His body, has also to be thought of along

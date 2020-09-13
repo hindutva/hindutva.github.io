@@ -23,7 +23,7 @@ I did not wire back about my health in reply to yours.
 
 This year I suffered much in Kashmir and am now recovered and going to
 Calcutta direct today. For the last ten years or so I have not seen the
-Puja of Shri Durgâ in Bengal which is the great affair there. I hope
+Puja of Shri Durgā in Bengal which is the great affair there. I hope
 this year to be present.
 
 The Western friends will come to see Jaipur in a week or two. If

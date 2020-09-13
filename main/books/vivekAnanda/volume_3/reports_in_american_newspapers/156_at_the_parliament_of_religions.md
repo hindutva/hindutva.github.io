@@ -109,7 +109,7 @@ Chicago, 3 Oct., 1893.
 \[To a request of the New York World of October 1, 1893, for "a
 sentiment or expression regarding the significance of the great meeting"
 from each representative, Swamiji replied with a quotation from the Gita
-and one from Vyâsa:\]
+and one from Vyāsa:\]
 
 "I am He that am in every religion — like the thread that passes through
 a string of pearls." "Holy, perfect and pure men are seen in all creeds,

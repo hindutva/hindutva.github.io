@@ -26,10 +26,10 @@ loving worshipper does not care *what* God is, because he wants nothing
 from Him. Says an Indian saint, "I am no beggar!" Neither does he fear.
 God is loved as a human being.
 
-Here are some of the systems founded on love. (1) Shânta, a common,
+Here are some of the systems founded on love. (1) Shānta, a common,
 peaceful love, with such thoughts as those of fatherhood and help; (2)
-Dâsya, the ideal of service; God as master or general or sovereign,
-giving punishments and rewards; (3) Vâtsalya, God as mother or child. In
+Dāsya, the ideal of service; God as master or general or sovereign,
+giving punishments and rewards; (3) Vātsalya, God as mother or child. In
 India the mother never punishes. In each of these stages, the worshipper
 forms an ideal of God and follows it. Then (4) Sakhya, God as friend.
 There is here no fear. There is also the feeling of equality and
@@ -37,7 +37,7 @@ familiarity. There are some Hindus who worship God as friend and
 playmate. Next comes (5) Madhura, sweetest love, the love of husband and
 wife. Of this St. Teresa and the ecstatic saints have been examples.
 Amongst the Persians, God has been looked upon as the wife, amongst the
-Hindus as the husband. We may recall the great queen Mirâ Bâi, who
+Hindus as the husband. We may recall the great queen Mirā Bāi, who
 preached that the Divine Spouse was all. Some carry this to such an
 extreme that to call God "mighty" or "father" seems to them blasphemy.
 The language of this worship is erotic. Some even use that of illicit
@@ -140,7 +140,7 @@ banquet of fifty courses. Looking neither to right hand nor to the left,
 follow thou on!
 
 The Swami began by telling, in answer to questions, the story of how
-Pavhâri Bâbâ snatched up his own vessels and ran after the thief, only
+Pavhāri Bābā snatched up his own vessels and ran after the thief, only
 to fall at his feet and say:
 
 "O Lord, I knew not that Thou wert there! Take them! They are Thine!

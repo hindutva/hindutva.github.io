@@ -36,15 +36,15 @@ life.
 Pray to God and to all the prophets and saviours of the world and holy
 spirits in the universe to help you.
 
-Then for half an hour practice Prânâyama or the suspending, restraining,
+Then for half an hour practice Prānāyama or the suspending, restraining,
 and controlling of the breath, mentally repeating the word Om as you
 inhale and exhale the breath. Words charged with spirit have wonderful
 power.
 
-The other stages of Yoga are: (1) Pratyâhâra or the restraint of the
+The other stages of Yoga are: (1) Pratyāhāra or the restraint of the
 organs of sense from all outward things, and directing them entirely to
-mental impressions; (2) Dhâranâ or steadfast concentration; (3) Dhyâna
-or meditation; (4) Samâdhi or abstract meditation. It is the highest and
+mental impressions; (2) Dhāranā or steadfast concentration; (3) Dhyāna
+or meditation; (4) Samādhi or abstract meditation. It is the highest and
 last stage of Yoga. Samadhi is perfect absorption of thought into the
 Supreme Spirit, when one realises. "I and my Father are one."
 

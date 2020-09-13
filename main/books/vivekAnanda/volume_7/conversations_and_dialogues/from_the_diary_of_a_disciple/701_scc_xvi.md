@@ -141,7 +141,7 @@ significance of it and asked Swamiji to explain. Swamiji said, "The wavy
 waters in the picture are symbolic of Karma; the lotus, of Bhakti; and
 the rising-sun, of Jnana. The encircling serpent is indicative of Yoga
 and the awakened Kundalini Shakti, while the sun in the picture stands
-for the Paramâtman (Supreme Self). Therefore the idea of the picture is
+for the Paramātman (Supreme Self). Therefore the idea of the picture is
 that by the union of Karma, Jnana, Bhakti, and Yoga, the vision of the
 Paramatman is obtained."
 

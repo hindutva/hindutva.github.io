@@ -331,7 +331,7 @@ have to speak.
 
 "The teacher was a boy of sixteen; he taught a man of eighty. Silence
 was the method of the teacher; and the doubts of the disciple vanished
-for ever." (*Dakshinâmurti-stotram*, 12 (adapted).) That is the Guru.
+for ever." (*Dakshināmurti-stotram*, 12 (adapted).) That is the Guru.
 Just think, if you find such a man, what faith and love you ought to
 have for that person! Why, he is God Himself, nothing less than that!
 That is why Christ's disciples worshipped him as God. The disciple must
@@ -373,7 +373,7 @@ desire to be free.
 We are like moths plunging into the flaming fire, knowing that it will
 burn us, knowing that the senses only burn us, that they only enhance
 desire. "Desire is never satiated by enjoyment; enjoyment only increases
-desire as butter fed into fire increases the fire." (Bhâgavata, IX.
+desire as butter fed into fire increases the fire." (Bhāgavata, IX.
 xix.14.) Desire is increased by desire. Knowing all this, people still
 plunge into it all the time. Life after life they have been going after
 the objects of desire, suffering extremely in consequence, yet they
@@ -441,7 +441,7 @@ come; possibly my broken leg will get straight."
 Miserable are the diseased people; they are great worshippers of the
 Lord, for they hope that if they pray to Him He will heal them. Not that
 that is altogether bad — if such prayers are honest and if they remember
-that that is not religion. Shri Krishna says in the Gitâ (VII.16), "Four
+that that is not religion. Shri Krishna says in the Gitā (VII.16), "Four
 classes of people worship Me: the distressed, the seeker of material
 things, the inquirer, and the knower of truth." People who are in
 distress approach God for relief. If they are ill, they worship Him to

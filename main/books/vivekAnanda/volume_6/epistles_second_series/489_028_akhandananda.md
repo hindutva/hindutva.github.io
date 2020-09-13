@@ -32,7 +32,7 @@ pilgrimage. But a friend of mine is now a tutor to His Highness the
 Maharaja of Nepal, and a teacher in his school, from whom I have it that
 when the Nepal government send their subsidy to China, they send it via
 Lhasa. A Sadhu contrived in that way to go to Lhasa, China, Manchuria,
-and even to the holy seat of Târâ Devi in north China. We, too, can
+and even to the holy seat of Tārā Devi in north China. We, too, can
 visit with dignity and respect Tibet, Lhasa, China, and all, if that
 friend of mine tries to arrange it. You therefore start immediately for
 Ghazipur. After a few days' stay here with the Babaji, I shall

@@ -54,7 +54,7 @@ desires, he alone is happy."
 This rest, eternal, peaceful rest, I am catching a glimpse of now in
 this beautiful spot. "Having once known that the Atman alone, and
 nothing else, exists, desiring what, or for whose desire, shall you
-suffer misery about the body?" (Brihadâranyaka, IV. iv. 12.)
+suffer misery about the body?" (Brihadāranyaka, IV. iv. 12.)
 
 I feel as if I had my share of experience in what they call "work". I am
 finished, I am longing now to get out. "Out of thousands, but one
@@ -85,7 +85,7 @@ humbug. But few, very few, will ever know this. "Know the Atman alone,
 and give up all other vain words." This is the only knowledge we gain
 from all this knocking about the universe. This is the only work, to
 call upon mankind to "Awake, arise, and stop not till the goal is
-reached". It is renunciation, Tyâga, that is meant by religion, and
+reached". It is renunciation, Tyāga, that is meant by religion, and
 nothing else.
 
 Ishwara is the sum total of individuals; yet He Himself also is an

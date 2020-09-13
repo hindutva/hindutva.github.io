@@ -26,7 +26,7 @@ meaning "that which is heard" — though including the whole of the Vedic
 literature, is chiefly applied by the commentators to the Upanishads.)
 Now, all the books known by the name of the Vedanta were not entirely
 written after the ritualistic portions of the Vedas. For instance, one
-of them — the Ishâ Upanishad — forms the fortieth chapter of the
+of them — the Ishā Upanishad — forms the fortieth chapter of the
 Yajur-Veda, that being one of the oldest parts of the Vedas. There are
 other Upanishads[2](#fn2) which form portions of the Brahmanas or
 ritualistic writings; and the rest of the Upanishads are independent,
@@ -44,16 +44,16 @@ foundation. Even the Buddhists and Jains, when it suits their purpose,
 will quote a passage from the Vedanta as authority. All schools of
 philosophy in India, although they claim to have been based upon the
 Vedas, took different names for their systems. The last one, the system
-of Vyâsa, took its stand upon the doctrines of the Vedas more than the
+of Vyāsa, took its stand upon the doctrines of the Vedas more than the
 previous systems did, and made an attempt to harmonise the preceding
-philosophies, such as the Sânkhya and the Nyâya, with the doctrines of
+philosophies, such as the Sānkhya and the Nyāya, with the doctrines of
 the Vedanta. So it is especially called the Vedanta philosophy; and the
 Sutras or aphorisms of Vyasa are, in modern India, the basis of the
 Vedanta philosophy. Again, these Sutras of Vyasa have been variously
 explained by different commentators. In general there are three sorts of
 commentators[3](#fn3) in India now; from their interpretations have
 arisen three systems of philosophy and sects. One is the dualistic, or
-Dvaita; a second is the qualified non-dualistic, or Vishishtâdvaita; and
+Dvaita; a second is the qualified non-dualistic, or Vishishtādvaita; and
 a third is the non-dualistic, or Advaita. Of these the dualistic and the
 qualified non-dualistic include the largest number of the Indian people.
 The non-dualists are comparatively few in number. Now I will try to lay
@@ -67,9 +67,9 @@ minor particulars.
 All the Vedantists agree on three points. They believe in God, in the
 Vedas as revealed, and in cycles. We have already considered the Vedas.
 The belief about cycles is as follows: All matter throughout the
-universe is the outcome of one primal matter called Âkâsha; and all
+universe is the outcome of one primal matter called Âkāsha; and all
 force, whether gravitation, attraction or repulsion, or life, is the
-outcome of one primal force called Prâna. Prana acting on Akasha is
+outcome of one primal force called Prāna. Prana acting on Akasha is
 creating or projecting[4](#fn4) the universe. At the beginning of a
 cycle, Akasha is motionless, unmanifested. Then Prana begins to act,
 more and more, creating grosser and grosser forms out of Akasha —
@@ -148,7 +148,7 @@ But then the difficulty arises that this would be pantheism. How came
 that Sat which is unchangeable, as they admit (for that which is
 absolute is unchangeable), to be changed into that which is changeable,
 and perishable? The Advaitists here have a theory which they call
-Vivarta Vâda or apparent manifestation. According to the dualists and
+Vivarta Vāda or apparent manifestation. According to the dualists and
 the Sankhyas, the whole of this universe is the evolution of primal
 nature. According to some of the Advaitists and some of the dualists,
 the whole of this universe is evolved from God. And according to the
@@ -159,16 +159,16 @@ used is that of the rope and the snake, where the rope appeared to be
 the snake, but was not really so. The rope did not really change into
 the snake. Even so this whole universe as it exists is that Being. It is
 unchanged, and all the changes we see in it are only apparent. These
-changes are caused by Desha, Kâla and Nimitta (space, time, and
+changes are caused by Desha, Kāla and Nimitta (space, time, and
 causation), or, according to a higher psychological generalization, by
-Nâma and Rupa (name and form). It is by name and form that one thing is
+Nāma and Rupa (name and form). It is by name and form that one thing is
 differentiated from another. The name and form alone cause the
 difference. In reality they are one and the same. Again, it is not, the
 Vedantists say, that there is something as phenomenon and something as
 noumenon. The rope is changed into the snake apparently only; and when
 the delusion ceases, the snake vanishes. When one is in ignorance, he
 sees the phenomenon and does not see God. When he sees God, this
-universe vanishes entirely for him. Ignorance or Mâyâ, as it is called,
+universe vanishes entirely for him. Ignorance or Māyā, as it is called,
 is the cause of all this phenomenon — the Absolute, the Unchangeable,
 being taken as this manifested universe. This Maya is not absolute zero,
 nor non-existence. It is defined as neither existence nor non-existence.
@@ -237,9 +237,9 @@ Society of Harvard University, on March 25, 1896.)
 V.](../../volume_5/questions_and_answers/discussion_at_the_graduate_philosophical.htm))
 
 1.  [^](#tx1)The Vedas are divided mainly into two portions: the
-    Karma-kânda and the Jnâna-kânda — the work-portion and the
+    Karma-kānda and the Jnāna-kānda — the work-portion and the
     knowledge-portion. To the Karma-kanda belong the famous hymns and
-    the rituals of Brâhmanas. Those books which treat of spiritual
+    the rituals of Brāhmanas. Those books which treat of spiritual
     matters apart from ceremonials are called Upanishads. The Upanishads
     belong to the Jnana-kanda, or knowledge-portion. It is not that all
     the Upanishads were composed as a separate portion of the Vedas.
@@ -258,8 +258,8 @@ V.](../../volume_5/questions_and_answers/discussion_at_the_graduate_philosophica
     though of very ancient date, receives a coating, as it were, of
     later events in the hands of the sectarians, to exalt their
     particular sect.
-3.  [^](#tx3)The commentaries are of various sorts such as the Bhâshya,
-    Tikâ, Tippani, Churni, etc., of which all except the Bhashya are
+3.  [^](#tx3)The commentaries are of various sorts such as the Bhāshya,
+    Tikā, Tippani, Churni, etc., of which all except the Bhashya are
     explanations of the text or difficult words in the text. The Bhashya
     is not properly a commentary, but the elucidation of a system of
     philosophy out of texts, the object being not to explain the words,
@@ -267,7 +267,7 @@ V.](../../volume_5/questions_and_answers/discussion_at_the_graduate_philosophica
     his own system, taking texts as authorities for his system. There
     have been various commentaries on the Vedanta. Its doctrines found
     their final expression in the philosophical aphorisms of Vyasa. This
-    treatise, called the Uttara Mimâmsâ, is the standard authority of
+    treatise, called the Uttara Mimāmsā, is the standard authority of
     Vedantism — nay, is the most authoritative exposition of the Hindu
     scriptures. The most antagonistic sects have been compelled, as it
     were, to take up the texts of Vyasa, and harmonise them with their
@@ -276,7 +276,7 @@ V.](../../volume_5/questions_and_answers/discussion_at_the_graduate_philosophica
     sects of dualists, qualified non-dualists, and non dualists. The
     ancient commentaries are perhaps lost; but they have been revived in
     modern times by the post-Buddhistic commentators, Shankara,
-    Râmânuja, and Madhva. Shankara revived the nondualistic form,
+    Rāmānuja, and Madhva. Shankara revived the nondualistic form,
     Ramanuja, the qualified non-dualistic form of the ancient
     commentator Bodhayana; and Madhva, the dualistic form. In India the
     sects differ mainly in their philosophy; the difference in rituals

@@ -29,8 +29,8 @@ India. . . . I have done more for India than India ever did for me. . .
 . I believe in truth, the Lord sends me workers by the scores wherever I
 go — and they are not like the . . . disciples either — they are ready
 to give up their lives for their Guru. Truth is my God, the universe my
-country I do not believe in duty. Duty is the curse of the Samsâri
-(householder), not for the Sannyâsin. Duty is humbug. I am free, my
+country I do not believe in duty. Duty is the curse of the Samsāri
+(householder), not for the Sannyāsin. Duty is humbug. I am free, my
 bonds are cut; what care I where this body goes or does not go. You have
 helped me well right along. The Lord will reward you. I sought praise
 neither from India nor from America, nor do I seek such bubbles. I have

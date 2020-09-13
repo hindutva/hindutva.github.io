@@ -12,7 +12,7 @@ CHAPTER IX
 
 ## THE CHOSEN IDEAL
 
-The next thing to be considered is what we know as Ishta-Nishthâ. One
+The next thing to be considered is what we know as Ishta-Nishthā. One
 who aspires to be a Bhakta must know that "so many opinions are so many
 ways". He must know that all the various sects of the various religions
 are the various manifestations of the glory of the same Lord. "They call
@@ -48,7 +48,7 @@ the realities of human life, by the glorious sons, or human
 manifestations, of God, in the past and in the present, and stands with
 outstretched arms to welcome all — to welcome even those that are yet to
 be — to that Home of Truth and that Ocean of Bliss, wherein the human
-soul, liberated from the net of Mâyâ, may transport itself with perfect
+soul, liberated from the net of Māyā, may transport itself with perfect
 freedom and with eternal joy.
 
 Bhakti-Yoga, therefore, lays on us the imperative command not to hate or
@@ -66,7 +66,7 @@ Religion is with these people a sort of intellectual opium-eating, and
 there it ends. "There is another sort of man", says Bhagavan
 Ramakrishna, "who is like the pearl-oyster of the story. The
 pearl-oyster leaves its bed at the bottom of the sea, and comes up to
-the surface to catch the rain-water when the star Svâti is in the
+the surface to catch the rain-water when the star Svāti is in the
 ascendant. It floats about on the surface of the sea with its shell wide
 open, until it has succeeded in catching a drop of the rain-water, and
 then it dives deep down to its sea-bed, and there rests until it has
@@ -75,10 +75,10 @@ succeeded in fashioning a beautiful pearl out of that rain-drop."
 This is indeed the most poetical and forcible way in which the theory of
 Ishta-Nishtha has ever been put. This Eka-Nishtha or devotion to one
 ideal is absolutely necessary for the beginner in the practice of
-religious devotion. He must say with Hanuman in the Râmâyana, "Though I
-know that the Lord of Shri and the Lord of Jânaki are both
+religious devotion. He must say with Hanuman in the Rāmāyana, "Though I
+know that the Lord of Shri and the Lord of Jānaki are both
 manifestations of the same Supreme Being, yet my all in all is the
-lotus-eyed Râma." Or, as was said by the sage Tulasidâsa, he must say,
+lotus-eyed Rāma." Or, as was said by the sage Tulasidāsa, he must say,
 "Take the sweetness of all, sit with all, take the name of all, say yea,
 yea, but keep your seat firm." Then, if the devotional aspirant is
 sincere, out of this little seed will come a gigantic tree like the

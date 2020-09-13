@@ -18,7 +18,7 @@ THURSDAY, *July 25, 1895*. (*Patanjali's Yoga Aphorisms*)
 upon us is nearly equal.
 
 Complete continence gives great intellectual and spiritual power. The
-Brahmachârin must be sexually pure in thought, word, and deed. Lose
+Brahmachārin must be sexually pure in thought, word, and deed. Lose
 regard for the body; get rid of the consciousness of it so far as
 possible.
 

@@ -62,11 +62,11 @@ that the study of the Vedas is secondary.
 
 The real study is that "by which we realise the Unchangeable", and that
 is neither by reading, nor believing, nor reasoning, but by
-superconscious perception and Samâdhi. When a man has reached that
+superconscious perception and Samādhi. When a man has reached that
 perfect state, he is of the same nature as the Personal God: "I and my
 Father are one." He knows himself one with Brahman, the Absolute, and
 projects himself as does the Personal God. The Personal God is the
-Absolute looked at through the haze of Mâyâ — ignorance.
+Absolute looked at through the haze of Māyā — ignorance.
 
 When we approach Him with the five senses, we can only see Him as the
 Personal God. The idea is that the Self cannot be objectified. How can

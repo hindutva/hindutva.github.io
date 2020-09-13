@@ -58,7 +58,7 @@ And days and nights and years then passed —
 A fire was in the brain;  
 I knew not when day changed in night,  
 The heart seemed rent in twain.  
-I laid me down on Gangâ's shore,  
+I laid me down on Gangā's shore,  
 Exposed to sun and rain;  
 With burning tears I laid the dust  
 And wailed with waters' roar.

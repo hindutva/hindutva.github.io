@@ -105,7 +105,7 @@ cherishing a hostile spirit. Shri Ramakrishna used to say, "Men should
 be ignored like worms." Do you mean we have to conduct ourselves
 according to the chance opinion of others? Pshaw!
 
-Disciple: Sir, you sometimes say, "All are Nârâyanas, the poor and the
+Disciple: Sir, you sometimes say, "All are Nārāyanas, the poor and the
 needy are my Narayanas", and again you say, "Men should be ignored like
 worms." What do you really mean?
 

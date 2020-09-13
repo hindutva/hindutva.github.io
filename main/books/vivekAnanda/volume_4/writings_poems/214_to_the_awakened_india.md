@@ -41,7 +41,7 @@ River tune thy voice to her own immortal song;
 Deodar shades give thee eternal peace.
 
 And all above,  
-Himala's daughter Umâ, gentle, pure,  
+Himala's daughter Umā, gentle, pure,  
 The Mother that resides in all as Power  
 And Life, who works all works and  
 Makes of One the world, whose mercy  

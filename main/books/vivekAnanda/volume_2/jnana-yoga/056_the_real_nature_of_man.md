@@ -106,7 +106,7 @@ ascending series began. It is going up slowly again to reach once more
 that early state of purity. You are all aware of the story of the deluge
 in the Old Testament. The same story was current among the ancient
 Babylonians, the Egyptians, the Chinese, and the Hindus. Manu, a great
-ancient sage, was praying on the bank of the Gangâ, when a little minnow
+ancient sage, was praying on the bank of the Gangā, when a little minnow
 came to him for protection, and he put it into a pot of water he had
 before him. "What do you want?" asked Manu. The little minnow declared
 he was pursued by a bigger fish and wanted protection. Manu carried the
@@ -396,8 +396,8 @@ individuality is really a delusion, that it is ignoble to try to cling
 to this apparent individuality, that very man will tell you that extreme
 self-abnegation is the centre of all morality. And what is perfect
 self-abnegation? It means the abnegation of this apparent self, the
-abnegation of all selfishness. This idea of "me and mine" — Ahamkâra and
-Mamatâ — is the result of past Superstition, and the more this present
+abnegation of all selfishness. This idea of "me and mine" — Ahamkāra and
+Mamatā — is the result of past Superstition, and the more this present
 self passes away, the more the real Self becomes manifest. This is true
 self-abnegation, the centre, the basis, the gist of all moral teaching;
 and whether man knows it or not the whole world is slowly going towards

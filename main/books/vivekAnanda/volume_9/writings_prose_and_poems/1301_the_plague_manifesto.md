@@ -79,7 +79,7 @@ There will be no dearth of help that is physically possible. By the
 grace of the Mother, monetary help will also be possible.
 
 — N. B. In order to remove the fear of the epidemic, you should sing
-Nâma Sankirtanam \[the name of the Lord\] every evening and in every
+Nāma Sankirtanam \[the name of the Lord\] every evening and in every
 locality.
 
 [→](one_circle_more.htm)

@@ -15,7 +15,7 @@ title: X
 (From the Diary of a Disciple)
 
 (The disciple is Sharatchandra Chakravarty, who published his records in
-a Bengali book, *Swami-Shishya-Samvâda*, in two parts. The present
+a Bengali book, *Swami-Shishya-Samvāda*, in two parts. The present
 series of "Conversations and Dialogues" is a revised translation from
 this book. Five dialogues of this series have already appeared in the
 *Complete Works*, [Vol.
@@ -45,7 +45,7 @@ Sannyasa.
 
 The disciple had been staying at the Math for the last two days, when
 Swamiji called him and said: "Well, you belong to the priestly class;
-tomorrow you get them to perform their Shrâddha, and the next day I
+tomorrow you get them to perform their Shrāddha, and the next day I
 shall give them Sannyasa. So get yourself ready by consulting the books
 of ceremonials today." The disciple bowed this mandate of Swamiji, and
 the ceremony was duly gone through.
@@ -79,7 +79,7 @@ self-consolation of cryptopleasure-seekers. He who has the slightest
 desire for worldly pleasures, even a shred of some such craving, will
 feel frightened at the thought of the path you are going to tread; so,
 to give himself some consolation he goes about preaching that impossible
-creed of harmonising Bhoga and Tyâga. That is all the raving of
+creed of harmonising Bhoga and Tyāga. That is all the raving of
 lunatics, the frothing of the demented — idle theories contrary to the
 scriptures, contrary to the Vedas. No freedom without renunciation.
 Highest love for God can never be achieved without renunciation.
@@ -97,13 +97,13 @@ It is only after freeing oneself from all this thraldom that one can get
 on along the way of freedom. Let people argue as loud as they please, I
 have got this conviction that unless all these bonds are given up,
 unless the monastic life is embraced, none is going to be saved, no
-attainment of Brahmajnâna is possible.
+attainment of Brahmajnāna is possible.
 
 Disciple: Do you mean, sir, that merely taking up Sannyasa will lead one
 to the goal?
 
 Swamiji: Whether the goal is attained or not is not the point before us
-now. But until you get out of this wheel of Samsâra, until the slavery
+now. But until you get out of this wheel of Samsāra, until the slavery
 of desire is shaken off, you can't attain either Bhakti or Mukti. To the
 knower of Brahman, supernatural powers or prosperity are mere
 trivialities.
@@ -113,7 +113,7 @@ different kinds of it?
 
 Swamiji: There is no special time prescribed for a life of Sannyasa. The
 Shruti says: "यदहरेव विरजेत् तदहरेव प्रव्रहेत् — Directly the spirit of
-renunciation comes, you should take to Sannyasa." The *Yogavâsishtha*
+renunciation comes, you should take to Sannyasa." The *Yogavāsishtha*
 also says:
 
 युवैव धर्मशीलः स्यात् अनित्यं खलु जीवितम्।  
@@ -123,11 +123,11 @@ also says:
 to religion even in one's youth. For who knows when one's body may fall
 off?"
 
-The Shâstras are found to speak of four kinds of Sannyasa: (1) Vidvat,
-(2) Vividishâ, (3) Markata, (4) Âtura. The awakening of real
+The Shāstras are found to speak of four kinds of Sannyasa: (1) Vidvat,
+(2) Vividishā, (3) Markata, (4) Âtura. The awakening of real
 renunciation all at once and the consequent giving up of the world
 through Sannyasa is something that never happens unless there are strong
-Samskâras or tendencies, developed from previous birth. And this is
+Samskāras or tendencies, developed from previous birth. And this is
 called the Vidvat Sannyasa. Vividisha Sannyasa is the case of one who,
 out of a strong yearning for the knowledge of the Self through the
 pursuit of scriptural study and practice, goes to the man of realisation
@@ -158,7 +158,7 @@ renunciation comes, there is an end of all troubles — with no further
 delay he gets across this mystery of life and death. But then all rules
 have their exceptions. A few men, one or two, may be seen to attain the
 highest freedom by the true fulfilment of the householder's Dharma, as
-we have amongst us Nâg Mahâshaya, for instance.
+we have amongst us Nāg Mahāshaya, for instance.
 
 Disciple: Sir, even the Upanishads etc. do not clearly teach about
 renunciation and Sannyasa.
@@ -181,7 +181,7 @@ Swamiji: Who says that? The monastic institution was there, but the
 generality of people did not recognise it as the goal of life; there was
 no such staunch spirit for it, there was no such firmness in spiritual
 discrimination. So even when Buddha betook himself to so many Yogis and
-Sâdhus, nowhere did he acquire the peace he wanted. And then to realise
+Sādhus, nowhere did he acquire the peace he wanted. And then to realise
 the Highest he fell back on his own exertions, and seated on a spot with
 the famous words, "इहासने शुष्यतु मे शरीरं — Let my body wither away on
 this seat" etc., rose from it only after becoming the Buddha, the
@@ -195,7 +195,7 @@ Swami Ramakrishnananda, a brother-disciple of Swamiji, interposed, "But
 the ancient law-books and Puranas are good authority that all the four
 Ashramas had existed in India before Buddha was born." Swamiji replied,
 "Most of the Puranas, the codes of Manu and others, as well as much of
-the Mahâbhârata form but recent literature. Bhagavân Buddha was much
+the Mahābhārata form but recent literature. Bhagavān Buddha was much
 earlier than all that." "On that supposition," rejoined Swami
 Ramakrishnananda, "discussions about Buddhism would be found in the
 Vedas, Upanishads, the law-books, Puranas, and the like. But since such

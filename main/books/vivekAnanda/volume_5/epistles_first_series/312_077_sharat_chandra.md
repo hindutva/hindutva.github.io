@@ -74,7 +74,7 @@ Shiva-form, by whose power we and the whole world are blessed.
 Mayest thou live long, O Sharat Chandra! (Sharat Chandra Chakravarty, a
 disciple of Swamiji.)
 
-Those writers of Shâstra who do not tend towards work say that
+Those writers of Shāstra who do not tend towards work say that
 all-powerful destiny prevails; but others who are workers consider the
 will of man as superior. Knowing that the quarrel between those who
 believe in the human will as the remover of misery and others who rely
@@ -83,7 +83,7 @@ of knowledge.
 
 It has been said that adversity is the touchstone of true knowledge, and
 this may be said a hundred times with regard to the truth: "Thou art
-That." This truly diagnoses the Vairâgya (dispassion) disease. Blessed
+That." This truly diagnoses the Vairāgya (dispassion) disease. Blessed
 is the life of one who has developed this symptom. In spite of your
 dislike I repeat the old saying: "Wait for a short time." You are tired
 with rowing; rest on your oars. The momentum will take the boat to the
@@ -102,10 +102,10 @@ the All-pervading Lord, residing as the Self and Internal Ruler in all.
 He is perceivable by all as the sum total. This being so, as Jiva and
 Ishvara are in essence the same, serving the Jivas and loving God must
 mean one and the same thing. Here is a peculiarity: when you serve a
-Jiva with the idea that he is a Jiva, it is Dayâ (compassion) and not
+Jiva with the idea that he is a Jiva, it is Dayā (compassion) and not
 Prema (love); but when you serve him with the idea that he is the Self,
 that is Prema. That the Atman is the one objective of love is known from
-Shruti, Smriti, and direct perception. Bhagavân Chaitanya was right,
+Shruti, Smriti, and direct perception. Bhagavān Chaitanya was right,
 therefore, when he said, "Love to God and compassion to the Jivas". This
 conclusion of the Bhagavan, intimating differentiation between Jiva and
 Ishvara, was right, as He was a dualist. But for us, Advaitists, this
@@ -116,9 +116,9 @@ and vain. For us, it is not to pity but to serve. Ours is not the
 feeling of compassion but of love, and the feeling of Self in all.
 
 For thy good, O Sharman, may thine be Vairagya, the feeling of which is
-love, which unifies all inequalities, cures the disease of Samsâra,
+love, which unifies all inequalities, cures the disease of Samsāra,
 removes the threefold misery, inevitable in this phenomenal world,
-reveals the true nature of all things, destroys the darkness of Mâyâ,
+reveals the true nature of all things, destroys the darkness of Māyā,
 and which brings out the Selfhood of everything from Brahma to the blade
 of grass!
 

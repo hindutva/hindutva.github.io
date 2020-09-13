@@ -23,7 +23,7 @@ nature of the food itself, as in the case of garlic etc.; (2) owing to
 its coming from wicked and accursed persons; and (3) from physical
 impurities, such as dirt, or hair, etc. The Shrutis say, When the food
 is pure, the Sattva element gets purified, and the memory becomes
-unwavering", and Ramanuja quotes this from the Chhândogya Upanishad.
+unwavering", and Ramanuja quotes this from the Chhāndogya Upanishad.
 
 The question of food has always been one of the most vital with the
 Bhaktas. Apart from the extravagance into which some of the Bhakti sects
@@ -43,8 +43,8 @@ masters.
 
 And this discrimination of food is, after all, of secondary importance.
 The very same passage quoted above is explained by Shankara in his
-Bhâshya on the Upanishads in a different way by giving an entirely
-different meaning to the word Âhâra, translated generally as food.
+Bhāshya on the Upanishads in a different way by giving an entirely
+different meaning to the word Âhāra, translated generally as food.
 According to him, "That which is gathered in is Ahara. The knowledge of
 the sensations, such as sound etc., is gathered in for the enjoyment of
 the enjoyer (self); the purification of the knowledge which gathers in
@@ -68,7 +68,7 @@ teachers; but the extravagant, meaningless fanaticism, which has driven
 religion entirely to the kitchen, as may be noticed in the case of many
 of our sects, without any hope of the noble truth of that religion ever
 coming out to the sunlight of spirituality, is a peculiar sort of pure
-and simple materialism. It is neither Jnâna, nor Bhakti, nor Karma; it
+and simple materialism. It is neither Jnāna, nor Bhakti, nor Karma; it
 is a special kind of lunacy, and those who pin their souls to it are
 more likely to go to lunatic asylums than to Brahmaloka. So it stands to
 reason that discrimination in the choice of food is necessary for the
@@ -87,7 +87,7 @@ mind to think of the Lord always, but with every new effort the power to
 do so grows stronger in us. "By practice, O son of Kunti, and by
 non-attachment is it attained", says Shri Krishna in the Gita. And then
 as to sacrificial work, it is understood that the five great sacrificed
-(To gods, sages, manes, guests, and all creatures.) (Panchamahâyajna)
+(To gods, sages, manes, guests, and all creatures.) (Panchamahāyajna)
 have to be performed as usual.
 
 Purity is absolutely the basic work, the bed-rock upon which the whole
@@ -95,9 +95,9 @@ Bhakti-building rests. Cleansing the external body and discriminating
 the food are both easy, but without internal cleanliness and purity,
 these external observances are of no value whatsoever. In the list of
 qualities conducive to purity, as given by Ramanuja, there are
-enumerated, Satya, truthfulness; Ârjava, sincerity; Dayâ, doing good to
-others without any gain to one's self; Ahimsâ, not injuring others by
-thought, word, or deed; Anabhidhyâ, not coveting others' goods, not
+enumerated, Satya, truthfulness; Ârjava, sincerity; Dayā, doing good to
+others without any gain to one's self; Ahimsā, not injuring others by
+thought, word, or deed; Anabhidhyā, not coveting others' goods, not
 thinking vain thoughts, and not brooding over injuries received from
 another. In this list, the one idea that deserves special notice is
 Ahimsa, non-injury to others. This duty of non-injury is, so to speak,
@@ -139,7 +139,7 @@ at all external forms and never lets them go. The forms have value only
 so far as they are expressions of the life within. If they have ceased
 to express life, crush them out without mercy.
 
-The next means to the attainment of Bhakti-Yoga is strength (Anavasâda).
+The next means to the attainment of Bhakti-Yoga is strength (Anavasāda).
 "This Atman is not to be attained by the weak", says the Shruti. Both
 physical weakness and mental weakness are meant here. "The strong, the
 hardy" are the only fit students. What can puny, little, decrepit things

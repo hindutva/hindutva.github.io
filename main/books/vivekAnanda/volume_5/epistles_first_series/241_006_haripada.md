@@ -71,7 +71,7 @@ associations are there for the well-being of the poor? How many people
 really weep for the sorrows and sufferings of the millions of poor in
 India? Are we *men*? What are we doing for their livelihood, for their
 improvement? We do not touch them, we avoid their company! Are we men?
-Those thousands of Brâhmanas — what are they doing for the low,
+Those thousands of Brāhmanas — what are they doing for the low,
 downtrodden masses of India? "Don't touch", "Don't touch", is the only
 phrase that plays upon their lips! How mean and degraded has our eternal
 religion become at their hands! Wherein does our religion lie now? In

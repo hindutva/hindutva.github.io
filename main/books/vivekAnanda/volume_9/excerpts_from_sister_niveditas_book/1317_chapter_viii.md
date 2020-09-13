@@ -26,7 +26,7 @@ JULY 16.
 
 It fell to the lot of one of the Swami's disciples next day to go down
 the river with him in a small boat. As it went, he chanted one song
-after another of Râmprasâd, and now and again he would translate a
+after another of Rāmprasād, and now and again he would translate a
 verse:
 
 I call upon thee, Mother.  
@@ -43,7 +43,7 @@ JULY 17.
 
 It must have been next day that he came into Dhira Mata's Dunga and
 talked of Bhakti. First it was that curious Hindu thought of Shiva and
-Umâ in one. It is easy to give the words, but without the voice how
+Umā in one. It is easy to give the words, but without the voice how
 comparatively dead they seem! And then there were the wonderful
 surroundings — picturesque Srinagar, tall Lombardy poplars and distant
 snows. There in that river-valley, some space from the foot of the great
@@ -54,7 +54,7 @@ black, beautiful and in curls; on the other, twisted like rope". And
 then passing immediately into the other form of the same thought, he
 quoted:
 
-God became Krishna and Râdhâ —  
+God became Krishna and Rādhā —  
 Love flows in thousands of coils.  
 Whoso wants, takes it.  
 Love flows in thousands of coils —  
@@ -81,7 +81,7 @@ JULY 19.
 
 The first afternoon, in a wood by the side of the Jhelum, we discovered
 the long — sought temple of Pandrenthan (Pandresthan, place of the
-Pândavas?).
+Pāndavas?).
 
 It was sunk in a pond, and this was thickly covered with scum out of
 which it rose, a tiny cathedral of the long ago, built of heavy grey
@@ -108,7 +108,7 @@ Outside, carvings were similarly distributed. In one of the trefoil
 arches — over, I think, the eastern door — was a fine image of the
 Teaching Buddha, standing, with his hand uplifted. Running round the
 buttresses was a much-defaced frieze of a seated woman with a tree —
-evidently Mâyâ Devi, the mother of Buddha. The three other door-niches
+evidently Māyā Devi, the mother of Buddha. The three other door-niches
 were empty, but a slab by the pond-side seemed to have fallen from one,
 and this contained a bad figure of a king, said by the country-people to
 represent the sun.
@@ -175,7 +175,7 @@ opponent. "How could they be the same? You have nothing even
 corresponding to the central rite of our worship!"
 
 "Why, yes!" said the Swami. "Vedic ritual has its Mass, the offering of
-food to God; your Blessed Sacrament, our Prasâdam. Only it is offered
+food to God; your Blessed Sacrament, our Prasādam. Only it is offered
 sitting, not kneeling, as is common in hot countries. They kneel in
 Tibet. Then too Vedic ritual has its lights, incense, music."
 
@@ -214,7 +214,7 @@ Jesuitry — 'by all means save souls' — isn't it?
 with historic distinctness — having been fortunate enough to have, while
 they were living, enemies as well as friends. Krishna — I doubt; a Yogi,
 a shepherd, and a great king have all been amalgamated in one beautiful
-figure, holding the Gitâ in his hand.
+figure, holding the Gitā in his hand.
 
 "Renan's life of Jesus is mere froth. It does not touch Strauss, the
 real antiquarian. Two things stand out as personal living touches in the
@@ -240,7 +240,7 @@ never drew a breath for himself. Above all, he never claimed worship. He
 said, 'Buddha is not a man, but a state. I have found the door. Enter,
 all of you!'
 
-"He went to the feast of Ambâpâli, 'the sinner'. He dined with the
+"He went to the feast of Ambāpāli, 'the sinner'. He dined with the
 pariah, though he knew it would kill him, and sent a message to his host
 on his death-bed, thanking him for the great deliverance. Full of love
 and pity for a little goat, even before he had attained the truth! You

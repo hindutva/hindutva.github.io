@@ -47,8 +47,8 @@ an Ishvara.
 
 Swamiji: The highest principle, the Lord of all, cannot be a Person. The
 Jiva is an individual and the sum total of all Jivas is the Ishvara. In
-the Jiva, Avidyâ, or nescience, is predominant, but Ishvara controls
-Maya composed of Avidya and Vidyâ and independently projects this world
+the Jiva, Avidyā, or nescience, is predominant, but Ishvara controls
+Maya composed of Avidya and Vidyā and independently projects this world
 of moving and immovable things out of Himself. But Brahman transcends
 both the individual and collective aspects, the Jiva and Ishvara. In
 Brahman there is no part. It is for the sake of easy comprehension that
@@ -96,7 +96,7 @@ within. The knowledge of Brahman is the one goal of all beings but the
 various ideas are the various paths to it. Although the real nature of
 the Jiva is Brahman, still as he has identification with the qualifying
 adjunct of the mind, he suffers from all sorts of doubts and
-difficulties, pleasure and pain. But everyone from Brahmâ down to a
+difficulties, pleasure and pain. But everyone from Brahmā down to a
 blade of grass is advancing towards the realisation of his real nature.
 And none can escape the round of births and deaths until he realises his
 identity with Brahman. Getting the human birth, when the desire for
@@ -125,7 +125,7 @@ Brahman, which is difficult to attain, is not realised. Without
 dispassion for the world, without renunciation, without giving up the
 desire for enjoyment, absolutely nothing can be accomplished in the
 spiritual life. "It is not like a sweetmeat in the hands of a child
-which you can snatch by a trick." (Song of Râmaprâsad.)
+which you can snatch by a trick." (Song of Rāmaprāsad.)
 
 Disciple: But, sir, in the course of spiritual practices, that
 renunciation may come.
@@ -207,7 +207,7 @@ thus plunging it repeatedly in this. Then only you will realise the
 Essence of Intelligence, or be established in your real nature. Knower
 and known, meditator and the object meditated upon will then become one,
 and the cessation of all phenomenal superimpositions will follow. This
-is styled in the Shâstras as the transcendence of the triad or relative
+is styled in the Shāstras as the transcendence of the triad or relative
 knowledge (Triputibheda). There is no relative or conditioned knowledge
 in this state. When the Atman is the only knower, by what means can you
 possibly know It? The Atman is Knowledge, the Atman is Intelligence, the
@@ -218,7 +218,7 @@ Brahman. This is generally known as the conscious state. And the state
 in which this duality of relative existence becomes one in the pure
 Brahman is called in the scriptures the superconscious state and
 described in such words as, "स्तिमितसलिलराशिप्रख्यमाख्याविहीनम् — It is
-like an ocean perfectly at rest and without a name" (*Vivekachudâmani*,
+like an ocean perfectly at rest and without a name" (*Vivekachudāmani*,
 410).
 
 Swamiji spoke these words as if from the profound depths of his
@@ -236,7 +236,7 @@ perceived: "I am the only reality; I am the all-pervading Atman, and I
 am the proof of my own existence." Where is the room for a separate
 proof to establish the reality of my existence? I am, as the scriptures
 say, "नित्यमस्मत्प्रसिद्धम् — Always known to myself as the eternal
-subject" (*Vivekachudâmani*, 409). I have seen that state, realised it.
+subject" (*Vivekachudāmani*, 409). I have seen that state, realised it.
 You also see and realise it and preach this truth of Brahman to all.
 Then only will you attain to peace.
 
@@ -327,7 +327,7 @@ Mantras — "तत्वमसि — Thou art That, "सोऽहमस्म�
 खल्विदं ब्रह्म — All this is verily Brahman" — and have the courage of a
 lion in the heart. What is there to fear? Fear is death — fear is the
 greatest sin. The human soul, represented by Arjuna, was touched with
-fear. Therefore Bhagavân Shri Krishna, established in the Atman, spoke
+fear. Therefore Bhagavān Shri Krishna, established in the Atman, spoke
 to him the teachings of the Gita. Still his fear would not leave him.
 Later, when Arjuna saw the Universal Form of the Lord, and became
 established in the Atman, then with all bondages of Karma burnt by the

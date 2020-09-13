@@ -19,11 +19,11 @@ U. S. A.,
 DEAR ALASINGA,
 
 . . . Push on with the work. I will do all I can. . . . If it pleases
-the Lord, yellow-garbed Sannyâsins will be common here and in England.
+the Lord, yellow-garbed Sannyāsins will be common here and in England.
 Work on, my children.
 
 Mind, so long as you have faith in your Guru, nothing will be able to
-obstruct your way. That translation of the three Bhâshyas (commentaries)
+obstruct your way. That translation of the three Bhāshyas (commentaries)
 will be a great thing in the eyes of the Westerners.
 
 . . . Wait, my child, wait and work on. Patience, patience. . . . I will

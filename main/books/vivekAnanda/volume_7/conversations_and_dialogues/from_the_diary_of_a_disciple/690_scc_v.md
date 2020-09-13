@@ -20,7 +20,7 @@ V
 The Math is still situated in Nilambar Babu's garden house at Belur. It
 is the month of November. Swamiji is now much engaged in the study and
 discussion of Sanskrit scriptures. The couplet beginning with
-"*Âchandâlâ-pratihatarayah*", he composed about this time. Today Swamiji
+"*Âchandālā-pratihatarayah*", he composed about this time. Today Swamiji
 composed the hymn, "*Om Hring Ritam*" etc., and handing it over to the
 disciple said, "See if there is any metrical defect in these stanzas."
 The disciple made a copy of the poem for this purpose.
@@ -47,7 +47,7 @@ breaking, yielding place to a new mould by degrees. Society is
 protesting much against it — but is it of any avail? Neither are we
 frightened by that. The Sannyasins of the present day have to go to
 distant countries for preaching, and if they go in an ash-besmeared,
-half-nude body like the Sâdhus (holy men) of old, in the first place
+half-nude body like the Sādhus (holy men) of old, in the first place
 they won't be taken on board the ships, and even if they anyhow reach
 foreign countries in that dress, they will have to stay in jail.
 Everything requires to be changed a little according to place, time, and
@@ -64,7 +64,7 @@ quick breathing, and indicates that there is not much vitality in the
 language; that is why one cannot lecture well in the Bengali language.
 He who has control over his language, does not make frequent breaks in
 his thoughts. As your physique has been rendered languid by living on a
-dietary of boiled rice and *dâl*, similar is the case with your
+dietary of boiled rice and *dāl*, similar is the case with your
 language. In food, in modes of life, in thought, and in language, energy
 has to be infused. With the infusion of vitality all round and the
 circulation of blood in all arteries and veins, one should feel the
@@ -108,7 +108,7 @@ the body by good nutritious food — then only will the mind be strong.
 The mind is but the subtle part of the body. You must retain great
 strength in your mind and words. "I am low, I am low" — repeating these
 ideas in the mind, man belittles and degrades himself. Therefore, the
-Shastra (*Ashtâvakra Samhita*, I. 11) says:
+Shastra (*Ashtāvakra Samhita*, I. 11) says:
 
 "मुक्ताभिमानी मुक्तो हि बद्धो बद्धाभिमान्यपि।  
 किम्वदन्तीह सत्येयं या मतिः सा गतिर्भवेत्॥
@@ -133,7 +133,7 @@ Therefore the Shruti says (Katha Upanishad, II. iii, 3) says:
 भयादिन्द्रश्च वायुश्च मृत्युर्धावति पञ्चमः॥
 
 — Through fear of this, fire burns, the sun heats; through fear Indra
-and Vâyu are carrying on their functions, and Death stalks upon this
+and Vāyu are carrying on their functions, and Death stalks upon this
 earth." When the gods Indra, Chandra, Vayu, Varuna will attain to
 fearlessness, then will they be one with Brahman, and all this phantasm
 of the world will vanish. Therefore I say, "Be fearless, be fearless."
@@ -168,9 +168,9 @@ scriptures."
 
 Swamiji: No! Scriptures have to be studied also. For the attainment of
 Jnana, study of scriptures is essential. I shall soon open classes in
-the Math for them. The Vedas, Upanishads, the Gita, and *Bhâgavata*
-should be studied in the classes, and I shall teach the Pânini's
-*Ashtâdhyâyai*.
+the Math for them. The Vedas, Upanishads, the Gita, and *Bhāgavata*
+should be studied in the classes, and I shall teach the Pānini's
+*Ashtādhyāyai*.
 
 Disciple: Have you studied the *Ashtadhayayi* of Panini?
 

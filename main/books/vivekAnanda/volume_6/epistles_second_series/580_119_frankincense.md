@@ -17,7 +17,7 @@ title: CXIX
 
 DEAR FRANKINCENSE,
 
-So Gopâla[1](#fn1) has taken the female form! It is fit that it should
+So Gopāla[1](#fn1) has taken the female form! It is fit that it should
 be so — the time and the place considering. May all blessings follow her
 through life. She was keenly desired, prayed for, and she comes as a
 blessing to you and to your wife for life. I have not the least doubt.

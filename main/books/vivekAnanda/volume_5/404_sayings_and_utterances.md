@@ -131,7 +131,7 @@ philosophers have taken this view.
 declare that even the study of the Vedas is secondary. The real study is
 "that by which we *realise* the Unchangeable". And that is neither
 reading, for believing, nor reasoning, but superconscious perception, or
-Samâdhi.
+Samādhi.
 
 37\. We have been low animals once. We think they are something
 different from us. I hear, Western people say, "The world was created
@@ -191,7 +191,7 @@ there were more dreamers. There is a good deal of difference between
 dreaming and the brag of the nineteenth century. The whole world is full
 of God and not of sin. Let us help one another, let us love one another.
 
-41\. Let me die a true Sannyâsin as my Master did, heedless of money, of
+41\. Let me die a true Sannyāsin as my Master did, heedless of money, of
 women, and of fame! And of these the most insidious is the love of fame!
 
 42\. I have never spoken of revenge, I have always spoken of strength.
@@ -216,7 +216,7 @@ discovered it alike in Hinduism, in Islam, and in Christianity.
 46\. Give the organ of taste a free rein, and the other organs will also
 run on unbridled.
 
-47\. Jnâna, Bhakti, Yoga and Karma — these are the four paths which lead
+47\. Jnāna, Bhakti, Yoga and Karma — these are the four paths which lead
 to salvation. One must follow the path for which one is best suited; but
 in this age special stress should be laid on Karma-Yoga.
 
@@ -250,19 +250,19 @@ strength, and this, in the long run, swallows up all the contemporary
 movements.
 
 56\. When Swamiji was at Ramnad, he said in the course of a conversation
-that Shri Râma was the Paramâtman and that Sitâ was the Jivâtman, and
+that Shri Rāma was the Paramātman and that Sitā was the Jivātman, and
 each man's or woman's body was the Lanka (Ceylon). The Jivatman which
-was enclosed in the body, or captured in the island of Lankâ, always
+was enclosed in the body, or captured in the island of Lankā, always
 desired to be in affinity with the Paramatman, or Shri Rama. But the
-Râkshasas would not allow it, and Rakshasas represented certain traits
-of character. For instance, Vibhishana represented Sattva Guna; Râvana,
+Rākshasas would not allow it, and Rakshasas represented certain traits
+of character. For instance, Vibhishana represented Sattva Guna; Rāvana,
 Rajas; and Kumbhakarna, Tamas. Sattva Guna means goodness; Rajas means
 lust and passions, and Tamas darkness, stupor, avarice, malice, and its
 concomitants. These Gunas keep back Sita, or Jivatman, which is in the
 body, or Lanka, from joining Paramatman, or Rama. Sita, thus imprisoned
-and trying to unite with her Lord, receives a visit from Hanumân, the
+and trying to unite with her Lord, receives a visit from Hanumān, the
 Guru or divine teacher, who shows her the Lord's ring, which is
-Brahma-Jnâna, the supreme wisdom that destroys all illusions; and thus
+Brahma-Jnāna, the supreme wisdom that destroys all illusions; and thus
 Sita finds the way to be at one with Shri Rama, or, in other words, the
 Jivatman finds itself one with the Paramatman.
 
@@ -329,7 +329,7 @@ ever I feel like blaspheming, it; is when I call you man.
 
 70\. If I do not find bliss in the life of the Spirit, shall, I seek
 satisfaction in the life of the senses? If I cannot get nectar; shall I
-fall back upon ditch water? The bird called Châtaka drinks from the
+fall back upon ditch water? The bird called Chātaka drinks from the
 clouds only, ever calling as it soars, "Pure water! Pure water!" And no
 storms or tempests make it falter on wing or descend to drink from the
 earth.
@@ -413,7 +413,7 @@ the heart become illumined at the same moment; and then only, as says
 the Upanishad, "The knot of the heart is rent asunder, and all doubts
 cease" (Mundaka Upanishad, II.ii.8).
 
-When in ancient times this knowledge (Jnâna) and this feeling (Bhâva)
+When in ancient times this knowledge (Jnāna) and this feeling (Bhāva)
 thus blossomed forth simultaneously in the heart of the Rishi, then the
 Highest Truth became poetic, and then the Vedas and other scriptures
 were composed. It is for this reason that one finds, in studying them,

@@ -27,8 +27,8 @@ to the Resident telling him that you have already given an introduction
 to me.
 
 Will you kindly ask Jagamohan to write to the Dewan of Kishangarh
-reminding him of his promise to supply me with copies of Nimbârka
-Bhâshya on the *Vyâsa-Sutras* and other Bhashyas (commentaries) through
+reminding him of his promise to supply me with copies of Nimbārka
+Bhāshya on the *Vyāsa-Sutras* and other Bhashyas (commentaries) through
 his Pandits.
 
 With all love and blessings,

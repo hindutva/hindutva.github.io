@@ -12,10 +12,10 @@ Discourses](lectures_and_discourses_contents.htm) /
 
   
 
-*\[A Jnâna-Yoga class delivered in New York, Wednesday, December 11,
+*\[A Jnāna-Yoga class delivered in New York, Wednesday, December 11,
 1895, and recorded by Swami Kripananda\]*
 
-The word *Jnâna* means knowledge. It is derived from the root *Jnâ* — to
+The word *Jnāna* means knowledge. It is derived from the root *Jnā* — to
 know — the same word from which your English word to *know* is derived.
 Jnana-Yoga is Yoga by means of knowledge. What is the object of the
 Jnana-Yoga? Freedom. Freedom from what? Freedom from our imperfections,
@@ -309,7 +309,7 @@ reasoning is all right until it breaks my ideals. Stop there!" That man
 would never be a Jnani. That man will carry his bondage all his life and
 his lives to come. Again and again he will come under the power of
 death. Such men are not made for Jnana. There are other methods for them
-— such as bhakti-yoga, Karma-Yoga, or Râja-Yoga — but not Jnana-Yoga.
+— such as bhakti-yoga, Karma-Yoga, or Rāja-Yoga — but not Jnana-Yoga.
 
 I want to prepare you by saying that this method can be followed only by
 the boldest. Do not think that the man who believes in no church or
@@ -436,7 +436,7 @@ All the power of knowledge and wealth once made has passed away — all
 the sciences of the ancients, lost, lost forever. Nobody knows how. That
 teaches us a grand lesson. Vanity of vanities; all is vanity and
 vexation of the spirit. If we have seen all this, then we become
-disgusted with this world and all it offers us. This is called Vairâgya,
+disgusted with this world and all it offers us. This is called Vairāgya,
 non-attachment, and is the first step towards knowledge.
 
 The natural desire of man is to go towards the senses. Turning away from

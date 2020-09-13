@@ -15,7 +15,7 @@ title: I
 (From the Diary of a Disciple)
 
 (The disciple is Sharatchandra Chakravarty, who published his records in
-a Bengali book, *Swami-Shishya-Samvâda*, in two parts. The present
+a Bengali book, *Swami-Shishya-Samvāda*, in two parts. The present
 series of "Conversations and Dialogues" is a revised translation from
 this book. Five dialogues of this series have already appeared in the
 *Complete Works*, [Vol.
@@ -45,8 +45,8 @@ and introduced him. After his return to the Math, the Swami had already
 heard about him, having read a Hymn on Shri Ramakrishna composed by the
 disciple.
 
-Swamiji also had come to know that the disciple used to visit Nâg
-Mahâshaya, a foremost devotee of Shri Ramakrishna.[1](#fn1)
+Swamiji also had come to know that the disciple used to visit Nāg
+Mahāshaya, a foremost devotee of Shri Ramakrishna.[1](#fn1)
 
 When the disciple prostrated himself before him and took his seat,
 Swamiji addressed him in Sanskrit and asked him about Nag Mahashaya and
@@ -55,14 +55,14 @@ unbounded love for God, and his humility, he said:
 
 "वयं तत्त्वान्वेषात् हला मधुकर त्वं खलुकृती।"  
 (Words addressed by King Dushyanta to the bee which was teasing
-Shakuntalâ by darting at her lips — Kalidasa's *Shâkuntalam*.)
+Shakuntalā by darting at her lips — Kalidasa's *Shākuntalam*.)
 
 — "We are undone by our vain quest after reality; while, O bee, you are
 indeed blessed with success!" He then asked the disciple to send these
 words to Nag Mahashaya. Afterwards, finding it rather inconvenient to
 talk to the disciple in the crowd, he called him and Swami Turiyananda
 to a small room to the west and, addressing himself to the disciple,
-began to recite these words from the *Vivekachudâmani* (43):
+began to recite these words from the *Vivekachudāmani* (43):
 
 "मा भैष्ट विद्वंस्तव नास्त्यपायः  
 संसारसिन्धोस्तरणेऽस्त्युपायः।  
@@ -72,14 +72,14 @@ began to recite these words from the *Vivekachudâmani* (43):
 — "O wise one, fear not; you have not to perish. Means there are for
 crossing the ocean of this round of birth and death. I shall show you
 the same way by which holy men of renunciation have crossed this ocean."
-He then asked him to read Âchârya Shankara's work named
-*Vivekachudâmani*.
+He then asked him to read Âchārya Shankara's work named
+*Vivekachudāmani*.
 
 At these words, the disciple went on musing within himself. Was the
 Swami in this way hinting at the desirability of his own formal
 initiation? The disciple was at that time a staunch orthodox man in his
 ways, and a Vedantin. He had not yet settled his mind as regards the
-adoption of a Guru and was a devoted advocate of Varnâshrama or caste
+adoption of a Guru and was a devoted advocate of Varnāshrama or caste
 ordinances.
 
 While various topics were going on, a man came in and announced that Mr.
@@ -157,7 +157,7 @@ astonishingly contemplated his luminous features with steadfast gaze.
 When Narendra Babu had departed, an enthusiastic preacher belonging to
 the society for the protection of cows came for an interview with
 Swamiji. He was dressed almost like a Sannyasin, if not fully so — with
-a Geruâ turban on the head; he was evidently an up-country Indian. At
+a Geruā turban on the head; he was evidently an up-country Indian. At
 the announcement of this preacher of cow-protection Swamiji came out to
 the parlour room. The preacher saluted Swamiji and presented him with a
 picture of the mother-cow. Swamiji took that in his hand and, making it
@@ -212,7 +212,7 @@ animals is no exception. With regard to your cause also, it can be said
 butchers and die, and we need not do anything in the matter."
 
 The preacher was a little abashed and said: "Yes, what you say is true,
-but the Shâstras say that the cow is our mother."
+but the Shāstras say that the cow is our mother."
 
 Swamiji smilingly said, "Yes, that the cow is our mother, I understand:
 who else could give birth to *such* accomplished children?"
@@ -263,7 +263,7 @@ Shastras say — he who has studied the Vedas and the Vedanta, who has
 formally expiated his sins, who has performed all the daily and
 occasional duties enjoined by the scriptures, who is self-restrained in
 his food and general conduct, and specially he who is accomplished in
-the four special Sâdhanâs (preliminary disciplines), he alone has a
+the four special Sādhanās (preliminary disciplines), he alone has a
 right to the practice of Vedanta. Your Western disciples are in the
 first place non-Brahmins, and then they are lax in point of proper food
 and dress; how could they understand the system of Vedanta?

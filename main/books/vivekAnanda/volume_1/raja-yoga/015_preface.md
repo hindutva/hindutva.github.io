@@ -32,7 +32,7 @@ their degenerate nature. The former have no such excuse.
 
 For thousands of years such phenomena have been studied, investigated,
 and generalised, the whole ground of the religious faculties of man has
-been analysed, and the practical result is the science of Râja-Yoga.
+been analysed, and the practical result is the science of Rāja-Yoga.
 Raja-Yoga does not, after the unpardonable manner of some modern
 scientists, deny the existence of facts which are difficult to explain;
 on the other hand, it gently yet in no uncertain terms tells the
@@ -56,7 +56,7 @@ Raja-Yoga will lead to the acquisition of the more subtle perceptions.
 
 All the orthodox systems of Indian philosophy have one goal in view, the
 liberation of the soul through perfection. The method is by Yoga. The
-word Yoga covers an immense ground, but both the Sânkhya and the Vedanta
+word Yoga covers an immense ground, but both the Sānkhya and the Vedanta
 Schools point to Yoga in some form or other.
 
 The subject of the present book is that form of Yoga known as Raja-Yoga.

@@ -11,15 +11,15 @@ title: THE COMMON BASES OF HINDUISM
 ## THE COMMON BASES OF HINDUISM
 
 On his arrival at Lahore the Swamiji was accorded a grand reception by
-the leaders, both of the Ârya Samâj and of the Sanâtana Dharma Sabhâ.
+the leaders, both of the Ârya Samāj and of the Sanātana Dharma Sabhā.
 During his brief stay in Lahore, Swamiji delivered three lectures. The
 first of these was on "The Common Bases of Hinduism", the second on
 ["Bhakti"](bhakti_2.htm) , and the third one was the famous lecture on
 ["The Vedanta"](the_vedanta.htm) . On the first occasion he spoke as
 follows:
 
-This is the land which is held to be the holiest even in holy Âryâvarta;
-this is the Brahmâvarta of which our great Manu speaks. This is the land
+This is the land which is held to be the holiest even in holy Âryāvarta;
+this is the Brahmāvarta of which our great Manu speaks. This is the land
 from whence arose that mighty aspiration after the Spirit, ay, which in
 times to come, as history shows, is to deluge the world. This is the
 land where, like its mighty rivers, spiritual aspirations have arisen
@@ -29,7 +29,7 @@ This is the land which had first to bear the brunt of all inroads and
 invasions into India; this heroic land had first to bare its bosom to
 every onslaught of the outer barbarians into Aryavarta. This is the land
 which, after all its sufferings, has not yet entirely lost its glory and
-its strength. Here it was that in later times the gentle Nânak preached
+its strength. Here it was that in later times the gentle Nānak preached
 his marvellous love for the world. Here it was that his broad heart was
 opened and his arms outstretched to embrace the whole world, not only of
 Hindus, but of Mohammedans too. Here it was that one of the last and one
@@ -168,7 +168,7 @@ which the soul of the race inhabited. This, therefore, is the vitality
 of I the race, and so long as that remains, there is no power under the
 sun that can kill the race. All the tortures and miseries of the world
 will pass over without hurting us, and we shall come out of the flames
-like Prahlâda, so long as we hold on to this grandest of all our
+like Prahlāda, so long as we hold on to this grandest of all our
 inheritances, spirituality. If a Hindu is not spiritual I do not call
 him a Hindu. In other countries a man may be political first, and then
 he may have a little religion, but here in India the first and the
@@ -206,7 +206,7 @@ India, the land where all sects have always been honoured, it is a shame
 on us who dare to call ourselves the descendants of those fathers.
 
 There are certain great principles in which, I think, we — whether
-Vaishnavas, Shaivas, Shâktas, or Gânapatyas, whether belonging to the
+Vaishnavas, Shaivas, Shāktas, or Gānapatyas, whether belonging to the
 ancient Vedantists or the modern ones, whether belonging to the old
 rigid sects or the modern reformed ones — are all one, and whoever calls
 himself a Hindu, believes in these principles. Of course there is a
@@ -276,7 +276,7 @@ end, which knows not what death is. And then this peculiar idea,
 different from that of all other races of men, that this Atman inhabits
 body after body until there is no more interest for it to continue to do
 so, and it becomes free, not to be born again, I refer to the theory of
-Samsâra and the theory of eternal souls taught by our Shâstras. This is
+Samsāra and the theory of eternal souls taught by our Shāstras. This is
 another point where we all agree, whatever sect we may belong to. There
 may be differences as to the relation between the soul and God.
 According to one sect the soul may be eternally different from God,
@@ -291,7 +291,7 @@ the most wonderful discovery in the realms of spirituality that has ever
 been made. Some of you, perhaps, who have been studying Western thought,
 may have observed already that there is another radical difference
 severing at one stroke all that is Western from all that is Eastern. It
-is this that we hold, whether we are Shâktas, Sauras, or Vaishnavas,
+is this that we hold, whether we are Shāktas, Sauras, or Vaishnavas,
 even whether we are Bauddhas or Jainas, we all hold in India that the
 soul is by its nature pure and perfect, infinite in power and blessed.
 Only, according to the dualist, this natural blissfulness of the soul
@@ -307,7 +307,7 @@ our eyes and try to find God within. The Western is looking up outside
 for his God. To the Western their religious books have been inspired,
 while with us our books have been expired; breath-like they came, the
 breath of God, out of the hearts of sages they sprang, the
-Mantra-drashtâs.
+Mantra-drashtās.
 
 This is one great point to understand, and, my friends, my brethren, let
 me tell you, this is the one point we shall have to insist upon in the
@@ -328,7 +328,7 @@ defect, mark my words, you will find that degradation to have started on
 the day our people lost this faith in themselves. Losing faith in one's
 self means losing faith in God. Do you believe in that infinite, good
 Providence working in and through you? If you believe that this
-Omnipresent One, the Antaryâmin, is present in every atom, is through
+Omnipresent One, the Antaryāmin, is present in every atom, is through
 and through, Ota-prota, as the Sanskrit word goes, penetrating your
 body, mind and soul, how can you lose, heart? I may be a little bubble
 of water, and you may be a mountain-high wave. Never mind! The infinite
@@ -492,7 +492,7 @@ learn is already dead. Declares our Manu: आददीत परां विद
 प्रयत्नादवरादपि। अन्त्यादपि परं धर्म स्त्रीरत्नं दुष्कुलादपि। — "Take
 the jewel of a woman for your wife, though she be of inferior descent.
 Learn supreme knowledge with service even from the man of low birth; and
-even from the Chandâla, learn by serving him the way to salvation."
+even from the Chandāla, learn by serving him the way to salvation."
 Learn everything that is good from others, but bring it in, and in your
 own way absorb it; do not become others. Do not be dragged away out of
 this Indian life; do not for a moment think that it would be better for

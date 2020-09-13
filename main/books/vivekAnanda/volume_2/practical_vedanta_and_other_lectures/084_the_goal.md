@@ -325,11 +325,11 @@ Self. This is continuously to be meditated upon. Through that comes
 realisation. It is through realisation that you become a \[blessing\] to
 others. . . .
 
-"Thy face shines like \[that of\] one who has known God." (Chhândogya.
+"Thy face shines like \[that of\] one who has known God." (Chhāndogya.
 IV. ix. 2.) That is the goal. This is not to be preached as I am doing.
 "Under a tree I saw a teacher, a boy of sixteen; the disciple was an old
 man of eighty. The teacher was teaching in silence, and the doubts of
-the disciple vanished." (*Dakshinâmurtistotram*, 12.) And who speaks?
+the disciple vanished." (*Dakshināmurtistotram*, 12.) And who speaks?
 Who lights a candle to see the sun? When the truth \[dawns\], no witness
 is necessary. You know it . . . . That is what you are going to do: . .
 . realise it. \[first think of it. Reason it out. Satisfy your

@@ -44,8 +44,8 @@ that the scriptures are of much higher authority than reason; others
 again say that only that portion of the scriptures which is rational
 should be taken and the rest rejected.
 
-Of the three orthodox divisions, the Sânkhyas, the Naiyâyikas, and the
-Mimâmsakas, the former two, although they existed as philosophical
+Of the three orthodox divisions, the Sānkhyas, the Naiyāyikas, and the
+Mimāmsakas, the former two, although they existed as philosophical
 schools, failed to form any sect. The one sect that now really covers
 India is that of the later Mimamsakas or the Vedantists. Their
 philosophy is called Vedantism. All the schools of Hindu philosophy
@@ -69,8 +69,8 @@ projected and becomes grosser and grosser, and at the end of an
 incalculable period of time it becomes finer and finer, when it
 dissolves and subsides, and then comes a period of rest. Again it:
 begins to appear and goes through the same process. They postulate the
-existence of a material which they call Âkâsha, which is something like
-the ether of the scientists, and a power which they call Prâna. About
+existence of a material which they call Âkāsha, which is something like
+the ether of the scientists, and a power which they call Prāna. About
 this Prana they declare that by its vibration the universe is produced.
 When a cycle ends, all this manifestation of nature becomes finer and
 finer and dissolves into that Akasha which cannot be seen or felt, yet
@@ -253,7 +253,7 @@ such idea, but they were very quickly silenced. At the present time I do
 not know of any sect that believes this. What we mean by creation is
 projection of that which already existed. Now, the whole universe,
 according to this sect, is God Himself. He is the material of the
-universe. We read in the Vedas, "As the Urnanâbhi (spider) spins the
+universe. We read in the Vedas, "As the Urnanābhi (spider) spins the
 thread out of its own body, . . . even so the whole universe has come
 out of the Being."
 

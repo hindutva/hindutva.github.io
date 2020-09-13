@@ -198,7 +198,7 @@ water she had touched?"
 
 Disciple: But it was you, sir, who ordered me to do so. Under the Guru's
 orders I can do anything. I was unwilling to drink the water though. But
-you drank it and I had to take it as Prasâda.
+you drank it and I had to take it as Prasāda.
 
 Swamiji: Well, your caste is gone for ever. Now nobody will respect you
 as a Brahmin of the priest class.

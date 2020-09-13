@@ -12,7 +12,7 @@ title: HISTORICAL EVOLUTION OF INDIA
 
 OM TAT SAT
 
-*Om Namo Bhagavate Râmakrishnâya*
+*Om Namo Bhagavate Rāmakrishnāya*
 
 नासतः सत् जायते — Existence cannot be produced by non-existence.
 
@@ -132,7 +132,7 @@ unsolved to our own days.
 The first solution of the difficulty attempted was by applying the
 eclecticism which from the earliest days had taught the people to see in
 differences the same truth in various garbs. The great leader of this
-school, Krishna — himself of royal race — and his sermon, the Gitâ, have
+school, Krishna — himself of royal race — and his sermon, the Gitā, have
 after various vicissitudes, brought about by the upheavals of the Jains,
 the Buddhists, and other sects, fairly established themselves as the
 "Prophet" of India and the truest philosophy of life. Though the tension
@@ -150,7 +150,7 @@ the social difference.
 
 Thus we find the struggle renewed all along the line in the seventh
 century before the Christian era and finally in the sixth, overwhelming
-the ancient order of things under Shâkya Muni, the Buddha. In their
+the ancient order of things under Shākya Muni, the Buddha. In their
 reaction against the privileged priesthood, Buddhists swept off almost
 every bit of the old ritual of the Vedas, subordinated the gods of the
 Vedas to the position of servants to their own human saints, and
@@ -162,7 +162,7 @@ against ceremonials requiring offerings of animals, against hereditary
 caste and exclusive priesthood, and against belief in permanent souls.
 It never attempted to destroy that religion, or overturn the social
 order. It introduced a vigorous method by organising a class of
-Sannyâsins into a strong monastic brotherhood, and the Brahmavâdinis
+Sannyāsins into a strong monastic brotherhood, and the Brahmavādinis
 into a body of nuns — by introducing images of saints in the place of
 altar-fires.
 
@@ -175,13 +175,13 @@ In ancient India the centres of national life were always the
 intellectual and spiritual and not political. Of old, as now, political
 and social power has been always subordinated to spiritual and
 intellectual. The outburst of national life was round colleges of sages
-and spiritual teachers. We thus find the Samitis of the Panchâlas, of
-the Kâshyas (of Varanasi), the Maithilas standing out as great centres
+and spiritual teachers. We thus find the Samitis of the Panchālas, of
+the Kāshyas (of Varanasi), the Maithilas standing out as great centres
 of spiritual culture and philosophy, even in the Upanishads. Again these
 centres in turn became the focus of political ambition of the various
 divisions of the Aryans.
 
-The great epic Mahâbhârata tells us of the war of the Kurus and
+The great epic Mahābhārata tells us of the war of the Kurus and
 Panchalas for supremacy over the nation, in which they destroyed each
 other. The spiritual supremacy veered round and centred in the East
 among the Magadhas and Maithilas, and after the Kuru-Panchala war a sort
@@ -238,7 +238,7 @@ A renascent India, bought by the velour and blood of the heroic Rajputs,
 defined by the merciless intellect of a Brahmin from the same historical
 thought-centre of Mithila, led by a new philosophical impulse organised
 by Shankara and his bands of Sannyasins, and beautified by the arts and
-literature of the courts of Mâlavâ — arose on the ruins of the old.
+literature of the courts of Mālavā — arose on the ruins of the old.
 
 The task before it was profound, problems vaster than any their
 ancestors had ever faced. A comparatively small and compact race of the
@@ -261,14 +261,14 @@ certainly have destroyed the civilisation of the Aryans. Then came a
 natural reaction for self-preservation, and Buddhism and separate sect
 ceased to live in most parts of its land of birth.
 
-The reaction-movement, led in close succession by Kumârila in the north,
-and Shankara and Râmânuja in the south, has become the last embodiment
+The reaction-movement, led in close succession by Kumārila in the north,
+and Shankara and Rāmānuja in the south, has become the last embodiment
 of that vast accumulation of sects and doctrines and rituals called
 Hinduism. For the last thousand years or more, its great task has been
 assimilation, with now and then an outburst of reformation. This
 reaction first wanted to revive the rituals of the Vedas — failing
 which, it made the Upanishads or the philosophic portions of the Vedas
-its basis. It brought Vyasa's system of Mimâmsâ philosophy and Krishna's
+its basis. It brought Vyasa's system of Mimāmsā philosophy and Krishna's
 sermon, the Gita, to the forefront; and all succeeding movements have
 followed the same. The movement of Shankara forced its way through its
 high intellectuality; but it could be of little service to the masses,
@@ -292,7 +292,7 @@ centuries to subjugate the south, but can scarcely be said to have got
 even a strong foothold; and when the strong and united empire of the
 Moguls was very near completing its conquest, the hills and plateaus of
 the south poured in their bands of fighting peasant horsemen, determined
-to die for the religion which Râmdâs preached and Tukâ sang; and in a
+to die for the religion which Rāmdās preached and Tukā sang; and in a
 short time the gigantic empire of the Moguls was only a name.
 
 The movements in northern India during the Mohammedan period are
@@ -300,8 +300,8 @@ characterised by their uniform attempt to hold the masses back from
 joining the religion of the conquerors — which brought in its train
 social and spiritual equality for all.
 
-The friars of the orders founded by Râmânanda, Kabir, Dâdu, Chaitanya,
-or Nânak were all agreed in preaching the equality of man, however
+The friars of the orders founded by Rāmānanda, Kabir, Dādu, Chaitanya,
+or Nānak were all agreed in preaching the equality of man, however
 differing from each other in philosophy. Their energy was for the most
 part spent in checking the rapid conquest of Islam among the masses, and
 they had very little left to give birth to new thoughts and aspirations.
@@ -321,7 +321,7 @@ aspiration that preceded the rise of the Mahratta or the Sikh empire was
 entirely reactionary. We seek in vain to find in the court of Poona or
 Lahore even a ray of reflection of that intellectual glory which
 surrounded the courts of the Muguls, much less the brilliance of Malava
-or Vidyânagara. It was intellectually the darkest period of Indian
+or Vidyānagara. It was intellectually the darkest period of Indian
 history; and both these meteoric empires, representing the upheaval of
 mass-fanaticism and hating culture with all their hearts, lost all their
 motive power as soon as they had succeeded in destroying the rule of the

@@ -42,7 +42,7 @@ which reacts. Along with this reaction flashes the idea of egoism. Then
 this mixture of action and reaction is presented to the Purusha, the
 real Soul, who perceives an object in this mixture. The organs
 (Indriyas), together with the mind (Manas), the determinative faculty
-(Buddhi), and egoism (Ahamkâra), form the group called the Antahkarana
+(Buddhi), and egoism (Ahamkāra), form the group called the Antahkarana
 (the internal instrument). They are but various processes in the
 mind-stuff, called Chitta. The waves of thought in the Chitta are called
 Vrittis (literally "whirlpool") . What is thought? Thought is a force,
@@ -121,7 +121,7 @@ pain. The darkening form is dullness which tends to injury. The
 commentator says, the third form is natural to the Devas, the angels,
 and the first and second to the demons. The gathering form is when it
 struggles to centre itself. The one-pointed form is when it tries to
-concentrate, and the concentrated form is what brings us to Samâdhi.
+concentrate, and the concentrated form is what brings us to Samādhi.
 
 तदा द्रष्टुः स्वरूपेऽवस्थानम् ॥३॥
 
@@ -160,8 +160,8 @@ perceived, I begin to fight it out, and do not believe it. There are
 also three kinds of proof. Pratyaksha, direct perception; whatever we
 see and feel, is proof, if there has been nothing to delude the senses.
 I see the world; that is sufficient proof that it exists. Secondly,
-Anumâna, inference; you see a sign, and from the sign you come to the
-thing signified. Thirdly, Âptavâkya, the direct evidence of the Yogis,
+Anumāna, inference; you see a sign, and from the sign you come to the
+thing signified. Thirdly, Âptavākya, the direct evidence of the Yogis,
 of those who have seen the truth. We are all of us struggling towards
 knowledge. But you and I have to struggle hard, and come to knowledge
 through a long tedious process of reasoning, but the Yogi, the pure one,
@@ -261,7 +261,7 @@ in the waking state is called memory.
 The mind, to have non-attachment, must be clear, good, and rational. Why
 should we practice? Because each action is like the pulsations quivering
 over the surface of the lake. The vibration dies out, and what is left?
-The Samskâras, the impressions. When a large number of these impressions
+The Samskāras, the impressions. When a large number of these impressions
 are left on the mind, they coalesce and become a habit. It is said,
 "Habit is second nature", it is first nature also, and the whole nature
 of man; everything that we are is the result of habit. That gives us
@@ -308,7 +308,7 @@ want. I am passing through a street, and a man comes and takes away my
 watch. That is my own experience. I see it myself, and it immediately
 throws my Chitta into a wave, taking the form of anger. Allow not that
 to come. If you cannot prevent that, you are nothing; if you can, you
-have Vairâgya. Again, the experience of the worldly-minded teaches us
+have Vairāgya. Again, the experience of the worldly-minded teaches us
 that sense-enjoyments are the highest ideal. These are tremendous
 temptations. To deny them, and not allow the mind to come to a wave form
 with regard to them, is renunciation; to control the twofold motive
@@ -331,7 +331,7 @@ Sattva. These three qualities manifest themselves in the physical world
 as darkness or inactivity, attraction or repulsion, and equilibrium of
 the two. Everything that is in nature, all manifestations, are
 combinations and recombinations of these three forces. Nature has been
-divided into various categories by the Sânkhyas; the Self of man is
+divided into various categories by the Sānkhyas; the Self of man is
 beyond all these, beyond nature. It is effulgent, pure, and perfect.
 Whatever of intelligence we see in nature is but the reflection of this
 Self upon nature. Nature itself is insentient. You must remember that
@@ -349,8 +349,8 @@ is the goal of the Yogi.
 17\. The concentration called right knowledge is that which is followed
 by reasoning, discrimination bliss, unqualified egoism.
 
-Samadhi is divided into two varieties. One is called the Samprajnâta,
-and the other the Asamprajnâta. In the Samprajnata Samadhi come all the
+Samadhi is divided into two varieties. One is called the Samprajnāta,
+and the other the Asamprajnāta. In the Samprajnata Samadhi come all the
 powers of controlling nature. It is of four varieties. The first variety
 is called the Savitarka, when the mind meditates upon an object again
 and again, by isolating it from other objects. There are two sorts of
@@ -385,18 +385,18 @@ Again, in the very same meditation, when one struggles to take the
 elements out of time and space, and think of them as they are, it is
 called Nirvitarka, without question. When the meditation goes a step
 higher, and takes the Tanmatras as its object, and thinks of them as in
-time and space, it is called Savichâra, with discrimination; and when in
+time and space, it is called Savichāra, with discrimination; and when in
 the same meditation one eliminates time and space, and thinks of the
-fine elements as they are, it is called Nirvichâra, without
+fine elements as they are, it is called Nirvichāra, without
 discrimination. The next step is when the elements are given up, both
 gross and fine, and the object of meditation is the interior organ, the
 thinking organ. When the thinking organ is thought of as bereft of the
-qualities of activity and dullness, it is then called Sânanda, the
+qualities of activity and dullness, it is then called Sānanda, the
 blissful Samadhi. When the mind itself is the object of meditation, when
 meditation becomes very ripe and concentrated, when all ideas of the
 gross and fine materials are given up, when the Sattva state only of the
 Ego remains, but differentiated from all other objects, it is called
-Sâsmita Samadhi. The man who has attained to this has attained to what
+Sāsmita Samadhi. The man who has attained to this has attained to what
 is called in the Vedas "bereft of body". He can think of himself as
 without his gross body; but he will have to think of himself as with a
 fine body. Those that in this state get merged in nature without
@@ -519,7 +519,7 @@ mild, medium, or intense.
 24\. Ishvara (the Supreme Ruler) is a special Purusha, untouched by
 misery, actions, their results, and desires.
 
-We must again remember that the Pâtanjala Yoga philosophy is based upon
+We must again remember that the Pātanjala Yoga philosophy is based upon
 the Sankhya philosophy; only in the latter there is no place for God,
 while with the Yogis God has a place. The Yogis, however, do not mention
 many ideas about God, such as creating. God as the Creator of the
@@ -756,7 +756,7 @@ powers.
 
 34\. By throwing out and restraining the Breath.
 
-The word used is Prâna. Prana is not exactly breath. It is the name for
+The word used is Prāna. Prana is not exactly breath. It is the name for
 the energy that is in the universe. Whatever you see in the universe,
 whatever moves or works, or has life, is a manifestation of this Prana.
 The sum-total of the energy displayed in the universe is called Prana.
@@ -764,7 +764,7 @@ This Prana, before a cycle begins, remains in an almost motionless
 state; and when the cycle begins, this Prana begins to manifest itself.
 It is this Prana that is manifested as motion — as the nervous motion in
 human beings or animals; and the same Prana is manifesting as thought,
-and so on. The whole universe is a combination of Prana and Âkâsha; so
+and so on. The whole universe is a combination of Prana and Âkāsha; so
 is the human body. Out of Akasha you get the different materials that
 you feel and see, and out of Prana all the various forces. Now this
 throwing out and restraining the Prana is what is called Pranayama.
@@ -795,8 +795,8 @@ are running through the body. First we begin to recognise them, and then
 we slowly get control over them.
 
 Now, these later Yogis consider that there are three main currents of
-this Prana in the human body. One they call Idâ, another Pingalâ, and
-the third Sushumnâ. Pingala, according to them, is on the right side of
+this Prana in the human body. One they call Idā, another Pingalā, and
+the third Sushumnā. Pingala, according to them, is on the right side of
 the spinal column, and the Ida on the left, and in the middle of the
 spinal column is the Sushumna, an empty channel. Ida and Pingala,
 according to them, are the currents working in every man, and through
@@ -861,7 +861,7 @@ practice any one of them best suited to us.
 35\. Those forms of concentration that bring extraordinary
 sense-perceptions cause perseverance of the mind.
 
-This naturally comes with Dhâranâ, concentration; the Yogis say, if the
+This naturally comes with Dhāranā, concentration; the Yogis say, if the
 mind becomes concentrated on the tip of the nose, one begins to smell,
 after a few days, wonderful perfumes. If it becomes concentrated at the
 root of the tongue, one begins to hear sounds; if on the tip of the
@@ -954,7 +954,7 @@ crystal looks red, or if the flower is blue, the crystal looks blue.
 Sound here means vibration, meaning the nerve currents which conduct it;
 and knowledge, reaction. All the various meditations we have had so far,
 Patanjali calls Savitarka (meditation with question). Later on he gives
-us higher and higher Dhyânas. In these that are called "with question,"
+us higher and higher Dhyānas. In these that are called "with question,"
 we keep the duality of subject and object, which results from the
 mixture of word, meaning, and knowledge. There is first the external
 vibration, the word. This, carried inward by the sense currents, is the
@@ -1005,14 +1005,14 @@ fine.
 
 सूक्ष्मविषयत्वञ्चालिङ्ग-पर्यवसानम् ॥४५॥
 
-45\. The finer objects end with the Pradhâna.
+45\. The finer objects end with the Pradhāna.
 
 The gross objects are only the elements and everything manufactured out
 of them. The fine objects begin with the Tanmatras or fine particles.
 The organs, the mind, (The mind, or common sensorium, the aggregate of
 all the senses), egoism, the mind-stuff (the cause of all
 manifestation), the equilibrium state of Sattva, Rajas, and Tamas
-materials — called Pradhâna (chief), Prakriti (nature), or Avyakta
+materials — called Pradhāna (chief), Prakriti (nature), or Avyakta
 (unmanifest) — are all included within the category of fine objects, the
 Purusha (the Soul) alone being excepted.
 

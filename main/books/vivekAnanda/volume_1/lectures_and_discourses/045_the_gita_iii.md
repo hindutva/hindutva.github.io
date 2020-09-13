@@ -23,7 +23,7 @@ knowledge is better than action, why do you tell me to act?" (Gita III.
 1.)
 
 \[Shri Krishna\]: "From ancient times these two systems have come down
-to us. The Sânkhya philosophers advance the theory of knowledge. The
+to us. The Sānkhya philosophers advance the theory of knowledge. The
 Yogis advance the theory of work. But none can attain to peace by
 renouncing actions. None in this life can stop activity even for a
 moment. Nature's qualities \[Gunas\] will make him act. He who stops his
@@ -174,7 +174,7 @@ stand \[apart\]. They are the ... witness. They simply stand and look.
 Nature is begetting all the universe.... They turn their backs. "In the
 beginning, O beloved, there only existed that Existence. Nothing else
 existed. And That \[brooding\], everything else was created."
-(Chhândogya, VI. ii. 2-3.)
+(Chhāndogya, VI. ii. 2-3.)
 
 "Even those who know the path act impelled by their own nature. Everyone
 acts according to his nature. He cannot transcend it."(Gita, III. 33.)
@@ -254,7 +254,7 @@ controlled. These cover the knowledge even of those \[who are wise\].
 This fire of lust is unquenchable. Its location is in the sense-organs
 and in the mind. The Self desires nothing. (Ibid. 37, 40.)
 
-"This Yoga I taught in ancient times \[to Vivaswân; Vivaswan taught it
+"This Yoga I taught in ancient times \[to Vivaswān; Vivaswan taught it
 to Manu\]. ... Thus it was that the knowledge descended from one thing
 to another. But in time this great Yoga was destroyed. That is why I am
 telling it to you again today." (Ibid. IV. 1-3.)
@@ -295,7 +295,7 @@ and nobody blames himself. That is the pity of it. Why is there so much
 evil in society? What is it they say? Flesh and the devil and the woman.
 Why make these things \[up\]? Nobody asks you to make them \[up\].
 "None, O Arjuna, can swerve from my path." (Ibid. 11.) We are fools, and
-our paths are foolish. We have to go through all this Mâyâ. God made the
+our paths are foolish. We have to go through all this Māyā. God made the
 heaven, and man made the hell for himself.
 
 "No action can touch me. I have no desire for the results of action.
@@ -398,7 +398,7 @@ weakness? Whose death? Whose disease?
 
 You believe in God. If you do, believe in the real God. "Thou art the
 man, thou the woman, thou the young man walking in the strength of
-youth, ... thou the old man tottering with his stick." (Shvetâshvatara,
+youth, ... thou the old man tottering with his stick." (Shvetāshvatara,
 IV. 3.) Thou art weakness. Thou art fear. Thou art heaven, and Thou art
 hell. Thou art the serpent that would sting. Come thou as fear! Come
 thou as death! Come thou as misery! ...
@@ -414,7 +414,7 @@ on!
 Where one sees another, one hears another so long as there are two,
 there must be fear, and fear is the mother of all \[misery\]. Where none
 sees another, where it is all One, there is none to be miserable, none
-to be unhappy. (Chhândogya, VII. xxiii-xxiv, (adapted)) \[There is
+to be unhappy. (Chhāndogya, VII. xxiii-xxiv, (adapted)) \[There is
 only\] the One without a second. Therefore be not afraid. Awake, arise,
 and stop not till the goal is reached!
 

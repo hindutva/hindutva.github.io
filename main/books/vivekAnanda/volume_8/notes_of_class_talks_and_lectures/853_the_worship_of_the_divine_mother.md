@@ -29,7 +29,7 @@ All that we know or feel is but the resultant of these two forces. Man
 saw that the sun shines on the good and evil alike. Here was a new idea
 of God, as the Universal Power behind all — the Mother-idea was born.
 
-Activity, according to Sânkhya, belongs to Prakriti, to nature, not to
+Activity, according to Sānkhya, belongs to Prakriti, to nature, not to
 Purusha or soul. Of all feminine types in India, the mother is
 pre-eminent. The mother stands by her child through everything. Wife and
 children may desert a man, but his mother never! Mother, again, is the

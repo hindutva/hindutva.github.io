@@ -10,10 +10,10 @@ Classes](notes_of_lectures_and_classes_contents.htm) /
 
 
 
-*\[Mr. Frank Rhodehamel's notes of a Bhagavad-Gitâ class delivered
+*\[Mr. Frank Rhodehamel's notes of a Bhagavad-Gitā class delivered
 Thursday, May 24, 1900, in San Francisco, California\]*
 
-The Gitâ is the gist of the Vedas. It is not our Bible; the Upanishads
+The Gitā is the gist of the Vedas. It is not our Bible; the Upanishads
 are our Bible. It \[the Gita\] is the gist of the Upanishads and
 harmonizes the many contradictory parts of the Upanishads.
 

@@ -148,9 +148,9 @@ whether we should gargle five or six times. What can you expect from men
 who pass their lives in discussing such momentous questions as these and
 writing most learned philosophies on them! There is a danger of our
 religion getting into the kitchen. We are neither Vedantists, most of us
-now, nor Paurânics, nor Tântrics. We are just "Don't-touchists". Our
+now, nor Paurānics, nor Tāntrics. We are just "Don't-touchists".+++(5)+++ Our
 religion is in the kitchen. Our God is the cooking-pot, and our religion
-is, "Don't touch me, I am holy". If this goes on for another century,
+is, "Don't touch me, I am holy".+++(5)+++ If this goes on for another century,
 every one of us will be in a lunatic asylum. It is a sure sign of
 softening of the brain when the mind cannot grasp the higher problems of
 life; all originality is lost, the mind has lost all its strength, its

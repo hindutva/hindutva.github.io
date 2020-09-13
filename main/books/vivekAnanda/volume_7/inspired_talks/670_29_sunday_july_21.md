@@ -58,9 +58,9 @@ of perseverance, mistaken ideas are other obstacles.
 
 \*            \*            \*
 
-Prânas are subtle energies, sources of motion. There are ten in all,
+Prānas are subtle energies, sources of motion. There are ten in all,
 five inward and five outward. One great current flows upwards, and the
-other downwards. Prânâyâma is controlling the Pranas through breathing.
+other downwards. Prānāyāma is controlling the Pranas through breathing.
 Breath is the fuel, Prana is the steam, and the body is the engine.
 Pranayama has three parts, Puraka (in-breathing), Kumbhaka (holding the
 breath), Rechaka (out-breathing). . . .

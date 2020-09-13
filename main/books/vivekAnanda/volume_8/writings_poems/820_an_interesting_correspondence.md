@@ -19,7 +19,7 @@ letter](../../volume_5/epistles_first_series/032_sister.htm) which he
 wrote to her in vindication of his position on the 1st February, 1895,
 which will be found reproduced in the fifth volume of the *Complete
 Works* of the Swami. It was a very beautiful letter full of the fire of
-a Sannyâsin's spirit, and we request our readers to go through it before
+a Sannyāsin's spirit, and we request our readers to go through it before
 they peruse the following text. Mary Hale, to whom the Swami wrote, was
 one of the two daughters of Mr. and Mrs. Hale whom the Swami used to
 address as Father Pope and Mother Church. The Misses Hales and their two
@@ -29,7 +29,7 @@ Swami were written to them.
 
 In the present correspondence the Swami is seen in a new light, playful
 and intensely human, yet keyed to the central theme of his life,
-Brahmajnâna. The first letter was written from New York, 15th February
+Brahmajnāna. The first letter was written from New York, 15th February
 1895 — *Ed*.)
 
 Now Sister Mary,  
@@ -152,7 +152,7 @@ In days of yore,
 On Ganga's shore preaching,  
 A hoary priest was teaching  
 How Gods they come  
-As Sitâ Râm,  
+As Sitā Rām,  
 And gentle Sita pining, weeping.  
 The sermons end,  
 They homeward wend their way —  

@@ -29,15 +29,15 @@ of humanity in relation to God and His worship through love.
 Some of the great writers on Para-Bhakti have tried to understand and
 experience this divine love in so many different ways. The lowest form
 in which this love is apprehended is what they call the peaceful — the
-Shânta. When a man worships God without the fire of love in him, without
+Shānta. When a man worships God without the fire of love in him, without
 its madness in his brain, when his love is just the calm commonplace
 love, a little higher than mere forms and ceremonies and symbols, but
 not at all characterized by the madness of intensely active love, it is
 said to be Shanta. We see some people in the world who like to move on
-slowly, and others who come and go like the whirlwind. The Shânta-Bhakta
+slowly, and others who come and go like the whirlwind. The Shānta-Bhakta
 is calm, peaceful, gentle.
 
-The next higher type is that of Dâsya, i.e. servantship; it comes when a
+The next higher type is that of Dāsya, i.e. servantship; it comes when a
 man thinks he is the servant of the Lord. The attachment of the faithful
 servant unto the master is his ideal.
 
@@ -82,7 +82,7 @@ chessmen on the board and shakes them up. He arranges us first in one
 way and then in another, and we are consciously or unconsciously helping
 in His play. And, oh, bliss! we are His playmates!
 
-The next is what is known as Vâtsalya, loving God not as our Father but
+The next is what is known as Vātsalya, loving God not as our Father but
 as our Child. This may look peculiar, but it is a discipline to enable
 us to detach all ideas of power from the concept of God. The idea of
 power brings with it awe. There should be no awe in love. The ideas of
@@ -156,7 +156,7 @@ unto Him. They are meant for Him, for if they miss their mark and go
 lower, they become vile; and when they go straight to the mark, to the
 Lord, even the lowest of them becomes transfigured. All the energies of
 the human body and mind, howsoever they may express themselves, have the
-Lord as their one goal, as their Ekâyana. All loves and all passions of
+Lord as their one goal, as their Ekāyana. All loves and all passions of
 the human heart must go to God. He is the Beloved. Whom else can this
 heart love? He is the most beautiful, the most sublime, He is beauty
 itself, sublimity itself. Who in this universe is more beautiful than
@@ -188,12 +188,12 @@ there are no obstructions there. So the Bhaktas take up the idea of a
 girl who is in love with her own beloved, and her mother or father or
 husband objects to such love; and the more anybody obstructs the course
 of her love, so much the more is her love tending to grow in strength.
-Human language cannot describe how Krishna in the groves of Vrindâ was
+Human language cannot describe how Krishna in the groves of Vrindā was
 madly loved, how at the sound of his voice the ever-blessed Gopis rushed
 out to meet him, forgetting everything, forgetting this world and its
 ties, its duties, its joys, and its sorrows. Man, O man, you speak of
 divine love and at the same time are able to attend to all the vanities
-of this world — are you sincere? "Where Râma is, there is no room for
+of this world — are you sincere? "Where Rāma is, there is no room for
 any desire — where desire is, there is no room for Rama; these never
 coexist — like light and darkness they are never together."
 

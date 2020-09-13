@@ -18,7 +18,7 @@ LUCERNE,
 
 BLESSED AND BELOVED, (E. T. Sturdy)
 
-Today I received a letter from India written by Abhedânanda that in all
+Today I received a letter from India written by Abhedānanda that in all
 probability he had started on the 11th August by the B.I.S.N.,
 "S.S.Mombassa". He could not get an earlier steamer; else he would have
 started earlier. In all probability he would be able to secure a passage
@@ -35,7 +35,7 @@ I am suffering from a very bad cold indeed. I hope by this time Mohin's
 money from the Raja has arrived to your care. If so, I do not want the
 money I gave him back. You may give him the whole of it.
 
-I had some letters from Goodwin and Sâradânanda. They are doing well.
+I had some letters from Goodwin and Sāradānanda. They are doing well.
 Also one from Mrs. Bull regretting that you and I could not be
 corresponding members of some Society, she is founding at Cambridge. I
 do remember to have written to her about your and my non-acquiescence in

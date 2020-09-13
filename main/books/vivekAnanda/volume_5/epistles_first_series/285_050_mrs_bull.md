@@ -38,7 +38,7 @@ cannot be higher than we, because they cannot communicate with us. The
 only so-called higher beings are the departed, and these are nothing but
 men who have taken another body. This is finer, it is true, but still a
 *man-body*, with hands and feet, and so on. And they live on this earth
-in another Âkâsha, without being absolutely invisible. They also think,
+in another Âkāsha, without being absolutely invisible. They also think,
 and have consciousness, and everything else like us. So they also are
 men, so are the Devas, the angels. But man alone becomes *God*; and they
 all have to become men again in order to become God. . . .

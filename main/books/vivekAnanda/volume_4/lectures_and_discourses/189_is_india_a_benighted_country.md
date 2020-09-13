@@ -108,7 +108,7 @@ asked many questions. A number of these he preferred to answer
 privately, but three he had selected for reasons, which would appear, to
 answer from the pulpit. They were:  "Do the people of India throw their
 children into the jaws of the crocodiles?" "Do they kill themselves
-beneath the wheels of Jagannâtha?" "Do they burn widows with their
+beneath the wheels of Jagannātha?" "Do they burn widows with their
 husbands?" The first question the lecturer treated in the same vein as
 an American abroad would in answering inquiries about Indians running
 round in the streets of New York and similar myths which are even today

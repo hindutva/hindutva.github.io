@@ -24,7 +24,7 @@ bereft of these, it becomes a hideous hell and hastens on to its
 destruction.
 
 Higher and nobler than all ordinary ones are another set of teachers,
-the Avatâras of Ishvara, in the world. They can transmit spirituality
+the Avatāras of Ishvara, in the world. They can transmit spirituality
 with a touch, even with a mere wish. The lowest and the most degraded
 characters become in one second saints at their command. They are the
 Teachers of all teachers, the highest manifestations of God through man.

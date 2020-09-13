@@ -23,7 +23,7 @@ since the night before, with a view to witnessing the installation
 ceremony.
 
 In the morning Swamiji had his bath in the Ganga and entered the
-worship-room. Then he made offerings to the sacred Pâdukâs (slippers) of
+worship-room. Then he made offerings to the sacred Pādukās (slippers) of
 Shri Ramakrishna and fell to meditation.
 
 Meditation and worship over, preparations were now made for going to the
@@ -40,11 +40,11 @@ come."
 
 Disciple: When was it that he said this to you?
 
-Swamiji: (Pointing to the Sâdhus of the Math) Didn't you hear from them?
+Swamiji: (Pointing to the Sādhus of the Math) Didn't you hear from them?
 It was at the Cossipur garden.
 
 Disciple: I see. It was on this occasion, I suppose, that the split took
-place between Shri Ramakrishna's Sannyâsin and householder disciples
+place between Shri Ramakrishna's Sannyāsin and householder disciples
 regarding the privilege of serving him?
 
 Swamiji: Yes, but not exactly a "split" — it was only a
@@ -59,7 +59,7 @@ is eyeing him, as it were, through a different kind of colored glass and
 coming to look upon that one Sun as parti-coloured. Of course, it is
 quite true that this leads to schism in course of time. But then, such
 schisms rarely occur in the lifetime of those who are fortunate enough
-to have come in direct contact with an Avatâra. The effulgence of that
+to have come in direct contact with an Avatāra. The effulgence of that
 Personality, who takes pleasure only in the Self, dazzles their eyes and
 sweeps away pride, egotism, and narrow-mindedness from their minds.
 Consequently they find no opportunity to create sects and party
@@ -91,9 +91,9 @@ Swamiji took the casket down from his shoulder, placed it on the carpet
 spread on the ground, and bowed before it touching the ground with his
 forehead. Others too followed suit.
 
-Then Swamiji again sat for worship. After going through Pujâ (worship),
+Then Swamiji again sat for worship. After going through Pujā (worship),
 he lighted the sacrificial fire, made oblations to it, and himself
-cooking Pâyasa (milk-rice with sugar) with the help of his
+cooking Pāyasa (milk-rice with sugar) with the help of his
 brother-disciples, offered it to Shri Ramakrishna. Probably also he
 initiated certain householders on the spot that day. All this ceremony
 being done, Swamiji cordially addressed the assembled gentlemen and
@@ -142,7 +142,7 @@ then to work them out in practical life. Do you understand? This is
 called practical religion.
 
 Thus the talk went on, and gradually drifted to the topic of
-Shankarâchârya. The disciple was a great adherent of Shankara, almost to
+Shankarāchārya. The disciple was a great adherent of Shankara, almost to
 the point of fanaticism. He used to look upon Shankara's Advaita
 philosophy as the crest of all philosophies and could not bear any
 criticism of him. Swamiji was aware of this, and, as was his wont,
@@ -188,7 +188,7 @@ to a few. It was Lord Buddha who brought them down to the practical
 field and showed how to apply them in the everyday life of the people.
 In a sense, *he* was the living embodiment of true Vedanta.
 
-Disciple: But, sir, it was he who by breaking down the Varnâshrama
+Disciple: But, sir, it was he who by breaking down the Varnāshrama
 Dharma (duty according to caste and order of life) brought about a
 revolution within the fold of Hinduism in India, and there seems to be
 some truth also in the remark that the religion he preached was for this
@@ -197,13 +197,13 @@ reason banished in course of time from the soil of India.
 Swamiji: It was not through his teachings that Buddhism came to such
 degradation, it was the fault of his followers. By becoming too
 philosophic they lost much of their breadth of heart. Then gradually the
-corruption known as Vâmâchâra (unrestrained mixing with women in the
+corruption known as Vāmāchāra (unrestrained mixing with women in the
 name of religion) crept in and ruined Buddhism. Such diabolical rites
 are not to be met with in any modern Tantra! One of the principal
-centres of Buddhism was Jagannâtha or Puri, and you have simply to go
+centres of Buddhism was Jagannātha or Puri, and you have simply to go
 there and look at the abominable figures carved on the temple walls to
 be convinced of this. Puri has come under the sway of the Vaishnavas
-since the time of Râmânuja and Shri Chaitanya. Through the influence of
+since the time of Rāmānuja and Shri Chaitanya. Through the influence of
 great personages like these the place now wears an altogether different
 aspect.
 
@@ -223,10 +223,10 @@ Jagannatha that you see is but a concrete symbol of this corporeal car.
 You have to behold the Atman in this car of the body. Haven't you read
 "आत्मानं रथिनं विद्धि — Know the Atman to be seated on the chariot"
 etc., "मध्ये वामनमासीनं विश्वे देवा उपासते — All the gods worship the
-Vâmana (the Supreme Being in a diminutive form) seated in the interior
+Vāmana (the Supreme Being in a diminutive form) seated in the interior
 of the body"? The sight of the Atman is the real vision of Jagannatha.
 And the statement "रथे च वामनं दृष्टा पुनर्जन्म न विद्यते — Seeing the
-Vâmana on the car, one is no more subject to rebirth", means that if you
+Vāmana on the car, one is no more subject to rebirth", means that if you
 can visualise the Atman which is within you, and disregarding which you
 are always identifying yourself with this curious mass of matter, this
 body of yours — if you can see that, then there is no more rebirth for
@@ -275,11 +275,11 @@ in the Katha Upanisad: उत्तिष्ठत जाग्रत प्र�
 awake, and learn by approaching the élite.) Arise! Awake! and stop not
 until the goal is reached!
 
-Here the subject was brought to a close. The bell for taking Prasâda
+Here the subject was brought to a close. The bell for taking Prasāda
 (consecrated food) rang, and Swamiji went to partake of it, followed by
 the disciple.
 
-1.  [^](#txt1)Uncle of the Pândava brothers, and a most saintly
+1.  [^](#txt1)Uncle of the Pāndava brothers, and a most saintly
     character, considered to be an incarnation of Dharma.
 
 

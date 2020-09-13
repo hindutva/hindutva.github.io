@@ -52,7 +52,7 @@ Dissension". Whatever difference of opinion followers of other creeds
 may have with him, few will venture to deny that the Swami has done
 yeoman's service to his country in opening the eyes of the Western world
 to "the good in the Hindu". He will always be remembered as the first
-Hindu Sannyâsin who dared to cross the sea to carry to the West the
+Hindu Sannyāsin who dared to cross the sea to carry to the West the
 message of what he believes in as a religious peace.
 
 A representative of our paper interviewed the Swami Vivekananda, with a
@@ -191,7 +191,7 @@ come from a country where he was a slave to a country where he is a
 brother.
 
 "Believe that the soul is immortal, infinite and all-powerful. My idea
-of education is personal contact with the teacher - Gurugriha-Vâsa.
+of education is personal contact with the teacher - Gurugriha-Vāsa.
 Without the personal life of a teacher there would be no education. Take
 your Universities. What have they done during the fifty years of their
 existences. They have not produced one original man. They are merely an
@@ -205,7 +205,7 @@ do not know personally much about her. Her knowledge of our religion is
 very limited; she picks up scraps here and there; she never had time to
 study it thoroughly. That she is one of the most sincere of women, her
 greatest enemy will concede. She is considered the best speaker in
-England. She is a Sannyâsini. But I do not believe in Mahâtmâs and
+England. She is a Sannyāsini. But I do not believe in Mahātmās and
 Kuthumis. Let her give up her connection with the Theosophical Society,
 stand on her own footing, and preach what she thinks right."
 

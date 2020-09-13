@@ -38,7 +38,7 @@ be perfectly happy. One thing more will I beg of you — if possible, the
 100 Rs. a month for my mother be made permanent, so that even after my
 death it may regularly reach her. Or even if your Highness ever gets
 reasons to stop your love and kindness for me, my poor old mother may be
-provided \[for\], remembering the love you once had for a poor Sâdhu.
+provided \[for\], remembering the love you once had for a poor Sādhu.
 
 This is all. Do this little work amongst the many other noble deeds you
 have done, knowing well whatever else can be proved or not, the power of

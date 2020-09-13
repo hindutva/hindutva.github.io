@@ -15,7 +15,7 @@ title: IV
 (From the Diary of a Disciple)
 
 (The disciple is Sharatchandra Chakravarty, who published his records in
-a Bengali book, *Swami-Shishya-Samvâda*, in two parts. The present
+a Bengali book, *Swami-Shishya-Samvāda*, in two parts. The present
 series of "Conversations and Dialogues" is a revised translation from
 this book. Five dialogues of this series have already appeared in the
 *Complete Works*, [Vol.
@@ -28,13 +28,13 @@ V.](../../volume_5/conversations_and_dialogues/xi_xv_from_the_diary_of_a_discipl
 When Swamiji returned from England for the first time, the Ramakrishna
 Math was located at Alambazar. The birthday anniversary of Bhagavan Shri
 Ramakrishna was being celebrated this year at the Kali-temple of Rani
-Râsmani at Dakshineswar. Swamiji with some of his brother- disciples
+Rāsmani at Dakshineswar. Swamiji with some of his brother- disciples
 reached there from the Alambazar Math at about 9 or 10 a.m. He was
 barefooted, with a yellow turban on his head. Crowds of people were
 waiting to see and hear him. In the temple of Mother Kali, Swamiji
 prostrated himself before the Mother of the Universe, and thousands of
 heads, following him, bent low. Then after prostrating himself before
-Râdhâkântaji he came into the room which Shri Ramakrishna used to
+Rādhākāntaji he came into the room which Shri Ramakrishna used to
 occupy. There was not the least breathing space in the room.
 
 Two European ladies who accompanied Swamiji to India attended the
@@ -113,7 +113,7 @@ it possible for him to recognise these external observances as true?
 Swamiji: Why not? Is not our idea of truth also a relative one, varying
 in relation to time, place, and person? Hence all observances have their
 utility, relatively to the varying qualifications in men. It is just as
-Shri Ramakrishna used to say, that the mother cooks Polâo and Kâlia
+Shri Ramakrishna used to say, that the mother cooks Polāo and Kālia
 (rich dishes) for one son, and sago for another.
 
 Now the disciple understood at last and kept quiet. Meanwhile the
@@ -129,27 +129,27 @@ Swamiji: It was quite natural; stranger things will happen hereafter.
 Disciple: Sir, in every religious sect are found to exist external
 festivals of some kind or other. But there is no amity between one sect
 and another in this matter. Even in the case of such a liberal religion
-as that of Mohammed, I have found in Dacca that the Shiâs and Sunnis go
+as that of Mohammed, I have found in Dacca that the Shiās and Sunnis go
 to loggerheads with each other.
 
 Swamiji: That is incidental more or less wherever you have sects. But do
 you know what the ruling sentiment amongst us is? — non-sectarianism.
 Our Lord was born to point that out. He would accept all forms, but
 would say withal that, looked at from the standpoint of the knowledge of
-Brahman, they were only like illusory Mâyâ.
+Brahman, they were only like illusory Māyā.
 
 Disciple: Sir, I can't understand your point. Sometimes it seems to me
 that, by thus celebrating these festivals, you are also inaugurating
 another sect round the name of Shri Ramakrishna. I have heard it from
-the lips of Nâg Mahâshaya that Shri Ramakrishna did not belong to any
-sect. He used to pay great respect to all creeds such as the Shâktas,
+the lips of Nāg Mahāshaya that Shri Ramakrishna did not belong to any
+sect. He used to pay great respect to all creeds such as the Shāktas,
 the Vaishnavas, the Brahmos, the Mohammedans, and the Christians.
 
 Swamiji: How do you know that we do not also hold in great esteem all
 the religious creeds?
 
 So saying, Swamiji called out in evident amusement to Swami
-Niranjanananda: "Just think what this Bângâl[2](#fn2) is saying!"
+Niranjanananda: "Just think what this Bāngāl[2](#fn2) is saying!"
 
 Disciple: Kindly make me understand, sir, what you mean.
 
@@ -174,7 +174,7 @@ no right to say anything of the beliefs each man tries to live by. For
 you also proceed now by merely putting your faith on some such beliefs.
 
 Disciple: True, I am also living now by believing in something; but I
-have the Shâstras for my authority. I do not accept any faith opposed to
+have the Shāstras for my authority. I do not accept any faith opposed to
 the Shastras.
 
 Swamiji: What do you mean by the Shastras? If the Upanishads are

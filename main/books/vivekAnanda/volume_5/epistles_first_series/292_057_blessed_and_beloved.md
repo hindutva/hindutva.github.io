@@ -18,14 +18,14 @@ title: LVII
 
 BLESSED AND BELOVED, (E. T. Sturdy)
 
-About the Sannyâsin coming over from India, I am sure he will help you
+About the Sannyāsin coming over from India, I am sure he will help you
 in the translation work, also in other work. Later on, when I come, I
 may send him over to America. Today another Sannyasin has been added to
 the list. This time it is a man who is a genuine American and a
 religious teacher of some standing in the country. He was Dr. Street. He
 is now Yogananda, as his leaning is all towards Yoga.
 
-I have been sending regular reports to the *Brahmavâdin* from here. They
+I have been sending regular reports to the *Brahmavādin* from here. They
 will be published soon. It takes such a long time for things to reach
 India! Things are growing nobly in India. As there was no hocus-pocus
 from the beginning, the Vedanta is drawing the attention of the highest
@@ -40,10 +40,10 @@ to have an interview with me. A swell family of my acquaintance arranged
 the affair. There were besides Madame M. Morrel, the celebrated singer,
 also the great electrician Tesla. Madame is a very scholarly lady and
 has studied up the metaphysics a good deal. M. Morrel was being
-interested, but Mr. Tesla was charmed to hear about the Vedantic Prâna
-and Âkâsha and the Kalpas, which according to him are the only theories
+interested, but Mr. Tesla was charmed to hear about the Vedantic Prāna
+and Âkāsha and the Kalpas, which according to him are the only theories
 modern science can entertain. Now both Akasha and Prana again are
-produced from the cosmic Mahat, the Universal Mind, the Brahmâ or
+produced from the cosmic Mahat, the Universal Mind, the Brahmā or
 Ishvara. Mr. Tesla thinks he can demonstrate mathematically that force
 and matter are reducible to potential energy. I am to go and see him
 next week, to get this new mathematical demonstration.
@@ -67,7 +67,7 @@ The eschatology will be explained from the Advaitic standpoint only.
 That is to say, the dualist claims that the soul after death passes on
 to the Solar sphere, thence to the Lunar sphere, thence to the Electric
 sphere. Thence he is accompanied by a Purusha to Brahmaloka. (Thence,
-says the Advaitist, he goes to Nirvâna.)
+says the Advaitist, he goes to Nirvāna.)
 
 Now on the Advaitic side, it is held that the soul neither comes nor
 goes, and that all these spheres or layers of the universe are only so
@@ -76,7 +76,7 @@ most condensed is the Solar sphere, consisting of the visible universe,
 in which Prana appears as physical force, and Akasha as sensible matter.
 The next is called the Lunar sphere, which surrounds the Solar sphere.
 This is not the moon at all, but the habitation of the gods, that is to
-say, Prana appears in it as psychic forces, and Akasha as Tanmâtras or
+say, Prana appears in it as psychic forces, and Akasha as Tanmātras or
 fine particles. Beyond this is the Electric sphere, that is to say, a
 condition in which the Prana is almost inseparable from Akasha, and you
 can hardly tell whether Electricity is force or matter. Next is the
@@ -101,7 +101,7 @@ and form have immediately vanished for ever. So though the name and form
 of wave could never be without *water* that was fashioned into the wave
 by them, yet the name and form themselves were not the wave. They die as
 soon as ever it returns to water. But other names and forms live in
-relation to other waves. This name-and-form is called Mâyâ, and the
+relation to other waves. This name-and-form is called Māyā, and the
 water is Brahman. The wave was nothing but water all the time, yet as a
 wave it had the name and form. Again this name and form cannot remain
 for one moment separated from the wave, although the *wave* as water can

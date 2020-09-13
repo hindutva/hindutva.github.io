@@ -12,7 +12,7 @@ title: STEPS TO REALISATION
 
 (*A class-lecture delivered in America*)
 
-First among the qualifications required of the aspirant for Jnâna, or
+First among the qualifications required of the aspirant for Jnāna, or
 wisdom, come Shama and Dama, which may be taken together. They mean the
 keeping of the organs in their own centres without allowing them to
 stray out. I shall explain to you first what the word "organ" means.
@@ -51,7 +51,7 @@ where we have lived, and so on. We think of them or talk of them most of
 our time. One who wishes to be a Vedantin must give up this habit.
 
 Then comes the next preparation (it is a hard task to be a
-philosopher!), Titikshâ, the most difficult of all. It is nothing less
+philosopher!), Titikshā, the most difficult of all. It is nothing less
 than the ideal forbearance — "Resist not evil." This requires a little
 explanation. We may not resist an evil, but at the same time we may feel
 very miserable. A man may say very harsh things to me, and I may not
@@ -72,9 +72,9 @@ bear tremendous heat and cold without caring, they do not even care for
 snow, because they take no thought for the body; it is left to itself,
 as if it were a foreign thing.
 
-The next qualification required is Shraddhâ, faith. One must have
+The next qualification required is Shraddhā, faith. One must have
 tremendous faith in religion and God. Until one has it, one cannot
-aspire to be a Jnâni. A great sage once told me that not one in twenty
+aspire to be a Jnāni. A great sage once told me that not one in twenty
 millions in this world believed in God. I asked him why, and he told me,
 "Suppose there is a thief in this room, and he gets to know that there
 is a mass of gold in the next room, and only a very thin partition
@@ -88,7 +88,7 @@ can be reached, would not that man go mad in his struggle to reach it ?"
 Strong faith in God and the consequent eagerness to reach Him constitute
 Shraddha.
 
-Then comes Samâdhâna, or constant practice, to hold the mind in God.
+Then comes Samādhāna, or constant practice, to hold the mind in God.
 Nothing is done in a day. Religion cannot be swallowed in the form of a
 pill. It requires hard and constant practice. The mind can be conquered
 only by slow and steady practice.
@@ -220,7 +220,7 @@ off. Similar will be the struggles for freedom of a man who really
 understands that he is a slave of nature.
 
 We have now seen what Mumukshutva, or the desire to be free, is. The
-next training is also a very difficult one. Nityânitya-Viveka —
+next training is also a very difficult one. Nityānitya-Viveka —
 discriminating between that which is true and that which is untrue,
 between the eternal and the transitory. God alone is eternal, everything
 else is transitory. Everything dies; the angels die, men die, animals

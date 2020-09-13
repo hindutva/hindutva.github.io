@@ -33,7 +33,7 @@ Harmony and peace! . . . Let things slowly grow. Rome was not built in a
 day. The Maharaja of Mysore is dead — one of our greatest hopes. Well!
 the Lord is great. He will send others to help the cause.
 
-Send some Kushâsanas (small sitting-mats) if you can.
+Send some Kushāsanas (small sitting-mats) if you can.
 
 Yours ever with blessings,
 

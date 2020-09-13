@@ -14,7 +14,7 @@ APPENDIX
 
 ## REFERENCES TO YOGA
 
-*Shvetâshvatara Upanishad*
+*Shvetāshvatara Upanishad*
 
 CHAPTER II
 
@@ -38,7 +38,7 @@ crosses all the fearful currents by means of the raft of Brahman.
 दुष्टाश्वयुक्तमिव वाहमेनं  
 विद्वान् मनो धारयेताप्रमत्तः ॥९॥
 
-9\. The man of well-regulated endeavours controls the Prâna; and when it
+9\. The man of well-regulated endeavours controls the Prāna; and when it
 has become quieted, breathes out through the nostrils. The persevering
 sage holds his mind as a charioteer holds the restive horses.
 
@@ -89,9 +89,9 @@ agreeable odour in the body, and scantiness of excretions.
 shines full of light, so the embodied man seeing the truth of the Atman
 as one, attains the goal and becomes sorrowless.
 
-*Yâjnavalkya quoted by Shankara*
+*Yājnavalkya quoted by Shankara*
 
-(In Svetâshvatara Upanishad Bhâshya.)
+(In Svetāshvatara Upanishad Bhāshya.)
 
 आसनानि समभ्यस्य वाञ्छितानि यथाविधि ।  
 प्राणायामं ततो गार्गि जितासनगतोऽभ्यसेत् ॥  
@@ -137,17 +137,17 @@ as one, attains the goal and becomes sorrowless.
 प्रत्याहाराच्च संसर्गान्ध्यानेनानीश्वरान् गुणान् ॥
 
 "After practicing the postures as desired, according to rules, then, O
-Gârgi, the man who has conquered the posture will practice Prânâyâma.
+Gārgi, the man who has conquered the posture will practice Prānāyāma.
 
 "Seated in an easy posture, on a (deer or tiger) skin, placed on Kusha
 grass, worshipping Ganapati with fruits and sweetmeats, placing the
 right palm on the left, holding the throat and head in the same line,
 the lips closed and firm, facing the east or the north, the eyes fixed
-on the tip of the nose, avoiding too much food or fasting, the Nâdis
+on the tip of the nose, avoiding too much food or fasting, the Nādis
 should be purified, without which the practice will be fruitless.
-Thinking of the (seed-word) "Hum," at the junction of Pingalâ and Idâ
+Thinking of the (seed-word) "Hum," at the junction of Pingalā and Idā
 (the right and the left nostrils), the Ida should be filled with
-external air in twelve Mâtrâs (seconds); then the Yogi meditates on fire
+external air in twelve Mātrās (seconds); then the Yogi meditates on fire
 in the same place with the word "Rung," and while meditating thus,
 slowly ejects the air through the Pingala (right nostril). Again filling
 in through the Pingala the air should be slowly ejected through the Ida,
@@ -155,10 +155,10 @@ in the same way. This should be practiced for three or four years, or
 three or four months, according to the directions of a Guru, in secret
 (alone in a room), in the early morning, at midday, in the evening, and
 at midnight (until) the nerves become purified. Lightness of body, clear
-complexion, good appetite, hearing of the Nâda, are the signs of the
+complexion, good appetite, hearing of the Nāda, are the signs of the
 purification of nerves. Then should be practiced Pranayama composed of
 Rechaka (exhalation), Kumbhaka (retention), and Puraka (inhalation).
-Joining the Prâna with the Apâna is Pranayama.
+Joining the Prāna with the Apāna is Pranayama.
 
 "In sixteen Matras filling the body from the head to the feet, in
 thirty-two Matras the Prana is to be thrown out, and with sixty-four the
@@ -168,11 +168,11 @@ Kumbhaka should be made.
 with sixty-four Matras, then the Prana should be thrown out with
 sixteen, and the body next filled with sixteen Matras.
 
-"By Pranayama impurities of the body are thrown out; by Dhâranâ the
-impurities of the mind; by Pratyâhâra impurities of attachment; and by
+"By Pranayama impurities of the body are thrown out; by Dhāranā the
+impurities of the mind; by Pratyāhāra impurities of attachment; and by
 Samadhi is taken off everything that hides the lordship of the Soul."
 
-*Sânkhya*
+*Sānkhya*
 
 BOOK III
 
@@ -191,12 +191,12 @@ Purusha) all powers of nature.
 
 धारणाऽऽसनस्वकर्मणा तत्सिद्धिः ॥३२॥
 
-32\. By Dhâranâ, posture, and performance of one's duties, it is
+32\. By Dhāranā, posture, and performance of one's duties, it is
 perfected.
 
 निरोधश्छर्दिविधारणाभ्याम् ॥३३॥
 
-33\. Restraint of the Prâna is by means of expulsion and retention.
+33\. Restraint of the Prāna is by means of expulsion and retention.
 
 स्थिरसुखमासनम् ॥३४॥
 
@@ -244,7 +244,7 @@ the virgin's hand.
 
 निराशः सुखी पिङ्गलावत् ॥११॥
 
-11\. The renouncers of hope are happy, like the girl Pingalâ.
+11\. The renouncers of hope are happy, like the girl Pingalā.
 
 बहुशास्त्रगुरूपासनेऽपि सारादानं षट्पदवत् ॥१३॥
 
@@ -269,7 +269,7 @@ a long time (as in the case of Indra).
 
 न कालनियमो वामदेववत् ॥२०॥
 
-20\. There is no law as to time, as in the case of Vâmadeva.
+20\. There is no law as to time, as in the case of Vāmadeva.
 
 लब्धातिशययोगाद्वा तद्वत् ॥२४॥
 
@@ -296,7 +296,7 @@ BOOK VI
 24\. Any posture which is easy and steady is an Âsana; there is no other
 rule.
 
-*Vyâsa-Sutras*
+*Vyāsa-Sutras*
 
 CHAPTER IV, SECTION I
 

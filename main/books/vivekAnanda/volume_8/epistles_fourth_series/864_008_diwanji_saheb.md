@@ -30,7 +30,7 @@ your native kindness of heart, I think I am not disturbing you by asking
 and entreating you to do something for this young man. I need not write
 more. You will find him an honest and hard-working lad. If a single act
 of kindness done to a fellow creature renders his whole life happy, I
-need not remind you that this boy is a Pâtra (a person quite deserving
+need not remind you that this boy is a Pātra (a person quite deserving
 of help), noble and kind as you are.
 
 I hope you are not disturbed and troubled by this request of mine. This

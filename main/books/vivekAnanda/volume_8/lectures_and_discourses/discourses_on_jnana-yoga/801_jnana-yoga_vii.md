@@ -28,7 +28,7 @@ else how can he drag anyone out of the rushing stream and save him from
 drowning? Even the fanatic who cries "I am a worm", thinks that he is on
 the way to become a saint. He sees the saint even in the worm.
 
-There are two ends or aims of human life, real knowing (Vijnâna) and
+There are two ends or aims of human life, real knowing (Vijnāna) and
 bliss. Without freedom, these two are impossible. They are the
 touchstone of all life. We should feel the Eternal Unity so much, that
 we should weep for all sinners, knowing that it is we who are sinning.
@@ -58,8 +58,8 @@ sacrificed. This is the truth symbolised by baptism into a new life, the
 death of the old man, the birth of the new — the perishing of the false
 self, the realisation of the Atman, the one Self of the universe.
 
-The two great divisions of the Vedas are Karma Kânda — the portion
-pertaining to doing or work, and Jnâna Kânda — the portion treating of
+The two great divisions of the Vedas are Karma Kānda — the portion
+pertaining to doing or work, and Jnāna Kānda — the portion treating of
 knowing, true knowledge. In the Vedas we can find the whole process of
 the growth of religious ideas. This is because when a higher truth was
 reached, the lower perception that led to it, was still preserved. This
@@ -134,7 +134,7 @@ we have to be born again and again in the vain search for satisfaction.
 the Hindus. Jnana says, "Kill desire and so get rid of it". That is the
 only way. Cast out all causation and realise the Atman. Only freedom can
 produce true morality. If there were only an endless chain of cause and
-effect, Nirvâna could not be. It is extinction of the seeming self,
+effect, Nirvāna could not be. It is extinction of the seeming self,
 bound by this chain. That is what constitutes freedom, to get beyond
 causality.
 

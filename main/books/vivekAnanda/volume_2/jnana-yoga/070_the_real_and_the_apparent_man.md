@@ -36,7 +36,7 @@ else is to be known?" That is the one theme. "As through the knowledge
 of one lump of clay all that is of clay is known, so, what is that, by
 knowing which this whole universe itself will be known?" That is the one
 search. The whole of this universe, according to the Hindu philosophers,
-can be resolved into one material, which they call Âkâsha. Everything
+can be resolved into one material, which they call Âkāsha. Everything
 that we see around us, feel, touch, taste, is simply a differentiated
 manifestation of this Akasha. It is all-pervading, fine. All that we
 call solids, liquids, or gases, figures, forms, or bodies, the earth,
@@ -46,7 +46,7 @@ What force is it which acts upon this Akasha and manufactures this
 universe out of it? Along with Akasha exists universal power; all that
 is power in the universe, manifesting as force or attraction — nay, even
 as thought — is but a different manifestation of that one power which
-the Hindus call Prâna. This Prana, acting on Akasha, is creating the
+the Hindus call Prāna. This Prana, acting on Akasha, is creating the
 whole of this universe. In the beginning of a cycle, this Prana, as it
 were, sleeps in the infinite ocean of Akasha. It existed motionless in
 the beginning. Then arises motion in this ocean of Akasha by the action
@@ -189,7 +189,7 @@ back to his mind and the mind becomes dissolved, as it were, into the
 Prana, and that Prana enters into the soul of man, and the soul of man
 comes out, clothed, as it were, with what they call the fine body, the
 mental body, or spiritual body, as you may like to call it. In this body
-are the Samskâras of the man. What are the Samskaras? This mind is like
+are the Samskāras of the man. What are the Samskaras? This mind is like
 a lake, and every thought is like a wave upon that lake. Just as in the
 lake waves rise and then fall down and disappear, so these thought-waves
 are continually rising in the mind-stuff and then disappearing, but they
@@ -211,7 +211,7 @@ reach what is called the solar sphere, through which they reach what is
 called the lunar sphere, and through that they reach what is called the
 sphere of lightning, and there they meet with another soul who is
 already blessed, and he guides the new-comer forward to the highest of
-all spheres, which is called the Brahmaloka, the sphere of Brahmâ. There
+all spheres, which is called the Brahmaloka, the sphere of Brahmā. There
 these souls attain to omniscience and omnipotence, become almost as
 powerful and all-knowing as God Himself; and they reside there for ever,
 according to the dualists, or, according to the non-dualists, they
@@ -268,8 +268,8 @@ extraordinarily evil acts have to put on ghost and devil bodies, and
 when the effect of those evil actions is exhausted, the little good
 action which remains associated with them, makes them again become men.
 The way to Brahmaloka, from which there is no more fall or return, is
-called the Devayâna, i.e. the way to God; the way to heaven is known as
-Pitriyâna, i.e. the way to the fathers.
+called the Devayāna, i.e. the way to God; the way to heaven is known as
+Pitriyāna, i.e. the way to the fathers.
 
 Man, therefore, according to the Vedanta philosophy, is the greatest
 being that is in the universe, and this world of work the best place in

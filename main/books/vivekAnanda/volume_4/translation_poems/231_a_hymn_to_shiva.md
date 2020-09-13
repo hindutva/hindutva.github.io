@@ -38,7 +38,7 @@ In whom Lordship is ever established,
 Who causes annihilation of delusion,  
 Whose most surpassing love, made manifest,  
 Has crowned Him with a name above all names,  
-The name of "Mahâdeva", the Great God!  
+The name of "Mahādeva", the Great God!  
 Whose warm embrace, of Love personified,  
 Displays, within man's heart, that all power  
 Is but a semblance and a passing show,
@@ -49,7 +49,7 @@ Is but a semblance and a passing show,
 अतिविकलितरूपं नौमि चित्तं शिवस्थम्॥
 
 In which the tempest of the whole past blows,  
-Past Samskâras, (The accumulated effects of past desires and actions)
+Past Samskāras, (The accumulated effects of past desires and actions)
 stirring the energies  
 With violence, like water lashed to waves;  
 In which the dual consciousness of "I" and "Thou"  

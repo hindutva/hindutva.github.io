@@ -125,7 +125,7 @@ the statement was made by a set of atheists in India who thus carped at
 the Vedic idea of non-killing and transmigration of souls. It was never
 a religious doctrine, it was an idea of a materialistic creed. The
 worship of dumb animals was pictured in a vivid manner. The hospitable
-spirit — the Indian golden rule, was illustrated by a story. A Brâhmin,
+spirit — the Indian golden rule, was illustrated by a story. A Brāhmin,
 his wife, his son, and his son's wife had not tasted food for some time
 on account of a famine. The head of the house went out and after a
 search found a small quantity of barley. He brought this home and

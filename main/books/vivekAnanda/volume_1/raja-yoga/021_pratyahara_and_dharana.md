@@ -12,7 +12,7 @@ CHAPTER VI
 
 ## PRATYAHARA AND DHARANA
 
-The next step is called Pratyâhâra. What is this? You know how
+The next step is called Pratyāhāra. What is this? You know how
 perceptions come. First of all there are the external instruments, then
 the internal organs acting in the body through the brain centres, and
 there is the mind. When these come together and attach themselves to
@@ -143,7 +143,7 @@ practised? It is a tremendous work, not to be done in a day. Only after
 a patient, continuous struggle for years can we succeed.
 
 After you have practised Pratyahara for a time, take the next step, the
-Dhâranâ, holding the mind to certain points. What is meant by holding
+Dhāranā, holding the mind to certain points. What is meant by holding
 the mind to certain points? Forcing the mind to feel certain parts of
 the body to the exclusion of others. For instance, try to feel only the
 hand, to the exclusion of other parts of the body. When the Chitta, or
@@ -196,7 +196,7 @@ do that? So give up all vain talk. Read only those books which have been
 written by persons who have had realisation.
 
 Be like the pearl oyster. There is a pretty Indian fable to the effect
-that if it rains when the star Svâti is in the ascendant, and a drop of
+that if it rains when the star Svāti is in the ascendant, and a drop of
 rain falls into an oyster, that drop becomes a pearl. The oysters know
 this, so they come to the surface when that star shines, and wait to
 catch the precious raindrop. When a drop falls into them, quickly the

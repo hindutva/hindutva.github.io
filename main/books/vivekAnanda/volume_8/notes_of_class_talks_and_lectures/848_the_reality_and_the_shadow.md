@@ -30,7 +30,7 @@ reality only in the soul of man.
 external or sensory, and the internal or subjective — the thought world.
 
 "It posits three fundamental concepts — time, space, and causation. From
-these is constituted Mâyâ, the essential groundwork of human thought,
+these is constituted Māyā, the essential groundwork of human thought,
 not the product of thought. This same conclusion was arrived at a later
 date by the great German philosopher Kant.
 

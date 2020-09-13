@@ -30,7 +30,7 @@ Again, on the lips of Swamiji were very often heard the words of the
 Gita, "A doer of good never comes to grief, my son."
 
 In May or June, 1901, seeing the disciple at the Math Swamiji said,
-"Bring me a copy of *Ashtâvimshati-tattva* (Twenty-eight Categories) of
+"Bring me a copy of *Ashtāvimshati-tattva* (Twenty-eight Categories) of
 Raghunandan at an early date."
 
 Disciple: Yes, sir, but what will you do with the Raghunandan Smriti,
@@ -45,17 +45,17 @@ conception to death, the Hindu society was much oppressed. In matters of
 eating and sleeping, in even the ordinary functions of life, not to
 speak of the important ones, he tried to regulate every one by rules. In
 the altered circumstances of the times, that did not last long. At all
-times in all countries the Karma-kânda, comprising the social customs
-and observances, changes form. Only the Jnâna-kânda endures. Even in the
+times in all countries the Karma-kānda, comprising the social customs
+and observances, changes form. Only the Jnāna-kānda endures. Even in the
 Vedic age you find that the rituals gradually changed in form. But the
 philosophic portion of the Upanishads has remained unchanged up till now
 — only there have been many interpreters, that is all.
 
 Disciple: What will do you with the Smriti of Raghunandan?
 
-Swamiji: This time I have a desire to celebrate the Durgâ Puja (worship
+Swamiji: This time I have a desire to celebrate the Durgā Puja (worship
 of goddess Durga). If the expenses are forthcoming, I shall worship the
-Mahâmâyâ. Therefore I have a mind to read the ceremonial forms of that
+Mahāmāyā. Therefore I have a mind to read the ceremonial forms of that
 worship. When you come to the Math next Sunday, you must bring a copy of
 the book with you.
 

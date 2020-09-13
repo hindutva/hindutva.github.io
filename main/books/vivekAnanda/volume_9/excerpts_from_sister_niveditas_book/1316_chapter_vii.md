@@ -63,7 +63,7 @@ JUNE 26.
 
 The Master was longing to leave us all and go away into some place of
 quiet, alone. But we, not knowing this, insisted on accompanying him to
-the Coloured Springs, called "Kshir Bhavâni", or "Milk of the Mother".
+the Coloured Springs, called "Kshir Bhavāni", or "Milk of the Mother".
 It was said to be the first time that Christian or Mohammedan had ever
 landed there, and we can never be thankful enough for the glimpse we had
 of it since afterwards it was to become the most sacred of all names to
@@ -97,10 +97,10 @@ qualities.
 There the sun does not shine, nor the moon,  
 nor the stars.
 
-There was the story of how Râvana was advised to take the form of Râma
-in order to cheat Sitâ. He answered, "Have I not thought of it? But in
+There was the story of how Rāvana was advised to take the form of Rāma
+in order to cheat Sitā. He answered, "Have I not thought of it? But in
 order to take a man's form you must meditate on him; and Rama is the
-Lord Himself; so when I meditate on him, even the position of Brahmâ
+Lord Himself; so when I meditate on him, even the position of Brahmā
 becomes a mere straw. How, then, could I think of a woman?"
 
 "And so", commented the Swami, "even in the commonest or most criminal
@@ -113,7 +113,7 @@ self-control is awake. That which is life to the rest of the world is
 sleep to him."
 
 Speaking of Thomas à Kempis one day, and of how he himself used to
-wander as a Sannyâsin with the Gitâ and the *Imitation* as his whole
+wander as a Sannyāsin with the Gitā and the *Imitation* as his whole
 library, one word, he said, came back to him, inseparably associated
 with the name of the Western monk:
 
@@ -124,7 +124,7 @@ Again:
 
 The soft Shirisha flower can bear the weight of  
 humming bees, but not of birds —  
-So Umâ, don't you go and make Tapasyâ!  
+So Umā, don't you go and make Tapasyā!  
 Come, Uma, come! delight and idol of my soul!  
 Be seated, Mother, on the lotus of my heart,  
 And let me take a long, long look at you.  
@@ -141,7 +141,7 @@ wonderful poem, without one note in it of weakness or unmanliness." He
 said one day that it was absurd to complain that knowledge was not given
 to women or to Shudras. For the whole gist of the Upanishads was
 contained in the Gita. Without it, indeed, they could hardly be
-understood; and women and all castes could read the Mahâbhârata.
+understood; and women and all castes could read the Mahābhārata.
 
 JULY 4.
 
@@ -190,7 +190,7 @@ the householder and the Sannyasin!"
 
 "Everything is fraught with fear: Renunciation alone is fearless."
 
-"Blessed be even the fraudulent Sâdhus, and those who have failed to
+"Blessed be even the fraudulent Sādhus, and those who have failed to
 carry out their vows, inasmuch as they also have witnessed to the ideal
 and so are in some degree the cause of the success of others!"
 

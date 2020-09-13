@@ -36,7 +36,7 @@ Yours affly.,
 
 VIVEKANANDA.
 
-PS. The first edition of *Râja-Yoga* is sold out, and a second is in the
+PS. The first edition of *Rāja-Yoga* is sold out, and a second is in the
 press. India and America are the biggest buyers.
 
 V.

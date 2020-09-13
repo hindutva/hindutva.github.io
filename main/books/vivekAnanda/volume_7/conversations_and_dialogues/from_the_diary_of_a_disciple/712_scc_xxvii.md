@@ -29,16 +29,16 @@ again lapsed into thought and walking along the road returned to the
 Math. He sat on the camp-cot placed under the mango-tree and, resting
 there some time, washed his face and then, pacing the upper verandah,
 spoke to the disciple thus: "Why do you not set about propagating
-Vedanta in your part of the country? There Tântrikism prevails to a
+Vedanta in your part of the country? There Tāntrikism prevails to a
 fearful extent. Rouse and agitate the country with the lion-roar of
-Advaitavâda (monism). Then I shall know you to be a Vedantist. First
+Advaitavāda (monism). Then I shall know you to be a Vedantist. First
 open a Sanskrit school there and teach the Upanishads and the
 *Brahma-Sutras*. Teach the boys the system of Brahmacharya. I have heard
-that in your country there is much logic-chopping of the Nyâya school.
-What is there in it? Only Vyâpti (pervasiveness) and Anumâna (inference)
+that in your country there is much logic-chopping of the Nyāya school.
+What is there in it? Only Vyāpti (pervasiveness) and Anumāna (inference)
 — on these subjects the Pandits of the Nyaya school discuss for months!
 What does it help towards the Knowledge of the Atman? Either in your
-village or Nag Mahashaya's, open a Chatushpâthi (indigenous school) in
+village or Nag Mahashaya's, open a Chatushpāthi (indigenous school) in
 which the scriptures will be studied and also the life and teachings of
 Shri Ramakrishna. In this way you will advance your own good as well as
 the good of the people, and your fame will endure.
@@ -60,7 +60,7 @@ service for him.
 
 Swamiji began to speak to the disciple, enjoining him to be reverential
 to the Math members: "These children of Shri Ramakrishna whom you see,
-are wonderful Tyâgis (selfless souls), and by service to them you will
+are wonderful Tyāgis (selfless souls), and by service to them you will
 attain to the purification of mind and be blessed with the vision of the
 Atman. You remember the words of the Gita: 'By interrogation and service
 to the great soul'. Therefore you must serve them, by which you will
@@ -98,7 +98,7 @@ and recollecting this he asked the disciple, "Well, how did that event
 take place? Tell me about it."
 
 Disciple: I only heard about it, but did not see it with my own eyes. I
-heard that in a Mahâvâruni Yoga Nag Mahashaya started with his father
+heard that in a Mahāvāruni Yoga Nag Mahashaya started with his father
 for Calcutta. But not getting any accommodation in the railway train he
 stayed for three or four days in Narayangunge in vain and returned home.
 Then Nag Mahashaya said to his father, "If the mind is pure, then the

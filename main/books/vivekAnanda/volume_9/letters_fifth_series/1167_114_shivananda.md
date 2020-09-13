@@ -60,7 +60,7 @@ turn a donkey into a horse, even by beating!"
 Above all "obedience" and "esprit de corps".[2](#fn2) The work cannot
 succeed unless there is perfect obedience to the authority of the Order
 and sacrifice of individual views for the sake of the Order. *Trinair
-gunatvam âpannair badhyante mattadantinah* — "Blades of grass woven into
+gunatvam āpannair badhyante mattadantinah* — "Blades of grass woven into
 a rope can restrain even mad elephants".
 
 With love to Sashi and Gupta,[3](#fn3)

@@ -417,11 +417,11 @@ by Yoga. This is a Sanskrit term, and these four divisions of Yoga have
 in Sanskrit different names. The man who seeks after this kind of union
 is called a Yogi. The worker is called the Karma-Yogi. He who seeks the
 union through love is called the Bhakti-Yogi. He who seeks it through
-mysticism is called the Râja-Yogi. And he who seeks it through
-philosophy is called the Jnâna-Yogi So this word Yogi comprises them
+mysticism is called the Rāja-Yogi. And he who seeks it through
+philosophy is called the Jnāna-Yogi So this word Yogi comprises them
 all.
 
-Now first of all let me take up Râja-Yoga. What is this Raja-Yoga, this
+Now first of all let me take up Rāja-Yoga. What is this Raja-Yoga, this
 controlling of the mind? In this country you are associating all sorts
 of hobgoblins with the word Yoga, I am afraid. Therefore, I must start
 by telling you that it has nothing to do with such things. No one of

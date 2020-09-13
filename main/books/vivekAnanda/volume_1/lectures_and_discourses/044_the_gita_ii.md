@@ -17,10 +17,10 @@ brackets are added by way of linking up the disconnected parts.
 
 (*Delivered in San Francisco, on May 28, 1900*)
 
-The Gitâ requires a little preliminary introduction. The scene is laid
+The Gitā requires a little preliminary introduction. The scene is laid
 on the battlefield of Kurukshetra. There were two branches of the same
 race fighting for the empire of India about five thousand years ago. The
-Pândavas had the right, but the Kauravas had the might. The Pandavas
+Pāndavas had the right, but the Kauravas had the might. The Pandavas
 were five brothers, and they were living in a forest. Krishna was the
 friend of the Pandavas. The Kauravas would not grant them as much land
 as would cover the point of a needle.

@@ -19,7 +19,7 @@ I agree with you so far that faith is a wonderful insight and that it
 alone can save; but there is the danger in it of breeding fanaticism and
 barring further progress.
 
-Jnâna is all right; but there is the danger of its becoming dry
+Jnāna is all right; but there is the danger of its becoming dry
 intellectualism. Love is great and noble; but it may die away in
 meaningless sentimentalism.
 
@@ -80,7 +80,7 @@ is the duty not only of the Sannyasin, but of all men and women.
 
 The soul has neither sex, nor caste, nor imperfection
 
-We believe that nowhere throughout the Vedas, Darshanas, or Purânas, or
+We believe that nowhere throughout the Vedas, Darshanas, or Purānas, or
 Tantras, is it ever said that the soul has any sex, creed, or caste.
 Therefore we agree with those who say, "What has religion to do with
 social reforms?" But they must also agree with us when we tell them that
@@ -123,11 +123,11 @@ human beings) in every social matter?
 
 You speak of the meat-eating Kshatriya. Meat or no meat, it is they who
 are the fathers of all that is noble and beautiful in Hinduism. Who
-wrote the Upanishads? Who was Râma? Who was Krishna? Who was Buddha? Who
+wrote the Upanishads? Who was Rāma? Who was Krishna? Who was Buddha? Who
 were the Tirthankaras of the Jains? Whenever the Kshatriyas have
 preached religion, they have given it to everybody; and whenever the
 Brahmins wrote anything, they would deny all right to others. Read the
-Gitâ and the Sutras of Vyâsa, or get someone to read them to you. In the
+Gitā and the Sutras of Vyāsa, or get someone to read them to you. In the
 Gita the way is laid open to all men and women, to all caste and colour,
 but Vyasa tries to put meanings upon the Vedas to cheat the poor
 Shudras. Is God a nervous fool like you that the flow of His river of

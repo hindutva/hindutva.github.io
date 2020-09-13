@@ -24,12 +24,12 @@ things yet. . . . So long as you have faith and honesty and devotion,
 everything will prosper.
 
 . . . In translating the Suktas, pay particular attention to the
-Bhâshyakâras (commentators), and pay no attention whatever to the
-orientalists. They do not understand a single thing about our Shâstras
+Bhāshyakāras (commentators), and pay no attention whatever to the
+orientalists. They do not understand a single thing about our Shāstras
 (scriptures). It is not given to dry philologists to understand
-philosophy or religion. . . . For instance the word Ânid-avâtam in the
+philosophy or religion. . . . For instance the word Ânid-avātam in the
 Rig-Veda was translated — "He lived without breathing". Now, here the
-reference is really to the chief Prâna, and Avâtam has the root-meaning
+reference is really to the chief Prāna, and Avātam has the root-meaning
 for unmoved, that is, without vibration. It describes the state in which
 the universal cosmic energy, or Prana, remains before the Kalpa (cycle
 of creation) begins: vide — the Bhashyakaras. Explain according to *our*

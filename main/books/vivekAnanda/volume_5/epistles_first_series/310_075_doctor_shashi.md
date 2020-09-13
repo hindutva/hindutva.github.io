@@ -39,7 +39,7 @@ entirely, and my old tossing habit and feeling hot after the evening
 meal have come back. I do not feel any heat after the day meal. There
 being an orchard here, I began to take more fruit than usual as soon as
 I came. But the only fruit to be got here now is the apricot. I am
-trying to get more varieties from Naini Tâl. There has not been any
+trying to get more varieties from Naini Tāl. There has not been any
 thirst even though the days are fearfully hot. . . . On the whole my own
 feeling is one of revival of great strength and cheerfulness, and a
 feeling of exuberant health, only I am afraid I am getting fat on a too

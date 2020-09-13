@@ -74,7 +74,7 @@ you will find how greatly Indian products are appreciated in foreign
 markets even now. In America I found, some Mohammedans of the Hooghly
 district had grown rich by peddling Indian commodities in this way. Have
 you even less intelligence than they? Take, for example, such excellent
-fabric as the Varanasi-made Sâris of India, the like of which are not
+fabric as the Varanasi-made Sāris of India, the like of which are not
 produced anywhere else in the world. Go to America with this cloth. Have
 gowns made out of this fabric and sell them, and you will see how much
 you earn.
@@ -100,7 +100,7 @@ succeed, you will live a life of great opulence.
 
 Disciple: Yes, sir, so it is. But I cannot muster sufficient courage.
 
-Swamiji: That is what I say, my son, you have no Shraddhâ — no faith in
+Swamiji: That is what I say, my son, you have no Shraddhā — no faith in
 yourselves. What will you achieve? You will have neither material nor
 spiritual advancement. Either put forth your energy in the way I have
 suggested and be successful in life, or give up all and take to the path
@@ -205,7 +205,7 @@ apply their knowledge to the better performance of the work to which
 they have been born. A number of geniuses are sure to arise from among
 them in the course of time. You (the higher classes) will take these
 into your own fold. The Brahmins acknowledged the valiant king
-Vishvâmitra as a Brahmin, and think how grateful the whole Kshatriya
+Vishvāmitra as a Brahmin, and think how grateful the whole Kshatriya
 race became to the Brahmins for this act! By such sympathy and
 co-operation even birds and beasts become one's own — not to speak of
 men!
@@ -238,7 +238,7 @@ water on the lotus leaf." Therefore if you have the enthusiasm for
 acquiring this knowledge of the Atman, do not wait any more but come
 forward immediately. "यदहरेव विरजेत् तदहरेव प्रव्रजेत् — The very day
 that you feel dispassion for the world, that very day renounce and take
-to Sannyasa" (Jâbâlopanishad, 4). Sacrifice your life for the good of
+to Sannyasa" (Jābālopanishad, 4). Sacrifice your life for the good of
 others and go round to the doors of people carrying this message of
 fearlessness "उत्तिष्ठत जाग्रत प्राप्य वरान् निबोधत — Arise, awake, and
 stop not till the goal is reached."

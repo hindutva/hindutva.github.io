@@ -58,7 +58,7 @@ His creation. Which of these would be the more beloved of Shiva?
 Certainly he that serves His children. He who wants to serve the father
 must serve the children first. He who wants to serve Shiva must serve
 His children — must serve all creatures in this world first. It is said
-in the Shâstra that those who serve the servants of God are His greatest
+in the Shāstra that those who serve the servants of God are His greatest
 servants. So you will bear this in mind.
 
 Let me tell you again that you must be pure and help any one who comes

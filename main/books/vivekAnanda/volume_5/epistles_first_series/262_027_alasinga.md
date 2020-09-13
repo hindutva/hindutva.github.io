@@ -31,7 +31,7 @@ are starting off in good earnest, and you have a right to an answer."
 
 Will you remember this story, my son? Go to work, the rest will come:
 "Whosoever not trusting in anything else but Me, rests on Me, I supply
-him with everything he needs" (Gitâ, IX. 22). This is no dream.
+him with everything he needs" (Gitā, IX. 22). This is no dream.
 
 . . . The work should be in the line of preaching and serving, at the
 present time. Choose a place of meeting where you can assemble every
@@ -81,7 +81,7 @@ big echo in India, do you know? So I shall not return there in a hurry.
 My intention is to do something permanent here, and with that object I
 am working day by day. I am every day gaining the confidence of the
 American people. . . . Expand your hearts and hopes, as wide as the
-world. Study Sanskrit, especially the three Bhâshyas (commentaries) on
+world. Study Sanskrit, especially the three Bhāshyas (commentaries) on
 the Vedanta. Be ready, for I have many plans for the future. Try to be a
 magnetic speaker. Electrify the people. Everything will come to you if
 you have faith. So tell Kidi, in fact, tell all my children there. In

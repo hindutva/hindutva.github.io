@@ -17,7 +17,7 @@ access of joy and devotion at the sight; and perhaps to pay back the
 good he received, he burst out into a song. In one corner of the hall,
 reclining against a pillar, was Chobeji dozing. He was the priest in the
 temple, an athlete, a player on the guitar, was a good hand in
-swallowing two jugfuls of Bhâng (an intoxicating drink.), and had
+swallowing two jugfuls of Bhāng (an intoxicating drink.), and had
 various other qualifications besides. All on a sudden, a dreadful noise
 assailing his tympanum, the fantastic universe conjured up under the
 influence of the inebriating liquor vanished for a moment from Chobeji's
@@ -26,8 +26,8 @@ languid eyes around in search of the cause of disturbance to his
 tranquil mind, Chobeji discovered that in front of the God was a man
 singing, overwhelmed with his own feelings, in a tune as touching as the
 scouring of cauldrons in a festive house, and, in so doing, he was
-subjecting the shades of the whole host of musical masters like Nârada,
-Bharata, Hanumân, Nâyaka, and the rest to ineffable anguish. The
+subjecting the shades of the whole host of musical masters like Nārada,
+Bharata, Hanumān, Nāyaka, and the rest to ineffable anguish. The
 mortified Chobeji in a sharp reprimanding tone addressed the man who had
 been the direct obstacle to his enjoyment of that peculiar bliss of
 inebriation, "Hello, my friend, what are you shouting like that for,
@@ -40,7 +40,7 @@ I?"
 \*    \*    \*
 
 The Lord has declared unto Arjuna: "Take thou refuge in Me, thou hast
-nothing else to do. And I shall deliver thee." Bholâchand is mighty glad
+nothing else to do. And I shall deliver thee." Bholāchand is mighty glad
 to hear this from some people; he now and then yells out in a trenchant
 note: "I have taken refuge in the Lord. I shall not have to do anything
 further." Bholachand is under the: impression that it is the height of
@@ -56,7 +56,7 @@ not enough to hoodwink us even!
 
 \*    \*    \*
 
-Bholâ Puri an out and out Vedantin — in everything he is careful to
+Bholā Puri an out and out Vedantin — in everything he is careful to
 trumpet his Brahminhood. If all people are about to starve for food
 around Bhola Puri, it does not touch him even in the least; he expounds
 the unsubstantiality of pleasure and pain. If through disease, or
@@ -68,7 +68,7 @@ dictum, "The soul neither kills nor is killed." He is exceedingly averse
 to action of any kind. If hard pressed, he replies that he finished all
 actions in his previous births. But Bhola Puri's realisation of unity of
 the Self suffers a terrible check when he is hurt in one point. When
-there is some anomaly in the completeness of his Bhikshâ, or when the
+there is some anomaly in the completeness of his Bhikshā, or when the
 householder is unwilling to offer him worship according to his
 expectations, then, in the opinion of Puriji, there are no more
 despicable creatures on earth than householders, and he is at a loss to
@@ -79,7 +79,7 @@ He, too, has evidently thought the Lord more foolish than ourselves.
 
 \*    \*    \*
 
-"I say, Râm Charan, you have neither education nor the means to set up a
+"I say, Rām Charan, you have neither education nor the means to set up a
 trade, nor are you fit for physical labour. Besides, you cannot give up
 indulging in intoxications, nor do away with your wickednesses. Tell me,
 how do you manage to make your living?"
@@ -99,11 +99,11 @@ Mohurrum. Lucknow is the capital of the Shias, and wailings in the name
 of the illustrious Hassan and Hossain rend the skies today. Who was
 there whose heart was not touched by the lamentation and beating of
 breasts that took place on this mournful occasion? The tale of the
-Kârbâlâ, now a thousand years old, has been renovated today.
+Kārbālā, now a thousand years old, has been renovated today.
 
 Among this crowd of spectators were two Rajput gentlemen, who had come
 from a far-off village to see the festival. The Thakur Sahibs were — as
-is generally the case with village zemindârs (landlords) — innocent of
+is generally the case with village zemindārs (landlords) — innocent of
 learning. That Mohammedan culture, the shower of euphuistic phraseology
 with its nice and correct pronunciation, the varieties of fashionable
 dress — the loose-fitting cloaks and tight trousers and turbans, of a
@@ -135,7 +135,7 @@ There is the towering temple of the Eternal Hindu Religion, and how many
 ways of approaching it! And what can you not find there? From the
 Absolute Brahman of the Vedantin down to Brahma, Vishnu, Shiva, Shakti,
 Uncle Sun, (The Sun is popularly given this familiar appellation.) the
-rat-riding Ganesha, and the minor deities such as Shashthi and Mâkâl,
+rat-riding Ganesha, and the minor deities such as Shashthi and Mākāl,
 and so forth — which is lacking there? And in the Vedas, in the Vedanta,
 and the Philosophies, in the Puranas and the Tantras, there are lots of
 materials, a single sentence of which is enough to break one's chain of
@@ -159,7 +159,7 @@ etc.
 
 \*    \*    \*
 
-Gurguré Krishnavyâl Bhattâchârya is a vastly learned man, who has the
+Gurguré Krishnavyāl Bhattāchārya is a vastly learned man, who has the
 knowledge of the whole world at his finger-ends. His frame is a
 skeleton; his friends say it is through the rigours of his austerities,
 but his enemies ascribe it to want of food. The wicked, again, are of

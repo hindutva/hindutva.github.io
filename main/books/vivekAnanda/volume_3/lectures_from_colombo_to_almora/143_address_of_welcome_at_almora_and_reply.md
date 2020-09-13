@@ -20,13 +20,13 @@ Since the time we heard that, after gaining spiritual conquest in the
 West, you had started from England for your motherland, India, we were
 naturally desirous of having the pleasure of seeing you. By the grace of
 the Almighty, that auspicious moment has at last come. The saying of the
-great poet and the prince of Bhaktas, Tulasidâsa, "A person who
+great poet and the prince of Bhaktas, Tulasidāsa, "A person who
 intensely loves another is sure to find him", has been fully realised
 today. We have assembled here to welcome you with sincere devotion. You
 have highly obliged us by your kindly taking so much trouble in paying a
 visit to this town again. We can hardly thank you enough for your
 kindness. Blessed are you! Blessed, blessed is the revered Gurudeva who
-initiated you into Yoga. Blessed is the land of Bhârata where, even in
+initiated you into Yoga. Blessed is the land of Bhārata where, even in
 this fearful Kali Yuga, there exist leaders of Aryan races like
 yourself. Even at an early period of life, you have by your simplicity,
 sincerity, character, philanthropy, severe discipline, conduct, and the
@@ -34,7 +34,7 @@ preaching of knowledge, acquired that immaculate fame throughout the
 world of which we feel so proud.
 
 In truth, you have accomplished that difficult task which no one ever
-undertook in this country since the days of Shri Shankarâchârya. Which
+undertook in this country since the days of Shri Shankarāchārya. Which
 of us ever dreamt that a descendant of the old Indian Aryans, by dint of
 Tapas, would prove to the learned people of England and America the
 superiority of the ancient Indian religion over other creeds? Before the
@@ -71,7 +71,7 @@ religious instruction.
 We have heard with great pleasure that you intend establishing a Math
 (monastery) here, and we sincerely pray that your efforts in this
 direction be crowned with success. The great Shankaracharya also, after
-his spiritual conquest, established a Math at Badarikâshrama in the
+his spiritual conquest, established a Math at Badarikāshrama in the
 Himalayas for the protection of the ancient religion. Similarly, if your
 desire is also fulfilled, India will be greatly benefited. By the
 establishment of the Math, we, Kumaonese, will derive special spiritual
@@ -97,7 +97,7 @@ Two other addresses were presented, to which the Swami made the
 following brief reply:
 
 This is the land of dreams of our forefathers, in which was born
-Pârvati, the Mother of India. This is the holy land where every ardent
+Pārvati, the Mother of India. This is the holy land where every ardent
 soul in India wants to come at the end of its life, and to close the
 last chapter of its mortal career. On the tops of the mountains of this
 blessed land, in the depths of its caves, on the banks of its rushing

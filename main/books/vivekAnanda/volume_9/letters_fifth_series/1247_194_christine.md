@@ -34,7 +34,7 @@ With everlasting love and blessings,
 VIVEKANANDA.
 
 P.S. Please enquire of Miss \[Sarah Ellen\] Waldo about the publication
-of *Karma* and *Jnâna Yogas* and write.
+of *Karma* and *Jnāna Yogas* and write.
 
 [→](195_introduction.htm)  
 [Addressee→](196_christina.htm)  

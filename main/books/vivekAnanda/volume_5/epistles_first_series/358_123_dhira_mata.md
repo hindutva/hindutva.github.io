@@ -18,7 +18,7 @@ Catholics and the Hindus, holding marriage sacred and inviolate, have
 produced great chaste men and women of immense power. To the Arab,
 marriage is a contract or a forceful possession, to be dissolved at
 will, and we do not find there the development of the idea of the virgin
-or the Brahmachârin. Modern Buddhism — having fallen among races who had
+or the Brahmachārin. Modern Buddhism — having fallen among races who had
 not yet come up to the evolution of marriage — has made a travesty of
 monasticism. So until there is developed in Japan a great and sacred
 ideal about marriage (apart from mutual attraction and love), I do not

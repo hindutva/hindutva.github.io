@@ -102,7 +102,7 @@ are not much in the way of manufacturing clothing etc. They construct
 tools and machinery, and grow wheat, rice, cotton, etc., which are
 fairly cheap.
 
-By the bye, nowadays we have plenty of Hilsâ fish here. Eat your fill,
+By the bye, nowadays we have plenty of Hilsā fish here. Eat your fill,
 but everything digests. There are many kinds of fruits; plantain, lemon,
 guava, apple, almond, raisin, and grape are in abundance; besides many
 other fruits come from California. There are plenty of pineapples but
@@ -111,7 +111,7 @@ there are no mangoes or lichis, or things of that sort.
 There is a kind of spinach, which, when cooked, tastes just like our
 Noté of Bengal, and another class, which they call asparagus, tastes
 exactly like the tender Dengo herb, but you can't have our Charchari
-made of it here. There is no Kalâi or any other pulse; they do not even
+made of it here. There is no Kalāi or any other pulse; they do not even
 know of them. There is rice, and bread, and numerous varieties of fish
 and meat, of all descriptions. Their menu is like that of the French.
 There is your milk, rarely curd, but plenty of whey. Cream is an article
@@ -129,7 +129,7 @@ winter, we had the aurora borealis.
 . . . Only childish prattle! I have not much time to listen to that sort
 of thing in this life; it will be time enough to see if I can do that in
 the next. Yogen has completely rallied by this time, I hope? The
-vagabond spirit of Sarada (Trigunâtita) is not yet at an end, I see.
+vagabond spirit of Sarada (Trigunātita) is not yet at an end, I see.
 What is wanted is a power of organisation — do you understand me? Have
 any of you got that much brain in your head? If you do, let your mind
 work. Brother Tarak, Sharat, and Hari will be able to do it.  — has got
@@ -193,7 +193,7 @@ are none of us; let them pack off, while yet there is time. Propagate
 his character, his teaching, his religion. This is the only spiritual
 practice, the only worship, this verily is the means, and this the goal.
 Arise! Arise! A tidal wave is coming! Onward! Men and women, down to the
-Chandâla (Pariah) — all are pure in his eyes. Onward! Onward! There is
+Chandāla (Pariah) — all are pure in his eyes. Onward! Onward! There is
 no time to care for name, or fame, or Mukti, or Bhakti! We shall look to
 these some other time. Now in this life let us infinitely spread his
 lofty character, his sublime life, his infinite soul. This is the only

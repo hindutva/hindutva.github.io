@@ -69,21 +69,21 @@ Oxford.
 I am busy writing something big on the Vedanta philosophy. I am busy
 collecting passages from the various Vedas bearing on the Vedanta in its
 threefold aspect. You can help me by getting someone to collect passages
-bearing on, first the Advaitic idea, then the Vishishtâdvaitic, and the
-Dvaitic from the Samhitâs, the Brâhmanas, the Upanishads, and the
-Purânas. They should be classified and very legibly written with the
+bearing on, first the Advaitic idea, then the Vishishtādvaitic, and the
+Dvaitic from the Samhitās, the Brāhmanas, the Upanishads, and the
+Purānas. They should be classified and very legibly written with the
 name and chapter of the book, in each case. It would be a pity to leave
 the West without leaving something of the philosophy in book form.
 
 There was a book published in Mysore in Tamil characters, comprising all
 the one hundred and eight Upanishads; I saw it in Professor Deussen's
-library. Is there a reprint of the same in Devanâgari? If so, send me a
+library. Is there a reprint of the same in Devanāgari? If so, send me a
 copy. If not, send me the Tamil edition, and also write on a sheet the
 Tamil letters and compounds, and all juxtaposed with its Nagari
 equivalents, so that I may learn the Tamil letters.
 
 Mr. Satyanathan, whom I met in London the other day, said that there has
-been a friendly review of my Râja-Yoga book in the *Madras Mail*, the
+been a friendly review of my Rāja-Yoga book in the *Madras Mail*, the
 chief Anglo-Indian paper in Madras. The leading physiologist in America,
 I hear, has been charmed with my speculations. At the same time, there
 have been some in England, who ridiculed my ideas. Good! My speculations

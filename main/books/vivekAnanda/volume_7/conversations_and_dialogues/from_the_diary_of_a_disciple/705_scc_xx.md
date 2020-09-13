@@ -78,7 +78,7 @@ will have no room. Then you will have to say —
 
 — "Where is it gone, by whom is it taken, wherein is the world merged?
 It was just observed by me and is it non-existent now? What a wonder!"
-(*Vivekachudâmani* 483).
+(*Vivekachudāmani* 483).
 
 Disciple: If there is no knowledge of the existence of the universe, how
 can it be said, "Wherein is the world merged?"
@@ -129,7 +129,7 @@ Disciple: Yes, sir.
 
 Swamiji: This time, when I get well, I shall worship the Mother with my
 heart's blood, then only will She be pleased. Your Raghunandan also says
-like that. The Mother's child shall be a hero, a Mahâvira. In
+like that. The Mother's child shall be a hero, a Mahāvira. In
 unhappiness, sorrow, death, and desolation, the Mother's child shall
 always remain fearless.
 

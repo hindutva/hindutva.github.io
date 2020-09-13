@@ -14,7 +14,7 @@ title: MY MASTER
 subsequently under the present heading.)
 
 "Whenever virtue subsides and vice prevails, I come down to help
-mankind," declares Krishna, in the Bhagavad-Gitâ. Whenever this world of
+mankind," declares Krishna, in the Bhagavad-Gitā. Whenever this world of
 ours, on account of growth, on account of added circumstances, requires
 a new adjustment, a wave of power comes; and as a man is acting on two
 planes, the spiritual and the material, waves of adjustment come on both
@@ -201,7 +201,7 @@ forest and communed with God. That is the type of descent we want; and
 so long as holiness is thus supremely venerated, India cannot die.
 
 Many of you perhaps have read the article by Prof. Max Müller in a
-recent issue of the *Nineteenth Century*, headed "A Real Mahâtman". The
+recent issue of the *Nineteenth Century*, headed "A Real Mahātman". The
 life of Shri Ramakrishna is interesting, as it was a living illustration
 of the ideas that he preached. Perhaps it will be a little romantic for
 you who live in the West in an atmosphere entirely different from that
@@ -211,7 +211,7 @@ the more interest for that, because it will bring into a newer light,
 things about which many have already heard.
 
 It was while reforms of various kinds were being inaugurated in India
-that a child was born of poor Brâhmin parents on the eighteenth of
+that a child was born of poor Brāhmin parents on the eighteenth of
 February, 1836, in one of the remote villages of Bengal. The father and
 mother were very orthodox people. The life of a really orthodox Brahmin
 is one of continuous renunciation. Very few things can he do; and over
@@ -259,7 +259,7 @@ help another man, to save that man's life, it is all right; it is even
 held that a man ought to do that. And it is expected of a Brahmin to
 carry this idea out to the very extreme. Those who are acquainted with
 the literature of India will remember a beautiful old story about this
-extreme charity, how a whole family, as related in the Mahâbhârata,
+extreme charity, how a whole family, as related in the Mahābhārata,
 starved themselves to death and gave their last meal to a beggar. This
 is not an exaggeration, for such things still happen. The character of
 the father and the mother of my Master was very much like that. Very
@@ -538,7 +538,7 @@ was the embodiment of learning; she was learning itself, in human form.
 There, too, you find the peculiarity of the Indian nation. In the midst
 of the ignorance in which the average Hindu woman lives, in the midst of
 what is called in Western countries her lack of freedom, there could
-arise a woman of supreme spirituality. She was a Sannyâsini; for women
+arise a woman of supreme spirituality. She was a Sannyāsini; for women
 also give up the world, throw away their property, do not marry, and
 devote themselves to the worship of the Lord. She came; and when she
 heard of this boy in the grove, she offered to go and see him; and hers
@@ -656,7 +656,7 @@ Pariah and ask to be allowed to clean his house. The business of the
 Pariah is to clean the streets of the cities and to keep houses clean.
 He cannot enter the house by the front door; by the back door he enters;
 and as soon as he has gone, the whole place over which he has passed is
-sprinkled with and made holy by a little Gangâ water. By birth the
+sprinkled with and made holy by a little Gangā water. By birth the
 Brahmin stands for holiness, and the Pariah for the very reverse. And
 this Brahmin asked to be allowed to do the menial services in the house
 of the Pariah. The Pariah of course could not allow that, for they all
@@ -671,7 +671,7 @@ them" — is the teaching of Hindu scriptures.
 
 There were various other preparations which would take a long time to
 relate, and I want to give you just a sketch of his life. For years he
-thus educated himself. One of the Sâdhanâs was to root out the sex idea.
+thus educated himself. One of the Sādhanās was to root out the sex idea.
 Soul has no sex, it is neither male nor female. It is only in the body
 that sex exists, and the man who desires to reach the spirit cannot at
 the same time hold to sex distinctions. Having been born in a masculine
@@ -981,7 +981,7 @@ distances, and he would not rest until he had answered their questions.
 "While I can speak, I must teach them," he would say, and he was as good
 as his word. One day, he told us that he would lay down the body that
 day, and repeating the most sacred word of the Vedas he entered into
-Samâdhi and passed away.
+Samādhi and passed away.
 
 His thoughts and his message were known to very few capable of giving
 them out. Among others, he left a few young boys who had renounced the

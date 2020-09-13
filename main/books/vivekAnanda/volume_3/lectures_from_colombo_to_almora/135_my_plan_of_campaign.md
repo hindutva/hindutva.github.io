@@ -33,7 +33,7 @@ as I was in foreign lands, I held my peace and did not even speak one
 word; but now, standing upon the soil of my motherland, I want to give a
 few words of explanation. Not that I care what the result will be of
 these words — not that I care what feeling I shall evoke from you by
-these words. I care very little, for I am the same Sannyâsin that
+these words. I care very little, for I am the same Sannyāsin that
 entered your city about four years ago with this staff and Kamandalu;
 the same broad world is before me. Without further preface let me begin.
 
@@ -61,7 +61,7 @@ anything arises in a country which prevents the grinding of them, their
 hearts burn, any amount of hatred comes out, and they do not know what
 to do. What harm does it do to the Christian missionary that the Hindus
 are trying to cleanse their own houses? What injury will it do to the
-Brâhmo Samâj and other reform bodies that the Hindus are trying their
+Brāhmo Samāj and other reform bodies that the Hindus are trying their
 best to reform themselves? Why should they stand in opposition? Why
 should they be the greatest enemies of these movements? Why? — I ask. It
 seems to me that their hatred and jealousy are so bitter that no why or
@@ -107,7 +107,7 @@ Certainly I could not do any such thing, nor could I call any man a
 Hindu who did any such thing. I had a great respect for Mr. Judge. He
 was a worthy man, open, fair, simple, and he was the best representative
 the Theosophists ever had. I have no right to criticise the dispute
-between him and Mrs. Besant when each claims that his or her Mahâtmâ is
+between him and Mrs. Besant when each claims that his or her Mahātmā is
 right. And the strange part of it is that the same Mahatma is claimed by
 both. Lord knows the truth: He is the Judge, and no one has the right to
 pass judgement when the balance is equal. Thus they prepared the way for
@@ -139,7 +139,7 @@ called a Shudra and am challenged as to what right a Shudra has to
 become a Sannyasin. To which I reply: I trace my descent to one at whose
 feet every Brahmin lays flowers when he utters the words — यमाय
 धर्मराजाय चित्रगुप्ताय वै नमः — and whose descendants are the purest of
-Kshatriyas. If you believe in your mythology or your Paurânika
+Kshatriyas. If you believe in your mythology or your Paurānika
 scriptures, let these so-called reformers know that my caste, apart from
 other services in the past, ruled half of India for centuries. If my
 caste is left out of consideration, what will there be left of the
@@ -201,7 +201,7 @@ reform. Where we differ is in the method. Theirs is the method of
 destruction, mine is that of construction. I do not believe in reform; I
 believe in growth. I do not dare to put myself in the position of God
 and dictate to our society, "This way thou shouldst move and not that."
-I simply want to be like the squirrel in the building of Râma's bridge,
+I simply want to be like the squirrel in the building of Rāma's bridge,
 who was quite content to put on the bridge his little quota of
 sand-dust. That is my position. This wonderful national machine has
 worked through ages, this wonderful river of national life is flowing
@@ -317,7 +317,7 @@ those who want to know about it may see a little of it in those big
 temples, full of sculptures, in Southern India; and this is all the
 inheritance we have from the Buddhists.
 
-Then arose the great reformer Shankarâchârya and his followers, and
+Then arose the great reformer Shankarāchārya and his followers, and
 during these hundreds of years, since his time to the present day, there
 has been the slow bringing back of the Indian masses to the pristine
 purity of the Vedantic religion. These reformers knew full well the
@@ -331,7 +331,7 @@ countries, only with changed names — old gods rechristened in a new
 fashion. They change their names; the goddesses become Marys and the
 gods become saints, and the ceremonials become new; even the old title
 of Pontifex Maximus is there. So, sudden changes cannot be and
-Shankaracharya knew it. So did Râmânuja. The only way left to them was
+Shankaracharya knew it. So did Rāmānuja. The only way left to them was
 slowly to bring up to the highest ideal the existing religion. If they
 had sought to apply the other method, they would have been hypocrites,
 for the very fundamental doctrine of their religion is evolution, the
@@ -374,8 +374,8 @@ their method is not right; It has been tried a hundred years and failed.
 Let us try some new method.
 
 Did India ever stand in want of reformers? Do you read the history of
-India? Who was Ramanuja? Who was Shankara? Who was Nânak? Who was
-Chaitanya? Who was Kabir? Who was Dâdu? Who were all these great
+India? Who was Ramanuja? Who was Shankara? Who was Nānak? Who was
+Chaitanya? Who was Kabir? Who was Dādu? Who were all these great
 preachers, one following the other, a galaxy of stars of the first
 magnitude? Did not Ramanuja feel for the lower classes? Did he not try
 all his life to admit even the Pariah to his community? Did he not try
@@ -444,7 +444,7 @@ So every improvement in India requires first of all an upheaval in
 religion. Before flooding India with socialistic or political ideas,
 first deluge the land with spiritual ideas. The first work that demands
 our attention is that the most wonderful truths confined in our
-Upanishads, in our scriptures, in our Purânas must be brought out from
+Upanishads, in our scriptures, in our Purānas must be brought out from
 the books, brought out from the monasteries, brought out from the
 forests, brought out from the possession of selected bodies of people,
 and scattered broadcast all over the land, so that these truths may run
@@ -455,7 +455,7 @@ thought upon, and then meditated upon." Let the people hear first, and
 whoever helps in making the people hear about the great truths in their
 own scriptures cannot make for himself a better Karma today. Says our
 Vyasa, "In the Kali Yuga there is one Karma left. Sacrifices and
-tremendous Tapasyâs are of no avail now. Of Karma one remains, and that
+tremendous Tapasyās are of no avail now. Of Karma one remains, and that
 is the Karma of giving." And of these gifts, the gift of spirituality
 and spiritual knowledge is the highest; the next gift is the gift of
 secular knowledge; the next is the gift of life; and the fourth is the

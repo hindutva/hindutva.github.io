@@ -42,7 +42,7 @@ and Bhakti before you can reach Jnana."
 
 Stick to your reason until you reach something higher; and you will know
 it to be higher, because it will not jar with reason. The stage beyond
-consciousness is inspiration (Samâdhi); but never mistake hysterical
+consciousness is inspiration (Samādhi); but never mistake hysterical
 trances for the real thing. It is a terrible thing to claim this
 inspiration falsely, to mistake instinct for inspiration. There is no
 external test for inspiration, we know it ourselves; our guardian

@@ -16,7 +16,7 @@ some of us would prefer to call it!) took place on the 4th of July,
 disciples in Kashmir, and as part of a domestic conspiracy for the
 celebration of the day — the anniversary of the American Declaration of
 Independence — he prepared the following poem, to be read aloud at the
-early breakfast. The poem itself fell to the keeping of Dhirâ Mâtâ.\]
+early breakfast. The poem itself fell to the keeping of Dhirā Mātā.\]
 
 Behold, the dark clouds melt away,  
 That gathered thick at night, and hung  

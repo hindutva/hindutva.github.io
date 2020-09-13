@@ -42,7 +42,7 @@ work, generosity and friendship. I have one great sin rankling always in
 my breast, and that is \[in order\] to do a service to the world, I have
 sadly neglected my mother. Again, since my second brother has gone away,
 she has become awfully worn-out with grief. Now my last desire is to
-make Sevâ \[give service\] and serve my mother, for some years at least.
+make Sevā \[give service\] and serve my mother, for some years at least.
 I want to live with my mother and get my younger brother married to
 prevent extinction of the family. This will certainly smoothen my last
 days as well as those of my mother. She lives now in a hovel. I want to

@@ -10,7 +10,7 @@ title: THE EVILS OF ADHIKARIVADA
 
 ## THE EVILS OF ADHIKARIVADA
 
-In one of his question classes the talk drifted on to the Adhikârivâda,
+In one of his question classes the talk drifted on to the Adhikārivāda,
 or the doctrine of special rights and privileges, and Swamiji in
 pointing out vehemently the evils that have resulted from it spoke to
 the following effect:
@@ -47,19 +47,19 @@ in the understanding of the weak-minded men, and so the Shloka goes:
         जोषयेत्सर्वकर्माणि विद्वान्युक्तः समाचरन् ॥" (३-२६)
 
 — "One should not unsettle the understanding of the ignorant, attached
-to action (by teaching them Jnâna): the wise man, himself steadily
+to action (by teaching them Jnāna): the wise man, himself steadily
 acting, should engage the ignorant in all work" (Gita, III. 26).
 
 I cannot believe in the self-contradictory statement that light brings
-greater darkness. It is like losing life in the ocean of Sachchidânanda,
+greater darkness. It is like losing life in the ocean of Sachchidānanda,
 in the ocean of Absolute Existence and Immortality. How absurd!
 Knowledge means freedom from the errors which ignorance leads to.
 Knowledge paving the way to error! Enlightenment leading to confusion!
 Is it possible? Men are not bold enough to speak out broad truths, for
 fear of losing the respect of the people. They try to make a compromise
 between the real, eternal truths and the nonsensical prejudices of the
-people, and thus set up the doctrine that Lokâchâras (customs of the
-people) and Deshâchâras (customs of the country) must be adhered to. No
+people, and thus set up the doctrine that Lokāchāras (customs of the
+people) and Deshāchāras (customs of the country) must be adhered to. No
 compromise! No whitewashing! No covering of corpses beneath flowers!
 Throw away such texts as, "तथापि लोकाचारः — Yet the customs of the
 people have to be followed." Nonsense! The result of this sort of

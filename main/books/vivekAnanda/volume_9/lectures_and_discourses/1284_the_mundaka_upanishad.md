@@ -9,10 +9,10 @@ title: THE MUNDAKA UPANISHAD
 Discourses](lectures_and_discourses_contents.htm) /
 
  lecture, we read one of the Upanishads; we will read another \[the
-Mundaka Upanishad\]. Brahmâ was the first of the Devas, the Lord of this
+Mundaka Upanishad\]. Brahmā was the first of the Devas, the Lord of this
 cycle and its protector. He gave this knowledge of Brahman, which is the
 essence of all knowledge, to his son Atharvan. The latter handed it over
-to his son Angiras, he to his son, Bharadvâja, and so on.
+to his son Angiras, he to his son, Bharadvāja, and so on.
 
 There was a man called Shaunaka, a very rich man, who went to this
 Angiras as a learner. He approached the teacher and asked him a
@@ -20,7 +20,7 @@ question. "Tell me, sir, what is that which, being known, everything
 else is known?"
 
 One \[knowledge\] is supreme and the other is inferior. The Rig-Veda is
-the name of one of the different parts of the Vedas. Shikshâ is the name
+the name of one of the different parts of the Vedas. Shikshā is the name
 of another part. All different sciences are inferior. What is the
 supreme science? That is the only science, the supreme science, by which
 we reach the Unchangeable One. But that cannot be seen, cannot be
@@ -29,7 +29,7 @@ without nose, without feet — the Eternal, the Omnipresent, the
 "Omnipenetrating", the Absolute — He from whom everything comes. The
 sages see Him, and that is the supreme knowledge.
 
-Just as the *Urnanâbhi*, a species of spider, creates a thread out of
+Just as the *Urnanābhi*, a species of spider, creates a thread out of
 his own body and takes it back, just as the plants grow by their own
 nature, and all these things are yet separate and apparently different
 (the hair is, as it were, different from the other parts of a man's
@@ -102,7 +102,7 @@ speech. His life is the air. His heart is this universe; His feet, this
 world. He is the Eternal Self of every being.
 
 From Him have come the different Vedas. From Him have come the gods of
-the Sâdhyas. The latter are superior men, much higher than ordinary men
+the Sādhyas. The latter are superior men, much higher than ordinary men
 and very much like the gods.
 
 From Him are all men. From Him are all animals. From Him is all life;
@@ -157,13 +157,13 @@ May the gentle one with success attain the goal. May you go beyond all
 darkness to Him who is omniscient, the All-Knowing. His glory is in
 heaven, on earth and everywhere.
 
-He who has become the mind, the Prânâ, He who is the leader in the body,
+He who has become the mind, the Prānā, He who is the leader in the body,
 He who is established in the food, the energy of life. By supreme
 knowledge the sages see Him whose nature is bliss, who shines as
 immortality.( Mundaka Upanishad 2.2.8.) (This is another of the
 sentences very much quoted.)
 
-There are two words: one is *Jnâna*, the other *Vijnâna*. Jnana may be
+There are two words: one is *Jnāna*, the other *Vijnāna*. Jnana may be
 translated as science — this means intellectual \[knowledge\] only — and
 Vijnana as realization. God cannot be perceived by intellectual
 knowledge. He who has realized \[the Self\] by that supreme knowledge —
@@ -242,7 +242,7 @@ The sage knows that He who is the Soul of all souls — this Atman —
 shines through all.
 
 He is the man, the woman, the cow, the dog — in all animals, in the sin
-and in the sinner. He is the Sannyâsin, He is in the ruler, He is
+and in the sinner. He is the Sannyāsin, He is in the ruler, He is
 everywhere.
 
 Knowing this the sage speaks not. (He gives up criticizing anyone,
@@ -333,7 +333,7 @@ hypnotic condition, the whole of it must be so.
 Vedantists say that not only are heavens hypnotic, but so is this life
 and everything here. Some people want to go from one hypnotic condition
 to another, and these are what we call the fools of the world — the
-Samsârins, the travellers who go from dream to dream, from one hypnotic
+Samsārins, the travellers who go from dream to dream, from one hypnotic
 trance to another. For fifty years they are under the idea that they are
 men and women.
 
@@ -395,7 +395,7 @@ So we have first to get beyond the circle (Jnana) or stand within the
 circle of the hypnotism (Bhakti) with God, the great Player who is
 playing all these things — the whole universe He projects.
 
-Chapter after chapter comes and goes. This is called Mâyâ, the power
+Chapter after chapter comes and goes. This is called Māyā, the power
 which creates all these tremendous things. He who is the ruler of this
 Maya, is God; and he who is ruled by Maya \[is the soul\]. Just as in
 the case of that chain — so the man who was standing in the centre had
@@ -406,7 +406,7 @@ little bits of the Atman deluded by it are called souls — you and I.
 The Bhakta says, Crawl nearer and nearer to the hypnotist, and when you
 get to the centre you do not see anything. You get clear of it.
 
-The Jnâni does not care to undergo all this trouble — it is a dangerous
+The Jnāni does not care to undergo all this trouble — it is a dangerous
 way. Unless a man becomes a lunatic, when he finds himself covered with
 mud, will he take more mud to wash himself? So why increase the
 hypnotism? Get out of the circle; cut it off and be free. When you are
@@ -517,9 +517,9 @@ know it for a mirage.
 
 
 1.  [^](#txt1)In each of the four Vedas there is one such "great word",
-    or great utterance, called Mahâvâkya: "Prajnânam Brahma"
-    ("Consciousness is Brahman"); "Aham Brahmâsmi" ("I am Brahman");
-    "Tat Twam Asi" ("That thou art"); and "Ayam Atmâ Brahma" ("This Self
+    or great utterance, called Mahāvākya: "Prajnānam Brahma"
+    ("Consciousness is Brahman"); "Aham Brahmāsmi" ("I am Brahman");
+    "Tat Twam Asi" ("That thou art"); and "Ayam Atmā Brahma" ("This Self
     is Brahman").
 2.  [^](#txt2)Here Swami Vivekananda is referring to Ishvara, or the
     Personal God.

@@ -98,9 +98,9 @@ attractions vanish for him. This mighty infinite love of God which
 enters his heart leaves no place for any other love to live there. How
 can it be otherwise" Bhakti fills his heart with the divine waters of
 the ocean of love, which is God Himself; there is no place there for
-little loves. That is to say, the Bhakta's renunciation is that Vairâgya
+little loves. That is to say, the Bhakta's renunciation is that Vairāgya
 or non-attachment for all things that are not God which results from
-Anurâga or great attachment to God.
+Anurāga or great attachment to God.
 
 This is the ideal preparation for the attainment of the supreme Bhakti.
 When this renunciation comes, the gate opens for the soul to pass

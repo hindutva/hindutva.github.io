@@ -53,7 +53,7 @@ we will take up the idea of soul, and then find that with all the
 Vedantic philosophers, there is one tremendous departure from all
 Western philosophy. All of them have a common psychology. Whatever their
 philosophy may have been, their psychology is the same in India, the old
-Sânkhya psychology. According to this, perception occurs by the
+Sānkhya psychology. According to this, perception occurs by the
 transmission of the vibrations which first come to the external
 sense-organs, from the external to the internal organs, from the
 internal organs to the mind, from the mind to the Buddhi, from the
@@ -92,8 +92,8 @@ gross body. The fine body is also material, only very fine matter; and
 just as this gross body is the instrument that works the gross forces,
 so the fine body is the instrument that works the fine forces. From
 where do all these forces come? According to Vedanta philosophy, there
-are two things in nature, one of which they call Âkâsha, which is the
-substance, infinitely fine, and the other they call Prâna, which is the
+are two things in nature, one of which they call Âkāsha, which is the
+substance, infinitely fine, and the other they call Prāna, which is the
 force. Whatever you see, or feel, or hear, as air, earth, or anything,
 is material — the product of Akasha. It goes on and becomes finer and
 finer, or grosser and grosser, changing under the action of Prana. Like
@@ -153,7 +153,7 @@ eternal, so its nature is pure. The nature of every being is pure.
 
 When through good deeds all its sins and misdeeds have been washed away,
 then the Jiva becomes pure again, and when it becomes pure, it goes to
-what is called Devayâna. Its organ of speech enters the mind. You cannot
+what is called Devayāna. Its organ of speech enters the mind. You cannot
 think without words. Wherever there is thought, there must be words. As
 words enter the mind, so the mind is resolved into the Prana, and the
 Prana into the Jiva. Then the Jiva gets quickly out of the body, and
@@ -227,7 +227,7 @@ as the human population is increasing, the animal population is
 decreasing. The animal souls are all becoming men. So many species of
 animals have become men already. Where else have they gone?
 
-In the Vedas, there is no mention of hell. But our Purânas, the later
+In the Vedas, there is no mention of hell. But our Purānas, the later
 books of our scriptures, thought that no religion could be complete,
 unless hells were attached to it, and so they invented all sorts of
 hells. In some of these, men are sawed in half, and continually
@@ -319,7 +319,7 @@ reality, and that reality is that one Infinite Existence. You, as body,
 mind, or soul, are a dream, but what you really are, is Existence,
 Knowledge, Bliss. You are the God of this universe. You are creating the
 whole universe and drawing it in. Thus says the Advaitist. So all these
-births and rebirths, coming and going are the figments of Mâyâ. You are
+births and rebirths, coming and going are the figments of Māyā. You are
 infinite. Where can you go? The sun, the moon, and the whole universe
 are but drops in your transcendent nature. How can you be born or die? I
 never was born, never will be born. I never had father or mother,

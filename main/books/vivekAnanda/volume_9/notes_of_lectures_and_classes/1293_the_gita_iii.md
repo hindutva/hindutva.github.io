@@ -10,7 +10,7 @@ Classes](notes_of_lectures_and_classes_contents.htm) /
 
 
 
-*\[Mr. Frank Rhodehamel's notes of the Bhagavad-Gitâ lecture delivered
+*\[Mr. Frank Rhodehamel's notes of the Bhagavad-Gitā lecture delivered
 Tuesday, May 29, 1900, in San Francisco, California\]*
 
 1.  "If you know everything, disturb not the childlike faith of the

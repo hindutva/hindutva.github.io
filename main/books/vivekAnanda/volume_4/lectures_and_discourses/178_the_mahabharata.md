@@ -14,13 +14,13 @@ title: THE MAHABHARATA
 1900*)
 
 The other epic about which I am going to speak to you this evening, is
-called the Mahâbhârata. It contains the story of a race descended from
-King Bharata, who was the son of Dushyanta and Shakuntalâ. Mahâ means
-great, and Bhârata means the descendants of Bharata, from whom India has
-derived its name, Bhârata. Mahabharata means Great India, or the story
+called the Mahābhārata. It contains the story of a race descended from
+King Bharata, who was the son of Dushyanta and Shakuntalā. Mahā means
+great, and Bhārata means the descendants of Bharata, from whom India has
+derived its name, Bhārata. Mahabharata means Great India, or the story
 of the great descendants of Bharata. The scene of this epic is the
 ancient kingdom of the Kurus, and the story is based on the great war
-which took place between the Kurus and the Panchâlas. So the region of
+which took place between the Kurus and the Panchālas. So the region of
 the quarrel is not very big. This epic is the most popular one in India;
 and it exercises the same authority in India as Homer's poems did over
 the Greeks. As ages went on, more and more matter was added to it, until
@@ -30,18 +30,18 @@ history, and various discussions have been added to it from time to
 time, until it is a vast, gigantic mass of literature; and through it
 all runs the old, original story. The central story of the Mahabharata
 is of a war between two families of cousins, one family, called the
-Kauravas, the other the Pândavas — for the empire of India.
+Kauravas, the other the Pāndavas — for the empire of India.
 
 The Aryans came into India in small companies. Gradually, these tribes
 began to extend, until, at last, they became the undisputed rulers of
 India. and then arose this fight to gain the mastery, between two
-branches of the same family. Those of you who have studied the Gitâ know
+branches of the same family. Those of you who have studied the Gitā know
 how the book opens with a description of the battlefield, with two
 armies arrayed one against the other. That is the war of the
 Mahabharata.
 
 There were two brothers, sons of the emperor. The elder one was called
-Dhritarâshtra, and the other was called Pându. Dhritarashtra, the elder
+Dhritarāshtra, and the other was called Pāndu. Dhritarashtra, the elder
 one, was born blind. According to Indian law, no blind, halt, maimed,
 consumptive, or any other constitutionally diseased person, can inherit.
 He can only get a maintenance. So, Dhritarashtra could not ascend the
@@ -58,7 +58,7 @@ throne of his father. The sterling virtues of Yudhishthira and the
 valour and devotion of his other brothers aroused jealousies in the
 hearts of the sons of the blind king, and at the instigation of
 Duryodhana, the eldest of them, the five Pandava brothers were prevailed
-upon to visit Vâranâvata, on the plea of a religious festival that was
+upon to visit Vāranāvata, on the plea of a religious festival that was
 being held there. There they were accommodated in a palace made under
 Duryodhana's instructions, of hemp, resin, and lac, and other
 inflammable materials, which were subsequently set fire to secretly. But
@@ -70,7 +70,7 @@ heaved a sigh of relief and thought all obstacles were now removed out
 of their path. Then the children of Dhritarashtra got hold of the
 kingdom. The five Pandava brothers had fled to the forest with their
 mother, Kunti. They lived there by begging, and went about in disguise
-giving themselves out as Brâhmana students. Many were the hardships and
+giving themselves out as Brāhmana students. Many were the hardships and
 adventures they encountered in the wild forests, but their fortitude of
 mind, and strength, and valour made them conquer all dangers. So things
 went on until they came to hear of the approaching marriage of the
@@ -102,7 +102,7 @@ of the princess, and one after another they tried their skill, and every
 one of them failed to hit the mark.
 
 You know, there are four castes in India: the highest caste is that of
-the hereditary priest, the Brâhmana; next is the caste of the Kshatriya,
+the hereditary priest, the Brāhmana; next is the caste of the Kshatriya,
 composed of kings and fighters; next, the Vaishyas, the traders or
 businessmen, and then Shudras, the servants. Now, this princess was, of
 course, a Kshatriya, one of the second caste.
@@ -167,7 +167,7 @@ overheard their conversation and became fully convinced that they were
 really Kshatriyas. Then King Drupada came to know who they were and was
 greatly delighted.
 
-Though at first much objection was raised, it was declared by Vyâsa that
+Though at first much objection was raised, it was declared by Vyāsa that
 such a marriage was allowable for these princes, and it was permitted.
 So the king Drupada had to yield to this polyandrous marriage, and the
 princess was married to the five sons of Pandu.
@@ -181,11 +181,11 @@ kingdom. Then, the five brothers built for themselves a beautiful city,
 called Indraprastha, and extended their dominions, laying all the people
 under tribute to them. Then the eldest, Yudhishthira, in order to
 declare himself emperor over all the kings of ancient India, decided to
-perform a Râjasuya Yajna or Imperial Sacrifice, in which the conquered
+perform a Rājasuya Yajna or Imperial Sacrifice, in which the conquered
 kings would have to come with tribute and swear allegiance, and help the
 performance of the sacrifice by personal services. Shri Krishna, who had
 become their friend and a relative, came to them and approved of the
-idea. But there alas one obstacle to its performance. A king, Jarâsandha
+idea. But there alas one obstacle to its performance. A king, Jarāsandha
 by name, who intended to offer a sacrifice of a hundred kings, had
 eighty-six of them kept as captives with him. Shri Krishna counselled an
 attack on Jarasandha. So he, Bhima, and Arjuna challenged the king, who
@@ -245,7 +245,7 @@ them bear lightly the burden of their exile. One only I will relate to
 you here.
 
 There was a king called Ashvapati. The king had a daughter, who was so
-good and beautiful that she was called Sâvitri, which is the name of a
+good and beautiful that she was called Sāvitri, which is the name of a
 sacred prayer of the Hindus. When Savitri grew old enough, her father
 asked her to choose a husband for herself. These ancient Indian
 princesses were very independent, you see, and chose their own princely
@@ -268,7 +268,7 @@ Now it happened that there was a king, Dyumatsena, who was defeated by
 his enemies and was deprived of his kingdom when he was struck with age
 and had lost his sight. This poor, old, blind king, with his queen and
 his son, took refuge in the forest and passed his life in rigid penance.
-His boy's name was Satyavân.
+His boy's name was Satyavān.
 
 It came to pass that after having visited all the different royal
 courts, Savitri at last came to this hermitage, or holy place. Not even
@@ -298,7 +298,7 @@ lost his kingdom — a prince without a patrimony, who lives a monastic
 life, the life of a Sannyasin in a forest, collecting roots and herbs,
 helping and feeding his old father and mother, who live in a cottage."
 
-On hearing this the father consulted the Sage Nârada, who happened to be
+On hearing this the father consulted the Sage Nārada, who happened to be
 then present there, and he declared it was the most ill-omened choice
 that was ever made. The king then asked him to explain why it was so.
 And Narada said, "Within twelve months from this time the young man will
@@ -448,15 +448,15 @@ Here is a glimpse of the nature of King Yudhishthira. We find by his
 answers that he was more of a philosopher, more of a Yogi, than a king.
 
 Now, as the thirteenth year of the exile was drawing nigh, the Yaksha
-bade them go to Virâta's kingdom and live there in such disguises as
+bade them go to Virāta's kingdom and live there in such disguises as
 they would think best.
 
 So, after the term of the twelve years' exile had expired, they went to
 the kingdom of Virata in different disguises to spend the remaining one
 year in concealment, and entered into menial service in the king's
-household. Thus Yudhishthira became a Brâhmana courtier of the king, as
+household. Thus Yudhishthira became a Brāhmana courtier of the king, as
 one skilled in dice; Bhima was appointed a cook; Arjuna, dressed as a
-eunuch, was made a teacher of dancing and music to Uttarâ, the princess,
+eunuch, was made a teacher of dancing and music to Uttarā, the princess,
 and remained in the inner apartments of the king; Nakula became the
 keeper of the king's horses; and Sahadeva got the charge of the cows;
 and Draupadi, disguised as a waiting-woman, was also admitted into the
@@ -521,7 +521,7 @@ terrific noise and killed many people.
 
 So in those old days, they used to fight with magic arrows. One man
 would be able to fight millions of others. They had their military
-arrangements and tactics: there were the foot soldiers, termed the Pâda;
+arrangements and tactics: there were the foot soldiers, termed the Pāda;
 then the cavalry, Turaga; and two other divisions which the moderns have
 lost and given up — there was the elephant corps — hundreds and hundreds
 of elephants, with men on their backs, formed into regiments and
@@ -541,11 +541,11 @@ which Bhisma, Drona, Karna, and the brothers of Duryodhana with the
 kinsmen on both sides and thousands of other heroes fell. The war lasted
 eighteen days. Indeed, out of the eighteen Akshauhinis of soldiers very
 few men were left. The death of Duryodhana ended the war in favour of
-the Pandavas. It was followed by the lament of Gândhâri, the queen and
+the Pandavas. It was followed by the lament of Gāndhāri, the queen and
 the widowed women, and the funerals of the deceased warriors.
 
 The greatest incident of the war was the marvellous and immortal poem of
-the Gitâ, the Song Celestial. It is the popular scripture of India and
+the Gitā, the Song Celestial. It is the popular scripture of India and
 the loftiest of all teachings. It consists of a dialogue held by Arjuna
 with Krishna, just before the commencement of the fight on the
 battle-field of Kurukshetra. I would advise those of you who have not
@@ -607,7 +607,7 @@ days' battle, still lay on his deathbed and gave instructions to
 Yudhishthira on various subjects, such as the duties of the king, the
 duties of the four castes, the four stages of life, the laws of
 marriage, the bestowing of gifts, etc., basing them on the teachings of
-the ancient sages. He explained Sânkhya philosophy and Yoga philosophy
+the ancient sages. He explained Sānkhya philosophy and Yoga philosophy
 and narrated numerous tales and traditions about saints and gods and
 kings. These teachings occupy nearly one-fourth of the entire work and
 form an invaluable storehouse of Hindu laws and moral codes.
@@ -625,13 +625,13 @@ last days in asceticism.
 Thirty-six years had now passed since Yudhishthira regained his empire.
 Then came to him the news that Krishna had left his mortal body.
 Krishna, the sage, his friend, his prophet, his counsellor, had
-departed. Arjuna hastened to Dwârâka and came back only to confirm the
-sad news that Krishna and the Yâdavas were all dead. Then the king and
+departed. Arjuna hastened to Dwārāka and came back only to confirm the
+sad news that Krishna and the Yādavas were all dead. Then the king and
 the other brothers, overcome with sorrow, declared that the time for
 them to go, too, had arrived. So they cast off the burden of royalty,
 placed Parikshit, the grandson of Arjuna, on the throne, and retired to
-the Himalayas, on the Great Journey, the Mahâprasthâna. This was a
-peculiar form of Sannyâsa. It was a custom for old kings to become
+the Himalayas, on the Great Journey, the Mahāprasthāna. This was a
+peculiar form of Sannyāsa. It was a custom for old kings to become
 Sannyasins. In ancient India, when men became very old, they would give
 up everything. So did the kings. When a man did not want to live any
 more, then he went towards the Himalayas, without eating or drinking and
@@ -694,7 +694,7 @@ Lord of Death and Justice. And Dharma exclaimed, "Behold, O King, no man
 was ever so unselfish as thou, willing to exchange heaven with a little
 dog, and for his sake disclaiming all his virtues and ready to go to
 hell even for him. Thou art well born, O King of kings. Thou hast
-compassion for all creatures, O Bhârata, of which this is a bright
+compassion for all creatures, O Bhārata, of which this is a bright
 example. Hence, regions of undying felicity are thine! Thou hast won
 them, O King, and shine is a celestial and high goal."
 

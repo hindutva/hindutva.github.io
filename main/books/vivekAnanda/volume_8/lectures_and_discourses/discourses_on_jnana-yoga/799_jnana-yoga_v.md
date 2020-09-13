@@ -97,7 +97,7 @@ suicide is folly, it is only killing the "schoolmaster". Another will
 take his place. So until we have learnt to transcend the body, we must
 have it, and losing one, will get another. Still we must not identify
 ourselves with the body, but look upon it only as an instrument to be
-used in reaching perfection. Hanumân, the devotee of Râma, summed up his
+used in reaching perfection. Hanumān, the devotee of Rāma, summed up his
 philosophy in these words: When I identify myself with the body, O Lord,
 I am Thy creature, eternally separate from Thee. When I identify myself
 with the soul, I am a spark of that Divine Fire which Thou art. But when

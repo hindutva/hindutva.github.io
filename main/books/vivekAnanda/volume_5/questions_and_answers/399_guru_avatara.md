@@ -21,7 +21,7 @@ aspirant and hears the Sad-guru's words, he is liberated.
 *Q*. — Who is a Sad-guru?
 
 *A*. — A Sad-guru is one on whom the spiritual power has descended by
-Guru-paramparâ, or an unbroken chain of discipleship.
+Guru-paramparā, or an unbroken chain of discipleship.
 
 To play the role of a spiritual teacher is a very difficult thing. One
 has to take on oneself the sins of others. There is every chance of a
@@ -30,7 +30,7 @@ should consider himself fortunate.
 
 *Q*. — Cannot the spiritual teacher make the aspirant fit?
 
-*A*. — An Avatâra can. Not an ordinary Guru.
+*A*. — An Avatāra can. Not an ordinary Guru.
 
 *Q*. — Is there no easy way to liberation?
 
@@ -78,7 +78,7 @@ require it, but for others it is necessary. One, however, should go
 beyond the form and meditate on the impersonal aspect of God, for no
 form can grant liberation. You may get worldly prosperity from the sight
 of the form. One who ministers to his mother succeeds in this world; one
-who worships his father goes to heaven; but the worshipper of a Sâdhu
+who worships his father goes to heaven; but the worshipper of a Sādhu
 (holy man) gets knowledge and devotion.
 
 *Q*. — What is the meaning of "क्षणमिह सज्जनसंगतिरेका" etc. — Even a
@@ -88,7 +88,7 @@ relative existence"?
 *A*. — A fit person coming in contact with a true Sadhu attains to
 liberation. True Sadhus are very rare, but their influence is such that
 a great writer has said, "Hypocrisy is the tribute which vice pays to
-virtue." But Avataras are Kapâlamochanas, that is, they can alter the
+virtue." But Avataras are Kapālamochanas, that is, they can alter the
 doom of people. They can stir the whole world. The least dangerous and
 best form of worship is worshipping man. One who has got the idea of
 Brahman in a man has realised it in the whole universe. Monasticism and
@@ -119,7 +119,7 @@ seems to be disinclined to continue the Japa owing to that joy. Should
 it be continued then?
 
 *A*. — Yes, that joy is a hindrance to spiritual practice, its name
-being Rasâsvâdana (tasting of the sweetness). One must rise above that.
+being Rasāsvādana (tasting of the sweetness). One must rise above that.
 
 *Q*. — Is it good to practice Japa for a long time, though the mind may
 be wandering?
@@ -134,12 +134,12 @@ tries to practice Yoga, a tremendous reaction comes. Then what to do?
 not afraid of dying for the sake of learning and many other things, and
 why should you fear to die for religion?
 
-*Q*. — Can Jiva-sevâ (service to beings) alone give Mukti ?
+*Q*. — Can Jiva-sevā (service to beings) alone give Mukti ?
 
 *A*. — Jiva-seva can give Mukti not directly but indirectly, through the
 purification of the mind. But if you wish to do a thing properly, you
 must, for the time being, think that that is all-sufficient. The danger
-in any sect is want of zeal. There must be constancy (Nishthâ), or there
+in any sect is want of zeal. There must be constancy (Nishthā), or there
 will be no growth. At present it has become necessary to lay stress on
 Karma.
 

@@ -46,7 +46,7 @@ been deluded somehow before. I took other friends, and on this occasion
 also he came out wonderfully triumphant.
 
 Another time I was in the city of Hyderabad in India, and I was told of
-a Brâhmin there who could produce numbers of things from where, nobody
+a Brāhmin there who could produce numbers of things from where, nobody
 knew. This man was in business there; he was a respectable gentleman.
 And I asked him to show me his tricks. It so happened that this man had
 a fever, and in India there is a general belief that if a holy man puts
@@ -94,7 +94,7 @@ these, though extraordinary, are also natural; there is nothing
 supernatural. They are under laws just the same as any other physical
 phenomenon. It is not a freak of nature that a man is born with such
 powers. They can be systematically studied, practiced, and acquired.
-This science they call the science of Râja-Yoga. There are thousands of
+This science they call the science of Rāja-Yoga. There are thousands of
 people who cultivate the study of this science, and for the whole nation
 it has become a part of daily worship.
 

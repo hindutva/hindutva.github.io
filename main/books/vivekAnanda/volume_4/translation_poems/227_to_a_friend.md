@@ -25,14 +25,14 @@ Where "self", "self" — this always the only note,
 Dost thou, O wise, seek for peace supreme here?
 
 A glaring mixture of heaven and hell,  
-Who can fly from this Samsâr (Samsâra, the world) of Mâyâ?  
+Who can fly from this Samsār (Samsāra, the world) of Māyā?  
 Fastened in the neck with Karma's fetters,  
 Say, where can the slave escape for safety?
 
 The paths of Yoga and of sense-enjoyment,  
-The life of the householder and Sannyâs,  
+The life of the householder and Sannyās,  
 Devotion, worship, and earning riches,  
-Vows, Tyâga, and austerities severe,  
+Vows, Tyāga, and austerities severe,  
 I have seen through them all. What have I known?
 
 — Have known there's not a jot of happiness,  
@@ -62,7 +62,7 @@ And how many days have I passed on alms!
 
 Friendless, clad in rags, with no possession,  
 Feeding from door to door on what chance would bring.  
-The frame broken under Tapasyâ's (Of austerities) weight;  
+The frame broken under Tapasyā's (Of austerities) weight;  
 What riches, ask thou, have I earned in life?
 
 Listen, friend, I will speak my heart to thee;  
@@ -89,7 +89,7 @@ Both are but the impulse of the same Love!
 Beyond the ken of human speech and mind,  
 It dwells in weal and woe; 'tis that which comes  
 As the all-powerful, all-destroyer  
-Kâli, and as the kindliest mother.
+Kāli, and as the kindliest mother.
 
 Disease, bereavement, pinch of poverty,  
 Dharma, (Virtue) and its opposite Adharma, (Vice)  

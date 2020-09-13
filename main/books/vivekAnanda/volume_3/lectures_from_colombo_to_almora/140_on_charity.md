@@ -11,7 +11,7 @@ title: ON CHARITY
 ## ON CHARITY
 
 During his stay in Madras the Swami presided at the annual meeting of
-the Chennapuri Annadâna Samâjam, an institution of a charitable nature,
+the Chennapuri Annadāna Samājam, an institution of a charitable nature,
 and in the course of a brief address referred to a remark by a previous
 speaker deprecating special alms-giving to the Brahmin over and above
 the other castes. Swamiji pointed out that this had its good as well as
@@ -29,7 +29,7 @@ organisation of a system of magistracy, police, jails, and other
 establishments. Poverty there must be, so long as the disease known as
 civilisation existed: and hence the need for relief. So that they had to
 choose between the indiscriminate charity of India, which, in the case
-of Sannyâsins at any rate, even if they were not sincere men, at least
+of Sannyāsins at any rate, even if they were not sincere men, at least
 forced them to learn some little of their scriptures before they were
 able to obtain food; and the discriminate charity of Western nations
 which necessitated a costly system of poor-law relief, and in the end

@@ -160,7 +160,7 @@ the same. But with every race, you will have to speak their language in
 order to reach their hearts. And that is quite just. We need not fret
 about that.
 
-In the Order to which I belong we are called Sannyâsins. The word means
+In the Order to which I belong we are called Sannyāsins. The word means
 "a man who has renounced". This is a very, very, very ancient Order.
 Even Buddha, who was 560 years before Christ, belonged to that Order. He
 was one of the reformers of his Order. That was all. So ancient! You

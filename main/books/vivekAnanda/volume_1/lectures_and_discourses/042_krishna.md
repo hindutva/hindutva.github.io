@@ -41,7 +41,7 @@ helping hand to the weak and bring them up.
 With Buddhism we have two words in Sanskrit: one is translated religion,
 the other, a sect. It is the most curious fact that the disciples and
 descendants of Krishna have no name for their religion \[although\]
-foreigners call it Hinduism or Brâhmanism. There is one religion, and
+foreigners call it Hinduism or Brāhmanism. There is one religion, and
 there are many sects. The moment you give it a name, individualise it
 and separate it from the rest, it is a sect, no more a religion. A sect
 \[proclaims\] its own truth and declares that there is no truth anywhere

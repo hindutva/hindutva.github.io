@@ -77,9 +77,9 @@ strong, of course!" he said, "You forget your own part in this Karma:
 Yours is always the right to rebel!"
 
 12\. "Ought one to seek an opportunity of death in defense of right, or
-ought one to take the lesson of the Gitâ and learn never to react?" the
+ought one to take the lesson of the Gitā and learn never to react?" the
 Swami was asked. "I am for no reaction", said the Swami, speaking slowly
-and with a long pause. Then he added " — for Sannyâsins. Self-defense
+and with a long pause. Then he added " — for Sannyāsins. Self-defense
 for the householder!"
 
 13\. "It is a mistake to hold that with all men pleasure is the motive.
@@ -89,7 +89,7 @@ Its own sake."
 14\. "Ramakrishna Paramahamsa was the only man who ever had the courage
 to say that we must speak to all men in their own language!"
 
-15\. "How I used to hate Kâli!" he said, referring to his own days of
+15\. "How I used to hate Kāli!" he said, referring to his own days of
 doubts in accepting the Kali ideal, "And all Her ways! That was the
 ground of my six years' fight — that I would not accept Her. But I had
 to accept Her at last! Ramakrishna Paramahamsa dedicated me to Her, and
@@ -301,7 +301,7 @@ to it. He connects a living power with rocks, sticks, trees and the
 rest. And is there not a living Power behind them? It is *symbolism*,
 not fetishism! Can you not see?"
 
-27\. One day he told the story of Satyabhâmâ's sacrifice and how the
+27\. One day he told the story of Satyabhāmā's sacrifice and how the
 word "Krishna", written on a piece of paper and thrown into the balance,
 made Krishna himself, on the other side, kick the beam. "Orthodox
 Hinduism", he began, "makes Shruti, the sound, everything. The *thing*
@@ -367,7 +367,7 @@ future, is to be open to the world!"
 32\. "Buddha made the fatal mistake of thinking that the whole world
 could be lifted to the height of the Upanishads. And self-interest
 spoilt all. Krishna was wiser, because He was more politic. But Buddha
-would have no compromise. The world before now has seen even the Avatâra
+would have no compromise. The world before now has seen even the Avatāra
 ruined by compromise, tortured to death for want of recognition, and
 lost. But Buddha would have been worshipped as God in his own lifetime,
 all over Asia, for a moment's compromise. And his reply was only:
@@ -387,7 +387,7 @@ Yes!" he reiterated. "You Western folk want *action*! You cannot yet
 perceive the poetry of every common little incident in life! What beauty
 could be greater than that of the story of the young mother coming to
 Buddha with her dead boy? Or the incident of the goats? You see the
-Great Renunciation was not new in India! . . . But *after Nirvâna*, look
+Great Renunciation was not new in India! . . . But *after Nirvāna*, look
 at the poetry!
 
 "It is a wet night, and he comes to the cowherd's hut and gathers in to
@@ -499,10 +499,10 @@ Yes, a daily worship at the feet of beggars, after bathing and before
 the meal, would be a wonderful practical training of heart and hand
 together. On some days, again, the worship might be of children, of your
 own pupils. Or you might borrow babies and nurse and feed them. What was
-it that Mâtâji (Tapaswini Mataji, foundress of the Mahâkâli Pâthasâlâ,
+it that Mātāji (Tapaswini Mataji, foundress of the Mahākāli Pāthasālā,
 Calcutta.) said to me? 'Swamiji! I have no help. But these blessed ones
 I worship, and they will take me to salvation!' She feels, you see, that
-she is serving Umâ in the Kumâri, and that is a wonderful thought, with
+she is serving Umā in the Kumāri, and that is a wonderful thought, with
 which to begin a school."
 
 38\. "Love is always a manifestation of bliss. The least shadow of pain
@@ -540,7 +540,7 @@ shifting!"
 
 43. "Now on the Advaitic side it is held that the soul neither comes nor
 goes, and that all these spheres or layers of the universe are only so
-many varying products of Âkâsha and Prâna. That is to say, the lowest or
+many varying products of Âkāsha and Prāna. That is to say, the lowest or
 most condensed is the Solar Sphere, consisting of the visible universe,
 in which Prana appears as physical force, and Akasha as sensible matter.
 The next is called the Lunar Sphere, which surrounds the Solar Sphere.
@@ -624,7 +624,7 @@ Sannyasin!
 
 "Everything is fraught with fear: Renunciation alone is fearless.
 
-"Blessed be even the fraudulent Sâdhus and those who have failed to
+"Blessed be even the fraudulent Sādhus and those who have failed to
 carry out their vows, inasmuch as they also have witnessed to their
 ideal and so are in some degree the cause of the success of others!
 

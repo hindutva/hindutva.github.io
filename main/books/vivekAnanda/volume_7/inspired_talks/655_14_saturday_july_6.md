@@ -13,7 +13,7 @@ title: 'RECORDED BY MISS S. E. WALDO
 ## RECORDED BY MISS S. E. WALDO (A DISCIPLE)
 
 SATURDAY, *July 6, 1895*. (*Today we had Shankaracharya's commentary on
-Vyâsa's Vedânta Sutras*.)
+Vyāsa's Vedānta Sutras*.)
 
 Om tat sat! According to Shankara, there are two phases of the universe,
 one is I and the other thou; and they are as contrary as light and
@@ -23,11 +23,11 @@ the only reality, the other a mere appearance. The opposite view is
 untenable. Matter and the external world are but the soul in a certain
 state; in reality there is only one.
 
-All our world comes from truth and untruth coupled together. Samsâra
+All our world comes from truth and untruth coupled together. Samsāra
 (life) is the result of the contradictory forces acting upon us, like
 the diagonal motion of a ball in a parallelogram of forces. The world is
 God and is real, but that is not the world we see; just as we see silver
-in the mother-of-pearl where it is not. This is what is known as Adhyâsa
+in the mother-of-pearl where it is not. This is what is known as Adhyāsa
 or superimposition, that is, a relative existence dependent upon a real
 one, as when we recall a scene we have seen; for the time it exists for
 us, but that existence is not real. Or some say, it is as when we

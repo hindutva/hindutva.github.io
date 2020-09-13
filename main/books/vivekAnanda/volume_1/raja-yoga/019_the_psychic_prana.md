@@ -13,7 +13,7 @@ CHAPTER IV
 ## THE PSYCHIC PRANA
 
 According to the Yogis, there are two nerve currents in the spinal
-column, called Pingalâ and Idâ, and a hollow canal called Sushumnâ
+column, called Pingalā and Idā, and a hollow canal called Sushumnā
 running through the spinal cord. At the lower end of the hollow canal is
 what the Yogis call the "Lotus of the Kundalini". They describe it as
 triangular in form in which, in the symbolical language of the Yogis,
@@ -36,8 +36,8 @@ according to modern physiology, is triangular in form. The different
 plexuses that have their centres in the spinal canal can very well stand
 for the different "lotuses" of the Yogi.
 
-The Yogi conceives of several centres, beginning with the Mulâdhâra, the
-basic, and ending with the Sahasrâra, the thousand-petalled Lotus in the
+The Yogi conceives of several centres, beginning with the Mulādhāra, the
+basic, and ending with the Sahasrāra, the thousand-petalled Lotus in the
 brain. So, if we take these different plexuses as representing these
 lotuses, the idea of the Yogi can be understood very easily in the
 language of modern physiology. We know there are two sorts of actions in
@@ -82,15 +82,15 @@ a gigantic battery of will. This tremendous will is exactly what the
 Yogi wants. This is, therefore, a physiological explanation of the
 breathing exercise. It tends to bring a rhythmic action in the body, and
 helps us, through the respiratory centre, to control the other centres.
-The aim of Prânâyâma here is to rouse the coiled-up power in the
+The aim of Prānāyāma here is to rouse the coiled-up power in the
 Muladhara, called the Kundalini.
 
 Everything that we see, or imagine, or dream, we have to perceive in
-space. This is the ordinary space, called the Mahâkâsha, or elemental
+space. This is the ordinary space, called the Mahākāsha, or elemental
 space. When a Yogi reads the thoughts of other men, or perceives
 supersensuous objects he sees them in another sort of space called the
-Chittâkâsha, the mental space. When perception has become objectless,
-and the soul shines in its own nature, it is called the Chidâkâsha, or
+Chittākāsha, the mental space. When perception has become objectless,
+and the soul shines in its own nature, it is called the Chidākāsha, or
 knowledge space. When the Kundalini is aroused, and enters the canal of
 the Sushumna, all the perceptions are in the mental space. When it has
 reached that end of the canal which opens out into the brain, the
@@ -180,7 +180,7 @@ mental attitude of prayer in waking up a bit of this infinite power
 which is coiled up within himself. What, thus, men ignorantly worship
 under various names, through fear and tribulation, the Yogi declares to
 the world to be the real power coiled up in every being, the mother of
-eternal happiness, if we but know how to approach her. And Râja-Yoga is
+eternal happiness, if we but know how to approach her. And Rāja-Yoga is
 the science of religion, the rationale of all worship, all prayers,
 forms, ceremonies, and miracles.
 

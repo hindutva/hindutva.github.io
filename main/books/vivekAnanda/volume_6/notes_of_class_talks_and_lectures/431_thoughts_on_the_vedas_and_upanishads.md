@@ -33,7 +33,7 @@ and the attributes, such as omnipresence, omniscience, and omnipotence,
 make God of gods.
 
 "Hear ye children of Immortality! Hear ye Devas who live in higher
-spheres!" (Shvetâshvatara, II. 5). "I have found out a ray beyond all
+spheres!" (Shvetāshvatara, II. 5). "I have found out a ray beyond all
 darkness, beyond all doubt. I have found the Ancient One" (*ibid*. III.
 8). The way to this is contained in the Upanishads.
 
@@ -61,7 +61,7 @@ deeper darkness" (Isha, 9).
 Are then ceremonials bad? No, they will benefit those who are coming on.
 
 In one of the Upanishads (i.e. Katha) this question is asked by
-Nachiketâ, a youth: "Some say of a dead man, he is gone; others, he is
+Nachiketā, a youth: "Some say of a dead man, he is gone; others, he is
 still living. You are Yama, Death. You know the truth; do answer me."
 Yama replies, "Even the Devas, many of them, know not — much less men.
 Boy, do not ask of me this answer." But Nachiketa persists. Yama again

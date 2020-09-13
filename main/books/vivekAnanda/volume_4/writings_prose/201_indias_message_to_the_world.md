@@ -79,7 +79,7 @@ Turkistan and the Punjab and N. W. Tibet.
 various degrees of culture.
 
 18\. Just as Sanskrit has been the linguistic solution, so the Arya the
-racial solution. So the Brâhminhood is the solution of the varying
+racial solution. So the Brāhminhood is the solution of the varying
 degrees of progress and culture as well as that of all social and
 political problems.
 
@@ -192,7 +192,7 @@ above all, is the glorious soul of man everywhere which never fails to
 understand any one who knows how to speak its own language. Men and
 women are to be found in every race whose lives are blessings to
 humanity, verifying the words of the divine Emperor Asoka: "In every
-land dwell Brâhmins and Shramanas."
+land dwell Brāhmins and Shramanas."
 
 I am grateful to the lands of the West for the many warm hearts that
 received me with all the love that pure and disinterested souls alone

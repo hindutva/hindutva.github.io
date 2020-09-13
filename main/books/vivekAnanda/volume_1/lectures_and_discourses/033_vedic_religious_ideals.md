@@ -11,7 +11,7 @@ title: VEDIC RELIGIOUS IDEALS
 ## VEDIC RELIGIOUS IDEALS
 
 What concerns us most is the religious thought — on soul and God and all
-that appertains to religion. We will take the Samhitâs. These are
+that appertains to religion. We will take the Samhitās. These are
 collections of hymns forming, as it were, the oldest Aryan literature,
 properly speaking, the oldest literature in the world. There may have
 been some scraps of literature of older date here and there, older than
@@ -135,7 +135,7 @@ up, in the next book, to the highest position. They occupy the position
 of the Personal God in turns. But the explanation is there in the book,
 and it is a grand explanation, one that has given the theme to all
 subsequent thought in India, and one that will be the theme of the whole
-world of religions: "Ekam Sat Viprâ Bahudhâ Vadanti — That which exists
+world of religions: "Ekam Sat Viprā Bahudhā Vadanti — That which exists
 is One; sages call It by various names." In all these cases where hymns
 were written about all these gods, the Being perceived was one and the
 same; it was the perceiver who made the difference. It was the hymnist,
@@ -269,7 +269,7 @@ now we shall find that in various hymns one or other idea is taken up,
 and expanded infinitely and made responsible for everything in the
 universe. One particular idea is taken as the support, in which
 everything rests and exists, and that support has become all this. So on
-with various ideas. They tried this method with Prâna, the life
+with various ideas. They tried this method with Prāna, the life
 principle. They expanded the idea of the life principle until it became
 universal and infinite. It is the life principle that is supporting
 everything; not only the human body, but it is the light of the sun and
@@ -351,7 +351,7 @@ ourselves. Devotion to ceremonials, satisfaction in the senses, and
 forming various theories, have drawn a veil between ourselves and truth.
 This is another great landmark, and we shall have to trace this ideal to
 the end, and see how it developed later on into that wonderful theory of
-Mâyâ of the Vedanta, how this veil will be the real explanation of the
+Māyā of the Vedanta, how this veil will be the real explanation of the
 Vedanta, how the truth was there all the time, it was only this veil
 that had covered it.
 

@@ -10,13 +10,13 @@ Discourses](lectures_and_discourses_contents.htm) /
 
 
 
-*\[A Jnâna-Yoga class delivered in London, England, on Thursday morning,
+*\[A Jnāna-Yoga class delivered in London, England, on Thursday morning,
 May 7, 1896, and recorded by Mr. Josiah J. Goodwin\]*
 
 I have told you how I would divide the subject into four Yogas, but, as
 the bearing of all these various Yogas is the same — the goal they want
 to arrive at is the same — I had better begin with the philosophical
-portion: the Jnana-Yoga. Jnâna means knowledge, and, before going into
+portion: the Jnana-Yoga. Jnāna means knowledge, and, before going into
 the principles of the Vedanta philosophy, I think it is necessary to
 sketch in a few words the origin and the beginning and the development —
 the historical portion of that system. Most of you are now familiar with
@@ -218,7 +218,7 @@ extinct; and with them, their portion of the Vedas was lost, if these
 old accounts be true.
 
 Some of you know that the Vedas are divided into four parts. One is
-called the Rig-Veda, another Yajur-Veda, another Sâma-Veda, and the
+called the Rig-Veda, another Yajur-Veda, another Sāma-Veda, and the
 fourth Atharva-Veda. Each one of these, again, was divided into many
 branches. For instance, the Sama-Veda had one thousand branches, of
 which only about five or six remain; the rest are all lost. So with the
@@ -337,14 +337,14 @@ how it has come about that the Buddhistic literature is in Pali, which
 was the vernacular of that time.
 
 This vast mass of literature — the Vedas — we find in three groups. The
-first group is the Samhitâs, a collection of hymns. The second group is
-called the Brâhmanas, or the \[group dealing with different kinds of\]
+first group is the Samhitās, a collection of hymns. The second group is
+called the Brāhmanas, or the \[group dealing with different kinds of\]
 sacrifice. The word *Brahmana* \[by usage\] means \[what is achieved by
 means of\] the sacrifice. And the other group is called the Upanishads
 (sittings, lectures, philosophic books). Again, the first two parts
-together — the hymns and the rituals — are called the Karmakânda, the
+together — the hymns and the rituals — are called the Karmakānda, the
 work portion; and the second, or philosophic portion (the Upanishads),
-is called the Jnânakânda, the *knowledge* portion. This is the same word
+is called the Jnānakānda, the *knowledge* portion. This is the same word
 as your English word *knowledge* and the Greek word *gnos* — just as you
 have the word in agnostic, and so on.
 

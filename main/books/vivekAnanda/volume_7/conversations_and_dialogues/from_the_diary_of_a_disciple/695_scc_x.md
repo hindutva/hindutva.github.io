@@ -151,7 +151,7 @@ frightening people. They are only telling them, 'You will go to hell,
 you are doomed!' Therefore has this lethargy crept into the very vitals
 of India. Hence we must explain to men in simple words the highest ideas
 of the Vedas and the Vedanta. Through the imparting of moral principles,
-good behaviour, and education we must make the Chandâla come up to the
+good behaviour, and education we must make the Chandāla come up to the
 level of the Brahmana. Come, write out all these things in the
 *Udbodhan* and awaken everyone, young and old, man and woman. Then only
 shall I know that your study of the Vedas and Vedanta has been a

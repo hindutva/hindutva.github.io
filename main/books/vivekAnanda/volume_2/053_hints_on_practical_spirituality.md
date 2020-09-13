@@ -182,7 +182,7 @@ a special form of breathing, a special form of concentration, and what
 is one's special method, even one's wife need not know; the father need
 not know the son's. But they all have to do these. And there is nothing
 occult about these things. The word "occult" has no bearing on them.
-Near the Gangâ thousands and thousands of people may be seen daily
+Near the Gangā thousands and thousands of people may be seen daily
 sitting on its banks breathing and concentrating with closed eyes. There
 may be two reasons that make certain practices impracticable for the
 generality of mankind. One is, the teachers hold that the ordinary
@@ -196,8 +196,8 @@ Hindu mind than to say, "Our Father which art in Heaven." The Hindu,
 when he worships, thinks that God is within himself.
 
 According to the Yogis, there are three principal nerve currents: one
-they call the Idâ, the other the Pingalâ, and the middle one the
-Sushumnâ, and all these are inside the spinal column. The Ida and the
+they call the Idā, the other the Pingalā, and the middle one the
+Sushumnā, and all these are inside the spinal column. The Ida and the
 Pingala, the left and the right, are clusters of nerves, while the
 middle one, the Sushumna, is hollow and is not a cluster of nerves. This
 Sushumna is closed, and for the ordinary man is of no use, for he works
@@ -211,7 +211,7 @@ is only so much air taken into the lungs; except for purifying the
 blood, it is of no more use. There is nothing occult in the air that we
 take in with our breath and assimilate to purify the blood; the action
 is merely a motion. This motion can be reduced to the unit movement we
-call Prâna; and everywhere, all movements are the various manifestations
+call Prāna; and everywhere, all movements are the various manifestations
 of this Prana. This Prana is electricity, it is magnetism; it is thrown
 out by the brain as thought. Everything is Prana; it is moving the sun,
 the moon, and the stars.
@@ -224,7 +224,7 @@ body, becoming the different forces. Give up that old idea that God is
 something that produces the effect and sits on a throne dispensing
 justice. In working we become exhausted because we use up so much Prana.
 
-The breathing exercises, called Prânâyâma, bring about regulation of the
+The breathing exercises, called Prānāyāma, bring about regulation of the
 breathing, rhythmic action of the Prana. When the Prana is working
 rhythmically, everything works properly. When the Yogis get control over
 their own bodies, if there is any disease in any part, they know that
@@ -266,7 +266,7 @@ unimaginable? Why should we want to discuss the *pros* and *cons* of a
 subject that is self-evident?
 
 The whole universe, therefore, is a unit, from whatever standpoint you
-view it. Just now, to us, this universe is a unit of Prana and Âkâsha,
+view it. Just now, to us, this universe is a unit of Prana and Âkāsha,
 force and matter. And mind you, like all other basic principles, this is
 also self-contradictory. For what is force? — that which moves matter.
 And what is matter? — that which is moved by force. It is a seesaw! Some
@@ -415,7 +415,7 @@ circumstances where you are alone and free from all anxiety. He who
 desires a comfortable and nice life and at the same time wants to
 realise the Self is like the fool who, wanting to cross the river,
 caught hold of a crocodile, mistaking it for a log of wood
-(*Vivekachudâmani*, 84.). "Seek ye first the kingdom of God, and
+(*Vivekachudāmani*, 84.). "Seek ye first the kingdom of God, and
 everything shall be added unto you." This is the one great duty, this is
 renunciation. Live for an ideal, and leave no place in the mind for
 anything else. Let us put forth all our energies to acquire that, which
@@ -423,7 +423,7 @@ never fails — our spiritual perfection. If we have true yearning for
 realisation, we must struggle, and through struggle growth will come. We
 shall make mistakes, but they may be angels unawares.
 
-The greatest help to spiritual life is meditation (Dhyâna). In
+The greatest help to spiritual life is meditation (Dhyāna). In
 meditation we divest ourselves of all material conditions and feel our
 divine nature. We do not depend upon any external help in meditation.
 The touch of the soul can paint the brightest colour even in the

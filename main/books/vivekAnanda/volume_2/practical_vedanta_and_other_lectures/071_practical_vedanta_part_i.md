@@ -33,8 +33,8 @@ retirement into forests, but have emanated from persons whom we expect
 to lead the busiest lives — from ruling monarchs.
 
 Shvetaketu was the son of Âruni, a sage, most probably a recluse. He was
-brought up in the forest, but he went to the city of the Panchâlas and
-appeared at the court of the king, Pravâhana Jaivali. The king asked
+brought up in the forest, but he went to the city of the Panchālas and
+appeared at the court of the king, Pravāhana Jaivali. The king asked
 him, "Do you know how beings depart hence at death?" "No, sir." "Do you
 know how they return hither?" "No, sir." "Do you know the way of the
 fathers and the way of the gods?" "No, sir." Then the king asked other
@@ -491,7 +491,7 @@ raised to the highest platform, until it feels everything, the oneness
 in everything, till it feels God in itself and in others. The intellect
 can never do that. "Different methods of speaking words, different
 methods of explaining the texts of books, these are for the enjoyment of
-the learned, not for the salvation of the soul" (*Vivekachudâmani,* 58).
+the learned, not for the salvation of the soul" (*Vivekachudāmani,* 58).
 
 Those of you who have read Thomas a Kempis know how in every page he
 insists on this, and almost every holy man in the world has insisted on

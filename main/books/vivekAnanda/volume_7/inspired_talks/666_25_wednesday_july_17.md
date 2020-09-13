@@ -14,7 +14,7 @@ title: 'RECORDED BY MISS S. E. WALDO
 
 WEDNESDAY, *July 17, 1895*.
 
-Râmânuja divides the universe into Chit, Achit, and Ishvara — man,
+Rāmānuja divides the universe into Chit, Achit, and Ishvara — man,
 nature, and God; conscious, subconscious, and superconscious. Shankara,
 on the contrary, says that Chit, the soul, is the same as God. God *is*
 truth, *is* knowledge, *is* infinity; these are not qualities. Any
@@ -63,7 +63,7 @@ and Atman and Brahman are one.
 
 When you talk and think of the Absolute, you have to do it in the
 relative; so all these logical arguments apply. In Yoga, perception and
-realisation are one. Vishishtâdvaita, of which Ramanuja is the exponent,
+realisation are one. Vishishtādvaita, of which Ramanuja is the exponent,
 is seeing partial unity and is a step toward Advaita. Vishishta means
 differentiation. Prakriti is the nature of the world, and change comes
 upon it. Changeful thoughts expressed in changeful words can never prove

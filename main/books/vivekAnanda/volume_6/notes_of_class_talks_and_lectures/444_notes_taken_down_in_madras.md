@@ -24,7 +24,7 @@ The Vedas should be studied through the eye-glass of evolution. They
 contain the whole history of the progress of religious consciousness,
 until religion has reached perfection in unity.
 
-The Vedas are Anâdi, eternal. The meaning of the statement is not, as is
+The Vedas are Anādi, eternal. The meaning of the statement is not, as is
 erroneously supposed by some, that the words of the Vedas are Anadi, but
 that the spiritual laws inculcated by the Vedas are such. These laws
 which are immutable and eternal have been discovered at various times by
@@ -43,7 +43,7 @@ When one sees a mirage for the first time, he mistakes it for a reality,
 and after vainly trying to quench his thirst in it, learns that it is a
 mirage. But whenever he sees such a phenomenon in future, in spite of
 the apparent reality, the idea that he sees a mirage always presents
-itself to him. So is the world of Mâyâ to a Jivanmukta (the liberated in
+itself to him. So is the world of Māyā to a Jivanmukta (the liberated in
 life).
 
 Some of the Vedic secrets were known to certain families only, as
@@ -61,8 +61,8 @@ Buddhism was the rebellion of newly-formed Kshatriyas against Vedic
 priestcraft.
 
 Hinduism threw away Buddhism after taking its sap. The attempt of all
-the Southern Âchâryas was to effect a reconciliation between the two.
-Shankarâchârya's teaching shows the influence of Buddhism. His disciples
+the Southern Âchāryas was to effect a reconciliation between the two.
+Shankarāchārya's teaching shows the influence of Buddhism. His disciples
 perverted his teaching and carried it to such an extreme point that some
 of the later reformers were right in calling the Acharya's followers
 "crypto-Buddhists".
@@ -101,13 +101,13 @@ generalisation and by the term "analysis" an ontological reduction of
 facts and objects to their immanent principles. — Ed.)
 
 The Hindus have cultivated the power of analysis and abstraction. No
-nation has yet produced a grammar like that of Pânini.
+nation has yet produced a grammar like that of Pānini.
 
-Râmânuja's important work is the conversion of Jains and Buddhists to
+Rāmānuja's important work is the conversion of Jains and Buddhists to
 Hinduism. He is a great advocate of image worship. He introduced love
 and faith as potent means of salvation.
 
-Even in the *Bhâgavata*, twenty-four Avatâras are mentioned
+Even in the *Bhāgavata*, twenty-four Avatāras are mentioned
 corresponding to the twenty-four Tirthankaras of the Jains, the name of
 Rishibhadeva being common to both.
 
@@ -145,7 +145,7 @@ That the Hindus, absorbed in the ideal, lacked in realistic observation
 is evident from this. Take painting and sculpture. What do you see in
 the Hindu paintings? All sorts of grotesque and unnatural figures. What
 do you see in a Hindu temple? A Chaturbhanga (Lit. bent at four places
-or joints of the body.) Nârâyana or some such thing. But take into
+or joints of the body.) Nārāyana or some such thing. But take into
 consideration any Italian picture or Grecian statue — what a study of
 nature you find in them! A gentleman for twenty years sat burning a
 candle in his hand, in order to paint a lady carrying a candle in her
@@ -181,7 +181,7 @@ in this world.
 \*    \*    \*
 
 The whole universe is one chain of existence, of which matter forms one
-pole and God the other; the doctrine of Vishishtâdvaitism may be
+pole and God the other; the doctrine of Vishishtādvaitism may be
 explained by some such ideas.
 
 The Vedas are full of passages which prove the existence of a Personal
@@ -216,16 +216,16 @@ cross is nothing but the Shivalinga converted into two across. Remnants
 of Buddhist worship are still to be found among the relics of ancient
 Rome.
 
-In South India, some of the Râgas (tunes) are sung and remembered as
+In South India, some of the Rāgas (tunes) are sung and remembered as
 independent Ragas, whereas they are derivations of the six primary ones.
-In their music, there is very little of Murchhanâ, or oscillating
+In their music, there is very little of Murchhanā, or oscillating
 touches of sound. Even the use of the perfect instrument of music is
-rare. The Vinâ of the South is not the real Vina. We have no martial
+rare. The Vinā of the South is not the real Vina. We have no martial
 music, no martial poetry either. Bhavabhuti is a little martial.
 
 \*    \*    \*
 
-Christ was a Sannyâsin, and his religion is essentially fit for
+Christ was a Sannyāsin, and his religion is essentially fit for
 Sannyasins only. His teachings may be summed up as: "Give up"; nothing
 more — being fit for the favoured few.
 
@@ -234,7 +234,7 @@ know it. It is meant for those who hunger and thirst after
 righteousness, who aim at perfection.
 
 "Stand on your rights", is the rule for the ordinary men. One set of
-moral rules cannot be preached to all — Sâdhus and householders.
+moral rules cannot be preached to all — Sādhus and householders.
 
 All sectarian religions take for granted that all men are equal. This is
 not warranted by science. There is more difference between minds than
@@ -276,7 +276,7 @@ all others can be explained as being subordinate to it. God is to
 religion what Newton's law of gravity is to falling bodies.
 
 Every worship consists of prayer in the highest form. For a man who
-cannot make Dhyâna or mental worship, Pujâ or ceremonial worship is
+cannot make Dhyāna or mental worship, Pujā or ceremonial worship is
 necessary. He must have the thing concrete.
 
 The brave alone can afford to be sincere. Compare the lion and the fox.
@@ -285,11 +285,11 @@ Loving only the *good* in God and nature — even a child does that. You
 should love the terrible and the painful as well. A father loves the
 child, even when he is giving him trouble.
 
-Shri Krishna was God, incarnated to save mankind. Gopi-Lilâ (his disport
+Shri Krishna was God, incarnated to save mankind. Gopi-Lilā (his disport
 with the cowherd maids) is the acme of the religion of love in which
 individuality vanishes and there is communion. It is in this Lila that
-Shri Krishna shows what he preaches in the Gitâ: "Give up every other
-tie for me." Go and take shelter under Vrindâvana-Lila to understand
+Shri Krishna shows what he preaches in the Gitā: "Give up every other
+tie for me." Go and take shelter under Vrindāvana-Lila to understand
 Bhakti. On this subject a great number of books is extant. It is the
 religion of India. The larger number of Hindus follow Shri Krishna.
 
@@ -301,7 +301,7 @@ and the learned and reveals himself to the ignorant and the children. He
 is the God of faith and love and not of learning. With the Gopis, love
 and God were the same thing — they knew Him to be love incarnate.
 
-In Dwârakâ, Shri Krishna teaches duty; in Vrindavana, love. He allowed
+In Dwārakā, Shri Krishna teaches duty; in Vrindavana, love. He allowed
 his sons to kill each other, they being wicked.
 
 God, according to the Jewish and Mohammedan idea, is a big Sessions
@@ -328,32 +328,32 @@ degeneration. Man is made up of three qualities — brutal, human, and
 godly. That which tends to increase the divinity in you is virtue, and
 that which tends to increase brutality in you is vice. You must kill the
 brutal nature and become human, that is, loving and charitable. You must
-transcend that too and become pure bliss. Sachchidânanda, fire without
+transcend that too and become pure bliss. Sachchidānanda, fire without
 burning, wonderfully loving, but without the weakness of human love,
 without the feeling of misery.
 
-Bhakti is divided into Vaidhi and Râgânugâ Bhakti.
+Bhakti is divided into Vaidhi and Rāgānugā Bhakti.
 
 Vaidhi Bhakti is implicit belief in obedience to the teachings of the
 Vedas.
 
 Raganuga Bhakti is of five kinds:
 
-\(1\) Shânta as illustrated by the religion of Christ; (2) Dâsya as
-illustrated by that of Hanumân to Râma; (3) Sakhya as illustrated by
-that of Arjuna to Shri Krishna; (4) Vâtsalya as illustrated by that of
+\(1\) Shānta as illustrated by the religion of Christ; (2) Dāsya as
+illustrated by that of Hanumān to Rāma; (3) Sakhya as illustrated by
+that of Arjuna to Shri Krishna; (4) Vātsalya as illustrated by that of
 Vasudeva to Shri Krishna; (5) Madhura (that of the husband and wife) in
-the lives of Shri Krishna and Gopikâs.
+the lives of Shri Krishna and Gopikās.
 
 Keshab Chandra Sen compared society to an ellipse. God is the central
 sun. Society is sometimes in the aphelion and sometimes in the
-perihelion. An Avatâra comes and takes it to the perihelion. Then it
+perihelion. An Avatāra comes and takes it to the perihelion. Then it
 goes back again. Why should it be so? I cannot say. What necessity for
 an Avatara? What necessity was there to create? Why did He not create us
-all perfect? It is Lilâ (sport), we do not know.
+all perfect? It is Lilā (sport), we do not know.
 
 Men can become Brahman but not God. If anybody becomes God, show me his
-creation. Vishvâmitra's creation is his own imagination. It should have
+creation. Vishvāmitra's creation is his own imagination. It should have
 obeyed Vishvamitra's law. If anybody becomes a Creator, there would be
 an end of the world, on account of the conflict of laws. The balance is
 so nice that if you disturb the equilibrium of one atom, the whole world
@@ -399,13 +399,13 @@ righteous war.
 The devil comes in many guises — anger in the form of justice — passion
 in the form of duty. When it first comes, the man knows and then he
 forgets. Just as your pleaders' conscience; at first they know it is all
-Badmâshi (roguery), then it is duty to their clients; at last they get
+Badmāshi (roguery), then it is duty to their clients; at last they get
 hardened.
 
 Yogis live on the banks of the Narmada — the best place for them,
-because the climate is very even. Bhaktas live in Vrindâvana.
+because the climate is very even. Bhaktas live in Vrindāvana.
 
-Sipâhis (sepoys) die soon — nature is full of defect — the athletes die
+Sipāhis (sepoys) die soon — nature is full of defect — the athletes die
 soon. The gentlemen class are the strongest, while the poor are the
 hardiest. Fruit diet may agree with a costive man. Civilised man needs
 rest for intellectual work. For food he has to take spices and
@@ -436,11 +436,11 @@ Mohammed was forty years old before he came out.
 It is true that the caste system becomes essential in the ordinary
 course of nature. Those that have aptitudes for a particular work form a
 class. But who is to settle the class of a particular individual? If a
-Brâhmin thinks that he has a special aptitude for spiritual culture, why
+Brāhmin thinks that he has a special aptitude for spiritual culture, why
 should he be afraid to meet a Shudra in an open field? Will a horse be
 afraid of running a race with a jade?
 
-Refer to the life of the author of *Krishna-karnâmrita*, Vilvamangala —
+Refer to the life of the author of *Krishna-karnāmrita*, Vilvamangala —
 a devotee who plucked his eyes out because he could not see God. His
 life illustrates the principle that even misdirected love leads in the
 end to love proper.
@@ -454,7 +454,7 @@ Educate your women first and leave them to themselves; then they will
 tell you what reforms are necessary for them. In matters concerning
 them, who are you?
 
-Who reduced the Bhângis and the Pariahs to their present degraded
+Who reduced the Bhāngis and the Pariahs to their present degraded
 condition? Heartlessness in our behaviour and at the same time preaching
 wonderful Advaitism — is it not adding insult to injury?
 
@@ -465,7 +465,7 @@ world is a form of our thoughts. The idol is the expression of religion.
 In God all natures are possible. But we can see Him only through human
 nature. We can love Him as we love a man — as father, son. The strongest
 love in the world is that between man and woman, and that also when it
-is clandestine. This is typified in the love between Krishna and Râdhâ.
+is clandestine. This is typified in the love between Krishna and Rādhā.
 
 Nowhere is it said in the Vedas that man is born a sinner. To say so is
 a great libel on human nature.
@@ -479,7 +479,7 @@ picture, though it occupied the major portion of the picture.
 You cannot injure anybody and sit quietly. It is a wonderful machinery —
 you cannot escape God's vengeance.
 
-Kâma (lust) is blind and leads to hell. Prema is love, it leads to
+Kāma (lust) is blind and leads to hell. Prema is love, it leads to
 heaven.
 
 There is no idea of lust or sympathy in the love of Krishna and Radha.
@@ -488,7 +488,7 @@ will vanish."
 
 When abstraction is reached lust dies and there is only love.
 
-A poet loved a washerwoman. Hot Dâl fell upon the feet of the woman and
+A poet loved a washerwoman. Hot Dāl fell upon the feet of the woman and
 the feet of the poet were scalded.
 
 Shiva is the sublime aspect of God, Krishna the beautiful aspect of God.
@@ -530,7 +530,7 @@ after, and between the thought and the action but the latter takes the
 name of freedom — like a bird flitting through a bright room. We feel
 the freedom and feel it has no other cause. We cannot go beyond
 consciousness, therefore we feel we are free. We can trace it no further
-than consciousness. God alone feels the real freedom. Mahâpurushas
+than consciousness. God alone feels the real freedom. Mahāpurushas
 (saints) feel themselves identified with God; hence they also feel the
 real freedom.
 
@@ -600,10 +600,10 @@ remain together.
 Forgetting the little "I" is a sign of healthy and pure mind. A healthy
 child forgets its body.
 
-Sitâ — to say that she was pure is a blasphemy. She was purity itself
+Sitā — to say that she was pure is a blasphemy. She was purity itself
 embodied — the most beautiful character that ever lived on earth.
 
-A Bhakta should be like Sita before Râma. He might be thrown into all
+A Bhakta should be like Sita before Rāma. He might be thrown into all
 kinds of difficulties. Sita did not mind her sufferings; she centred
 herself in Rama.
 
@@ -628,15 +628,15 @@ that destruction of the relative.
 Present-day Hinduism and Buddhism were growths from the same branch.
 Buddhism degenerated, and Shankara lopped it off!
 
-Buddha is said to have denied the Vedas because there is so much Himsâ
+Buddha is said to have denied the Vedas because there is so much Himsā
 (killing) and other things. Every page of Buddhism is a fight with the
 Vedas (the ritualistic aspect). But he had no authority to do so.
 
 Buddha is expressly agnostic about God; but God is everywhere preached
 in our religion. The Vedas teach God — both personal and impersonal. God
-is everywhere preached in the Gitâ. Hinduism is nothing without God. The
+is everywhere preached in the Gitā. Hinduism is nothing without God. The
 Vedas are nothing without Him. That is the only way to salvation.
-Sannyâsins have to repeat the following, several times: I, wishing for
+Sannyāsins have to repeat the following, several times: I, wishing for
 Mukti, take refuge in God, who created the world, who breathed out the
 Vedas.
 
@@ -659,7 +659,7 @@ suitable to it.
 The fault with all religions like Christianity is that they have one set
 of rules for all. But Hindu religion is suited to all grades of
 religious aspiration and progress. It contains all the ideals in their
-perfect form. For example, the ideal of Shânta or blessedness is to be
+perfect form. For example, the ideal of Shānta or blessedness is to be
 found in Vasishtha; that of love in Krishna; that of duty in Rama and
 Sita; and that of intellect in Shukadeva. Study the characters of these
 and of other ideal men. Adopt one which suits you best.
@@ -667,7 +667,7 @@ and of other ideal men. Adopt one which suits you best.
 Follow truth wherever it may lead you; carry ideas to their utmost
 logical conclusions. Do not be cowardly and hypocritical. You must have
 a great devotion to your ideal, devotion not of the moment, but calm,
-persevering, and steady devotion, like that of a Châtaka (a kind of
+persevering, and steady devotion, like that of a Chātaka (a kind of
 bird) which looks into the sky in the midst of thunder and lightning and
 would drink no water but from the clouds. Perish in the struggle to be
 holy; a thousand times welcome death. Be not disheartened. When good
@@ -695,7 +695,7 @@ sees in every being his own Self is a Pandita (sage).
 
 Rishis are discoverers of spiritual laws.
 
-In Advaitism, there is no Jivâtmâ; it is only a delusion. In Dvaitism,
+In Advaitism, there is no Jivātmā; it is only a delusion. In Dvaitism,
 there is Jiva infinitely distinct from God. Both are true. One went to
 the fountain, another to the tank. Apparently we are all Dvaitists as
 far as our consciousness goes. But beyond? Beyond that we are
@@ -710,7 +710,7 @@ it becomes automatic in practice. It percolates to the nerves. So this
 idea, by rote, by repetition, should be driven even into the nerves.
 
 Or, first begin with Dvaitism that is in your consciousness; second
-stage, Vishishtâdvaitism — "I in you, you in me, and all is God." This
+stage, Vishishtādvaitism — "I in you, you in me, and all is God." This
 is the teaching of Christ.
 
 The highest Advaitism cannot be brought down to practical life.
@@ -726,9 +726,9 @@ is here, God is there, God is "I".
 One way for attaining Bhakti is by repeating the name of God a number of
 times. Mantras have effect — the mere repetition of words. Jalangiman
 Chetti's powers are due to the repetition of the Mantra — repetition of
-certain words with certain ceremonies. The powers of the Astras or Bânas
+certain words with certain ceremonies. The powers of the Astras or Bānas
 (missiles, arrows, etc.) of ancient war were due to Mantra. This is
-taken for granted throughout our Shâstras. That we should take all these
+taken for granted throughout our Shāstras. That we should take all these
 Shastras to be imagination is superstition.
 
 To obtain Bhakti, seek the company of holy men who have Bhakti, and read
@@ -739,8 +739,8 @@ The Vedas contain not only the means how to obtain Bhakti but also the
 means for obtaining any earthly good or evil. Take whatever you want.
 
 Bengal is a land of Bhakti or Bhaktas. The stone on which Chaitanya used
-to stand in the temple of Jagannâtha to see the image was worn by his
-tears of love and devotion. When he took Sannyâsa, he showed his fitness
+to stand in the temple of Jagannātha to see the image was worn by his
+tears of love and devotion. When he took Sannyāsa, he showed his fitness
 for it to his Guru by keeping sugar on his tongue for some time without
 its being dissolved. He discovered Vrindavana by the power of insight he
 had acquired through devotion.

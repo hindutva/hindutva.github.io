@@ -22,7 +22,7 @@ The wicked pay the price of the great soul's holiness. Think of that
 when you see a wicked man. Just as the poor man's labour pays for the
 rich man's luxury, so is it in the spiritual world. The terrible
 degradation of the masses in India is the price nature pays for the
-production of great souls like Mirâ-bâi, Buddha, etc.[1](#fn1)
+production of great souls like Mirā-bāi, Buddha, etc.[1](#fn1)
 
 \*            \*            \*
 
@@ -59,7 +59,7 @@ it.
 Svastha, the Sanskrit word for "standing on your own Self", is used
 colloquially in India to inquire, "Are you well, are you happy?" And
 when Hindus would express, "I saw a thing", they say, "I saw a
-word-meaning (Padârtha)." Even this universe is a "word-meaning".
+word-meaning (Padārtha)." Even this universe is a "word-meaning".
 
 \*            \*            \*
 

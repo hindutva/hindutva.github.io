@@ -31,7 +31,7 @@ enjoined that the Omnipotent Vishnu should have no worship offered to
 Him anywhere; and that all the worship should henceforth be given to
 himself only.
 
-Hiranyakashipu had a son called Prahlâda. Now, it so happened, that this
+Hiranyakashipu had a son called Prahlāda. Now, it so happened, that this
 Prahlada from his infancy was devoted to God. He showed indications of
 this as a child; and the king of the Daityas, fearing that the evil he
 wanted to drive away from the world would crop up in his own family,

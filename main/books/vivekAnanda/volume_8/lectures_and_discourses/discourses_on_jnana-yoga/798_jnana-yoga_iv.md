@@ -50,7 +50,7 @@ likely than their joint effect upon the sea!
 
 "Comfort" is no test of truth; on the contrary, truth is often far from
 being "comfortable". If one intends to really find truth, one must not
-cling to comfort. It is hard to let all go, but the Jnâni *must* do it.
+cling to comfort. It is hard to let all go, but the Jnāni *must* do it.
 He must become pure, kill out all desires and cease to identify himself
 with the body. Then and then only, the higher truth can shine in his
 soul. Sacrifice is necessary, and this immolation of the lower self is

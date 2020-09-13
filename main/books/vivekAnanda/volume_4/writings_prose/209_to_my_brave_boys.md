@@ -80,7 +80,7 @@ branching off all over India. Start only on religious grounds now, and
 do not preach any violent social reform at present; only do not
 countenance foolish superstitions. Try to revive society on the old
 grounds of universal salvation and equality as laid down by the old
-Masters, such as Shankarâchârya, Râmânuja, and Chaitanya.
+Masters, such as Shankarāchārya, Rāmānuja, and Chaitanya.
 
 Have fire and spread all over. Work, work. Be the servant while leading.
 Be unselfish, and *never listen to one friend in private accusing

@@ -13,7 +13,7 @@ title: 'RECORDED BY MISS S. E. WALDO
 ## RECORDED BY MISS S. E. WALDO (A DISCIPLE)
 
 MONDAY, *June 24, 1895*. (*The reading today was from the Bhakti-Sutras
-by Nârada*.)
+by Nārada*.)
 
 "Extreme love to God is Bhakti, and this love is the real immortality,
 getting which a man becomes perfectly satisfied, sorrows for no loss,
@@ -45,7 +45,7 @@ begun."
 reciprocity, which desire is in all human love."
 
 "A man who has gone beyond social and scriptural usage, he is a
-Sannyâsin. When the whole soul goes to God, when we take refuge only in
+Sannyāsin. When the whole soul goes to God, when we take refuge only in
 God, then we know that we are about to get this love."
 
 Obey the scriptures until you are strong enough to do without them; then

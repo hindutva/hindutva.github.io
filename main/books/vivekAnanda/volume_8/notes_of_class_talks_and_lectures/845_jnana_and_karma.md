@@ -73,7 +73,7 @@ fool sleeps and wakes a fool-a man unconscious; and superconscious, he
 returns with infinite power, purity, and love — the God-Man. This is the
 use of the superconscious state.
 
-Wisdom can be practised even on a battlefield. The Gitâ was preached so.
+Wisdom can be practised even on a battlefield. The Gitā was preached so.
 There are three states of mind: the active, the passive, and the serene.
 The passive state is characterised by slow vibrations; the active by
 quick vibrations, and the serene by the most intense vibrations of all.

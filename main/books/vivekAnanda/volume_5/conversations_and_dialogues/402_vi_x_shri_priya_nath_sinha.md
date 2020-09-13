@@ -63,7 +63,7 @@ boyhood; let me stay in the open air for a while. Go and give a welcome
 to those who have come, ask them to sit down, offer them tobacco, and
 request them to wait a little."
 
-When we were alone again, I asked him, "Well, Swamiji, you are a Sâdhu
+When we were alone again, I asked him, "Well, Swamiji, you are a Sādhu
 (holy man). Money was raised by subscription for your reception here,
 and I thought, in view of the famine in this country, that you would
 wire, before arriving in Calcutta, saying, 'Don't spend a single pice on
@@ -127,7 +127,7 @@ Hinduism.
 Swamiji: Don't you see that circumstances have changed now? Have the men
 of our country the power left in them to take up and practice true
 religion? What they have is only pride in themselves that they are very
-Sâttvika. Time was when they were Sattvika, no doubt, but now they have
+Sāttvika. Time was when they were Sattvika, no doubt, but now they have
 fallen very low. The fall from Sattva brings one down headlong into
 Tamas! That is what has happened to them. Do you think that a man who
 does not exert himself at all, who only takes the name of Hari, shutting
@@ -140,12 +140,12 @@ How can renunciation come to the people of a country in whose minds the
 desires for Bhoga (enjoyment) have not been in the least satisfied? For
 this reason, find out, first of all, the ways and means by which men may
 get enough to eat and have enough luxuries to enable them to enjoy life
-a little; and then gradually, true Vairâgya (dispassion) will come, and
+a little; and then gradually, true Vairāgya (dispassion) will come, and
 they will be fit and ready to realise religion in life. The people of
 England and America, how full of Rajas they are! They have become
 satiated with all sorts of worldly enjoyment. Moreover, Christianity,
 being a religion of faith and superstition, occupies the same rank as
-our religion of the Purânas. With the spread of education and culture,
+our religion of the Purānas. With the spread of education and culture,
 the people of the West can no more find peace in that. Their present
 condition is such that, giving them one lift will make them reach the
 Sattva. Then again, in these days, would you accept the words of a
@@ -271,7 +271,7 @@ all, one must completely mould one's religious life in solitude, must be
 perfect in renunciation and must preserve Brahmacharya without a break.
 The Tamas has entered into you — what of that? Cannot the Tamas be
 destroyed? It can be done in less than no time! It was for the
-destruction of this Tamas that Bhagavân Shri Ramakrishna came to us.
+destruction of this Tamas that Bhagavān Shri Ramakrishna came to us.
 
 Myself: But who can aspire to be like you, Swamiji ?
 
@@ -307,12 +307,12 @@ tonight before my eyes like so many pictures; and the next day I put
 into words during my lecture all those things that I saw. So you will
 understand now that it is not any power which is exclusively my own.
 Whoever will practice unbroken Brahmacharya for twelve years will surely
-have it. If you do so, you too will get it. Our Shâstras do not say that
+have it. If you do so, you too will get it. Our Shāstras do not say that
 only such and such a person will get it and not others!
 
-Myself: Do you remember, Swamiji, one day, before you took Sannyâsa, we
+Myself: Do you remember, Swamiji, one day, before you took Sannyāsa, we
 were sitting in the house of —, and you were trying to explain the
-mystery of Samâdhi to us. And when I called in question the truth of
+mystery of Samādhi to us. And when I called in question the truth of
 your words, saying that Samadhi was not possible in this Kali Yuga, you
 emphatically demanded: "Do you want to see Samadhi or to have it
 yourself? I get Samadhi myself, and I can make you have it! " No sooner
@@ -338,8 +338,8 @@ BIRTHS
 
 A day or two later, as I was coming out of my house intending to pay a
 visit to Swamiji, I met two of my friends who expressed a wish to
-accompany me, for they wanted to ask Swamiji something about Prânâyâma.
-I had heard that one should not visit a temple or a Sannyâsin without
+accompany me, for they wanted to ask Swamiji something about Prānāyāma.
+I had heard that one should not visit a temple or a Sannyāsin without
 taking something as an offering; so we took some fruits and sweets with
 us and placed them before him. Swamiji took them in his hands, raised
 them to his head, and bowed to us before even we made our obeisance to
@@ -351,7 +351,7 @@ of the gentlemen, Swamiji, in the course of his conversation, began to
 speak about Pranayama. First of all, he explained through modern science
 the origin of matter from the mind, and then went on to show what
 Pranayama is. All three of us had carefully read beforehand his book
-called *Râja-Yoga*. But from what we heard from him that day about
+called *Rāja-Yoga*. But from what we heard from him that day about
 Pranayama, it seemed to me that very little of the knowledge that was in
 him had been recorded in that book. I understand also that what he said
 was not mere book-learning, for who could explain so lucidly and
@@ -402,7 +402,7 @@ It was an evening in July 1898, at the Math, in Nilambar Mukerjee's
 garden-house, Belur. Swamiji with all his disciples had been meditating,
 and at the close of the meditation came out and sat in one of the rooms.
 As it was raining hard and a cold wind was blowing, he shut the door and
-began to sing to the accompaniment of Tânpurâ. The singing being over, a
+began to sing to the accompaniment of Tānpurā. The singing being over, a
 long conversation on music followed. Swami Shivananda asked him, "What
 is Western music like?"
 
@@ -418,7 +418,7 @@ certain extent, trained, one cannot appreciate the subtle touches and
 blendings, the inner genius of a work of art. What real music we have
 lies in Kirtana and Dhrupada; the rest has been spoiled by being
 modulated according to the Islamic methods. Do you think that singing
-the short and light airs of Tappâ songs in a nasal voice and flitting
+the short and light airs of Tappā songs in a nasal voice and flitting
 like lightning from one note to another by fits and starts are the best
 things in the world of music? Not so. Unless each note is given full
 play in every scale, all the science of music is marred. In painting, by
@@ -426,13 +426,13 @@ keeping in touch with nature, you can make it as artistic as you like;
 there is no harm in doing that, and the result will be nothing but good.
 Similarly, in music, you can display any amount of skill by keeping to
 science, and it will be pleasing to the ear. The Mohammedans took up the
-different Râgas and Râginis after coming into India. But they put such a
+different Rāgas and Rāginis after coming into India. But they put such a
 stamp of their own colouring on the art of Tappa songs that all the
 science in music was destroyed.
 
-*Q*. Why, Mahârâj (sir)? Who has not a liking for music in Tappa?
+*Q*. Why, Mahārāj (sir)? Who has not a liking for music in Tappa?
 
-Swamiji: The chirping of crickets sounds very good to some. The Santâls
+Swamiji: The chirping of crickets sounds very good to some. The Santāls
 think their music also to be the best of all. You do not seem to
 understand that when one note comes upon another in such quick
 succession, it not only robs music of all grace, but, on the other hand,
@@ -503,9 +503,9 @@ to my Guru. Seeing me, Swamiji smiled and after inquiring of my welfare
 etc., said, "You are going to stay today, are you not?"
 
 "Certainly", I said, and after various inquiries I asked, "Well,
-Mahârâj, what is your idea of educating our boys?"
+Mahārāj, what is your idea of educating our boys?"
 
-Swamiji: Guru-griha-vâsa — living with the Guru.
+Swamiji: Guru-griha-vāsa — living with the Guru.
 
 *Q*. How?
 
@@ -516,7 +516,7 @@ combined modern Western science. Both these are necessary.
 
 Swamiji: It is almost wholly one of defects. Why, it is nothing but a
 perfect machine for turning out clerks. I would even thank my stars if
-that were all. But no! See how men are becoming destitute of Shraddhâ
+that were all. But no! See how men are becoming destitute of Shraddhā
 and faith. They assert that the Gita is only an interpolation, and that
 the Vedas are but rustic songs! They like to master every detail
 concerning things and nations outside of India, but if you ask them,
@@ -556,7 +556,7 @@ Swamiji: That is too big a subject for a talk now. However, to bring
 that about, the old institution of "living with the Guru" and similar
 systems of imparting education are needed. What we want are Western
 science coupled with Vedanta, Brahmacharya as the guiding motto, and
-also Shraddhâ and faith in one's own self. Another thing that we want is
+also Shraddhā and faith in one's own self. Another thing that we want is
 the abolition of that system which aims at educating our boys in the
 same manner as that of the man who battered his ass, being advised that
 it could thereby be turned into a horse.
@@ -653,14 +653,14 @@ something against a rainy day.
 boarding school) system?
 
 Swamiji: Haven't you read the stories from the Upanishads? I will tell
-you one. Satyakâma went to live the life of a Brahmachârin with his
+you one. Satyakāma went to live the life of a Brahmachārin with his
 Guru. The Guru gave into his charge some cows and sent him away to the
 forest with them. Many months passed by, and when Satyakama saw that the
 number of cows was doubled he thought of returning to his Guru. On his
 way back, one of the bulls, the fire, and some other animals gave him
 instructions about the Highest Brahman. When the disciple came back, the
 Guru at once saw by a mere glance at his face that the disciple had
-learnt the knowledge of the Supreme Brahman (Chhândogya, IV. ix. 2.).
+learnt the knowledge of the Supreme Brahman (Chhāndogya, IV. ix. 2.).
 Now, the moral this story is meant to teach is that true education is
 gained by constant living in communion with nature.
 
@@ -675,10 +675,10 @@ will not one who has no Shraddha speak an untruth? In our country, the
 imparting of knowledge has always been through men of renunciation.
 Later, the Pandits, by monopolising all knowledge and restricting it to
 the *tols*, have only brought the country to the brink of ruin. India
-had all good prospects so long as Tyâgis (men of renunciation) used to
+had all good prospects so long as Tyāgis (men of renunciation) used to
 impart knowledge.
 
-*Q*. What do you mean, Maharaj? There are no Sannyâsins in other
+*Q*. What do you mean, Maharaj? There are no Sannyāsins in other
 countries, but see how by dint of their knowledge India is laid
 prostrate at their feet!
 
@@ -687,14 +687,14 @@ to carry others' shoes for ever on her head if the charge of imparting
 knowledge to her sons does not again fall upon the shoulders of Tyagis.
 Don't you know how an illiterate boy, possessed of renunciation, turned
 the heads of your great old Pandits? Once at the Dakshineswar Temple the
-Brâhmana who was in charge of the worship of Vishnu broke a leg of the
+Brāhmana who was in charge of the worship of Vishnu broke a leg of the
 image. Pandits were brought together at a meeting to give their
 opinions, and they, after consulting old books and manuscripts, declared
 that the worship of this broken image could not be sanctioned according
-to the Shâstras and a new image would have to be consecrated. There was,
+to the Shāstras and a new image would have to be consecrated. There was,
 consequently, a great stir. Shri Ramakrishna was called at last. He
 heard and asked, "Does a wife forsake her husband in case he becomes
-lame?" What followed? The Pandits were struck dumb, all their Shâstric
+lame?" What followed? The Pandits were struck dumb, all their Shāstric
 commentaries and erudition could not withstand the force of this simple
 statement. If what you say was true, why should Shri Ramakrishna come
 down to this earth, and why should he discourage mere book-learning so
@@ -706,7 +706,7 @@ into learning and education, and then the real work will be done.
 Swamiji: Had it been easy, it would not have been necessary for him to
 come. What you have to do now is to establish a Math in every town and
 in every village. Can you do that? Do something at least. Start a big
-Math in the heart of Calcutta. A well-educated Sâdhu should be at the
+Math in the heart of Calcutta. A well-educated Sādhu should be at the
 head of that centre and under him there should be departments for
 teaching practical science and arts, with a specialist Sannyasin in
 charge of each of these departments.
@@ -723,22 +723,22 @@ needed. What will mere talk do? See to what a miserable condition the
 country is reduced; now do something! We haven't even got a single book
 well suited for the little boys."
 
-*Q*. Why, there are so many books of Ishwar Chandra Vidyâsâgar for the
+*Q*. Why, there are so many books of Ishwar Chandra Vidyāsāgar for the
 boys!
 
 No sooner had I said this than he laughed out and said: Yes, there you
 read "Ishvar Nirakar Chaitanya Svarup" — (God is without form and of the
-essence of pure knowledge); "Subal ati subodh bâlak" — (Subal is a very
+essence of pure knowledge); "Subal ati subodh bālak" — (Subal is a very
 good boy), and so on. That won't do. We must compose some books in
-Bengali as also in English with short stories from the Râmâyana, the
-Mahâbhârata, the Upanishads, etc., in very easy and simple language, and
+Bengali as also in English with short stories from the Rāmāyana, the
+Mahābhārata, the Upanishads, etc., in very easy and simple language, and
 these are to be given to our little boys to read.
 
 It was about eleven o'clock by this time. The sky became suddenly
 overcast, and a cool breeze began to blow. Swamiji was greatly delighted
 at the prospect of rain. He got up and said, "Let us, Singhi, have a
 stroll by the side of the Ganga." We did so, and he recited many stanzas
-from the *Meghaduta* of Kâlidâsa, but the one undercurrent of thought
+from the *Meghaduta* of Kālidāsa, but the one undercurrent of thought
 that was all the time running through his mind was the good of India. He
 exclaimed, "Look here, Singhi, can you do one thing? Can you put a stop
 to the marriage of our boys for some time?"
@@ -857,7 +857,7 @@ dress in some way to our own style? What sense is there in your adopting
 European shirts and coats?
 
 It began to rain now, and the dinner-bell also rang. So we went in to
-partake of the Prasâda (consecrated food) with others. During the meal,
+partake of the Prasāda (consecrated food) with others. During the meal,
 Swamiji said, addressing me: "Concentrated food should be taken. To fill
 the stomach with a large quantity of rice is the root of laziness." A
 little while after he said again, "Look at the Japanese, they take rice
@@ -880,7 +880,7 @@ one meal a day, having a little popped rice or so at night!
 *Q*. But what else can they do under the circumstances?
 
 Swamiji: Why can't they exert themselves and earn more to keep up their
-standard of food? But no! They must go to their local Âddâs (rendezvous)
+standard of food? But no! They must go to their local Âddās (rendezvous)
 and idle hours away! Oh, if they only knew how they wasted their time!
 
 X  
@@ -910,8 +910,8 @@ Swamiji: Yes.
 
 Swamiji: Yes.
 
-*Q*. How did you, Mahârâj? They say that the Shudras have no right to
-Pranava, and none has except the Brâhmins. Moreover, the Westerners are
+*Q*. How did you, Mahārāj? They say that the Shudras have no right to
+Pranava, and none has except the Brāhmins. Moreover, the Westerners are
 Mlechchhas, not even Shudras.
 
 Swamiji: How do you know that those whom I have initiated are not
@@ -928,7 +928,7 @@ hear that the nephew of Aghore Chakravarti of Baghbazar became a sweeper
 and actually used to do all the menial services of his adopted caste?
 Was he not the son of a Brahmin?
 
-The Brahmin caste and the Brâhmanya qualities are two distinct things.
+The Brahmin caste and the Brāhmanya qualities are two distinct things.
 In India, one is held to be a Brahmin by one's caste, but in the West,
 one should be known as such by one's Brahmanya qualities. As there are
 three Gunas — Sattva, Rajas, and Tamas — so there are Gunas which show a
@@ -938,7 +938,7 @@ the West they have now attained to Kshatriyahood, from which the next
 step is Brahminhood; and many there are who have qualified themselves
 for that.
 
-*Q*. Then you call those Brahmins who are Sâttvika by nature.
+*Q*. Then you call those Brahmins who are Sāttvika by nature.
 
 Swamiji: Quite so. As there are Sattva, Rajas, and Tamas — one or other
 of these Gunas more or less — in every man, so the qualities which make
@@ -952,7 +952,7 @@ he fights to right wrongs, then the qualities of a Kshatriya come out in
 him; and when he meditates on God or passes his time in conversation
 about Him, then he is a Brahmin. Naturally, it is quite possible for one
 to be changed from one caste into another. Otherwise, how did
-Vishvâmitra become a Brahmin and Parashurâma a Kshatriya?
+Vishvāmitra become a Brahmin and Parashurāma a Kshatriya?
 
 *Q*. What you say seems to be quite right, but why then do not our
 Pandits and family-Gurus teach us the same thing?
@@ -967,7 +967,7 @@ Myself: True, Maharaj, I have heard that their spiritual and psychic
 powers are very quickly developed when they practice religion. The other
 day Swami Saradananda showed me a letter written by one of his Western
 disciples, describing the spiritual powers highly developed in the
-writer through the Sâdhanâs practiced for only four months.
+writer through the Sādhanās practiced for only four months.
 
 Swamiji: So you see! Now you understand whether there are Brahmins in
 the West or not. You have Brahmins here also, but they are bringing the

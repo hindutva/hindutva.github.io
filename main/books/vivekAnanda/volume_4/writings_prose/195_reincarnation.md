@@ -13,7 +13,7 @@ title: REINCARNATION
 (Contributed to the *Metaphysical Magazine*, New York, March, 1895)
 
 *"Both you and I have passed through many births; you know them not, I
-know them all."* — Bhagavad-Gitâ
+know them all."* — Bhagavad-Gitā
 
 Of the many riddles that have perplexed the intellect of man in all
 climes and times, the most intricate is himself. Of the myriad mysteries
@@ -195,11 +195,11 @@ ancient Aryas.
 
 "Place me in that deathless, undecaying world where is the light of
 heaven, and everlasting lustre shines"; "Make me immortal in that realm
-where dwells the King Vivasvân's son, where is the secret shrine of
+where dwells the King Vivasvān's son, where is the secret shrine of
 heaven"; "Make me immortal in that realm where they move even as they
 list"; "In the third sphere of inmost heaven, where worlds are full of
 light, make me immortal in that realm of bliss"— These are the prayers
-of the Aryas in their oldest record, the Rig-Veda Samhitâ.
+of the Aryas in their oldest record, the Rig-Veda Samhitā.
 
 We find at once a whole world of difference between the Mlechchha and
 the Aryan ideals. To the one, this body and this world are all that are
@@ -255,7 +255,7 @@ of palingenesis among the Hellenes. As an Aryan race, already burning
 their dead and believing in the doctrine of an individual soul, it was
 easy for the Greeks to accept the doctrine of reincarnation through the
 Pythagorean teachings. According to Apuleius, Pythagoras had come to
-India, where he had been instructed by the Brâhmins.
+India, where he had been instructed by the Brāhmins.
 
 So far we have learnt that wherever the soul was held to be an
 individual, the real man, and not a vivifying part of the body only, the
@@ -368,7 +368,7 @@ reincarnating through many lives have been many, and some of the
 greatest thinkers of all ages have taken up the gauntlet to defend it;
 and so far as we can see, if there is an individual soul, that it
 existed before seems inevitable. If the soul is not an individual but a
-combination of "Skandhas" (notions), as the Mâdhyamikas among the
+combination of "Skandhas" (notions), as the Mādhyamikas among the
 Buddhists insist, still they find pre-existence absolutely necessary to
 explain their position.
 
@@ -445,7 +445,7 @@ and Mohammedans that the heathens are the lawful victims of their
 swords, and all the horrors that have followed and are following it
 still.
 
-But an argument which the philosophers of the Nyâya school have always
+But an argument which the philosophers of the Nyāya school have always
 advanced in favour of reincarnations and which to us seems conclusive,
 is this: Our experiences cannot be annihilated. Our actions (Karma)
 though apparently disappearing, remain still unperceived (Adrishta), and

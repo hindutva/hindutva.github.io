@@ -61,7 +61,7 @@ and not given to marrying, and thus save themselves from future famine.
 Charity opens the heart, but work on through that wedge.
 
 The easiest way is to take a hut — make it a temple of Guru Maharaj! Let
-the poor come here to be helped, also to worship. Let there be Kathâ
+the poor come here to be helped, also to worship. Let there be Kathā
 (Puranic recitals) morning and evening there — through that you may
 teach all you want to teach the people. By degrees the people will be
 interested. They will keep up the temple themselves; maybe the hut

@@ -23,13 +23,13 @@ NEW YORK
 
 O MY SISTERS,
 
-Glory unto Jagadambâ (Mother of the Universe)! I have gained beyond
+Glory unto Jagadambā (Mother of the Universe)! I have gained beyond
 expectations. The prophet has been honoured and with a *vengeance*. I am
 weeping like a child at His mercy — He never leaves His servant,
 sisters. The letter I send you will explain all, and the printed things
 are coming to the American people. The names there are the very flower
 of our country. The President was the chief *nobleman* of Calcutta, and
-the other man Mahesh Chandra Nyâyaratna is the principal of the Sanskrit
+the other man Mahesh Chandra Nyāyaratna is the principal of the Sanskrit
 College and the chief Brahmin in all India and recognised by the
 Government as such. The letter will tell you all. O sisters! What a
 rogue am I that in the face of such mercies sometimes the faith totters

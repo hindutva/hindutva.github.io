@@ -32,7 +32,7 @@ God is as much an entity for Himself as we are for ourselves, and no
 more. God can also be seen as a form, just as we are seen. As men, we
 must have a God; as God, we need none. This is why Shri Ramakrishna
 constantly saw the Divine Mother ever present with him, more real than
-any other thing around him; but in Samâdhi all went but the Self.
+any other thing around him; but in Samādhi all went but the Self.
 Personal God comes nearer and nearer until He melts away, and there is
 no more Personal God and no more "I", all is merged in Self.
 

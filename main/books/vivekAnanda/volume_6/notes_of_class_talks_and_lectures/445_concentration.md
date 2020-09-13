@@ -41,11 +41,11 @@ thought, word, and action. Chastity is the basis of all religions.
 Personal purity is imperative. Next is Niyama, not allowing the mind to
 wander in any direction. Then Âsana, posture. There are eighty-four
 postures: but the best is that most natural to each one; that is, which
-can be kept longest with the greatest ease. After this comes Prânâyâma,
-restraint of breath. Then Pratyâhâra, drawing in of the organs from
-their objects. Then Dhâranâ, concentration. Then Dhyâna, contemplation
+can be kept longest with the greatest ease. After this comes Prānāyāma,
+restraint of breath. Then Pratyāhāra, drawing in of the organs from
+their objects. Then Dhāranā, concentration. Then Dhyāna, contemplation
 or meditation. (This is the kernel of the Yoga system.) And last,
-Samâdhi, superconsciousness. The purer the body and mind, the quicker
+Samādhi, superconsciousness. The purer the body and mind, the quicker
 the desired result will be obtained. You must be perfectly pure. Do not
 think of evil things, such thoughts will surely drag you down. If you
 are perfectly pure and practice faithfully, your mind can finally be

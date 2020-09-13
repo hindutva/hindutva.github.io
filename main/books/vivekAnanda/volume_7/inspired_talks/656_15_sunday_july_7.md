@@ -31,11 +31,11 @@ enjoys nature. The underlying reality of nature, soul, and God is
 Brahman; but It (Brahman) is unseen, until we bring It out. It may be
 brought out by *Pramantha* or friction, just as we can produce fire by
 friction. The body is the lower piece of wood, Om is the pointed piece
-and Dhyâna (meditation) is the friction. When this is used, that light
+and Dhyāna (meditation) is the friction. When this is used, that light
 which is the knowledge of Brahman will burst forth in the soul. Seek it
 through Tapas. Holding the body upright, sacrifice the organs of sense
 in the mind. The sense-centres are within, and their organs without;
-drive them into the mind and through Dhârâna (concentration) fix the
+drive them into the mind and through Dhārāna (concentration) fix the
 mind in Dhyana. Brahman is omnipresent in the universe as is butter in
 milk, but friction makes It manifest in one place. As churning brings
 out the butter in the milk, so Dhyana brings the realisation of Brahman
@@ -70,12 +70,12 @@ deal almost entirely with philosophy. Religion without philosophy runs
 into superstition; philosophy without religion becomes dry atheism.
 
 Vishishta-advaita is qualified Advaita (monism). Its expounder was
-Râmânuja. He says, "Out of the ocean of milk of the Vedas, Vyasa has
+Rāmānuja. He says, "Out of the ocean of milk of the Vedas, Vyasa has
 churned this butter of philosophy, the better to help mankind." He says
 again, "All virtues and all qualities belong to Brahman, Lord of the
 universe. He is the greatest Purusha. Madhva is a through-going dualist
 or Dvaitist. He claims that even women might study the Vedas. He quotes
-chiefly from the Purânas. He says that Brahman means Vishnu, not Shiva
+chiefly from the Purānas. He says that Brahman means Vishnu, not Shiva
 at all, because there is no salvation except through Vishnu.
 
 1.  [^](#txt1)Infinity is one without a second, ever indivisible, and

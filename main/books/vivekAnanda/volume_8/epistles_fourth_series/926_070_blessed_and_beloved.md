@@ -45,7 +45,7 @@ are the publishers themselves.
 If any books come from India please keep them.
 
 The stenographer, who is an Englishman named Goodwin, has become so
-interested in the work that I have now made him a Brahmachârin, and he
+interested in the work that I have now made him a Brahmachārin, and he
 is going round with me, and we shall come over together to England. He
 will be very helpful as he has been always. 
 

@@ -71,7 +71,7 @@ for several hundreds of years, discussing whether I may touch you or you
 touch me, and what is the penance for this touching! The themes of the
 Vedanta, the sublimest and the most glorious conceptions of God and soul
 ever preached on earth, were half-lost, buried in the forests, preserved
-by a few Sannyâsins, while the rest of the nation discussed the
+by a few Sannyāsins, while the rest of the nation discussed the
 momentous questions of touching each other, and dress, and food. The
 Mohammedan conquest gave us many good things, no doubt; even the lowest
 man in the world can teach something to the highest; at the same time it
@@ -193,8 +193,8 @@ which they say, "For these ideas I am responsible". Those great master
 minds producing momentous results in the hearts of mankind were content
 to write their books without even putting their names, and to die
 quietly, leaving the books to posterity. Who knows the writers of our
-philosophy, who knows the writers of our Purânas? They all pass under
-the generic name of Vyâsa, and Kapila, and so on. They have been true
+philosophy, who knows the writers of our Purānas? They all pass under
+the generic name of Vyāsa, and Kapila, and so on. They have been true
 children of Shri Krishna. They have been true followers of the Gita;
 they practically carried out the great mandate, "To work you have the
 right, but not to the fruits thereof."
@@ -307,7 +307,7 @@ bold men, these are what we want. What we want is vigour in the blood,
 strength in the nerves, iron muscles and nerves of steel, not softening
 namby-pamby ideas. Avoid all these. Avoid all mystery. There is no
 mystery in religion. Is there any mystery in the Vedanta, or in the
-Vedas, or in the Samhitâs, or in the Puranas? What secret societies did
+Vedas, or in the Samhitās, or in the Puranas? What secret societies did
 the sages of yore establish to preach their religion? What
 sleight-of-hand tricks are there recorded as used by them to bring their
 grand truths to humanity? Mystery mongering and superstition are always
@@ -319,7 +319,7 @@ a mystery. It was never preached on this soil that the truths of
 religion were mysteries or that they were the property of secret
 societies sitting on the snow-caps of the Himalayas. I have been in the
 Himalayas. You have not been there; it is several hundreds of miles from
-your homes. I am a Sannyâsin, and I have been for the last fourteen
+your homes. I am a Sannyāsin, and I have been for the last fourteen
 years on my feet. These mysterious societies do not exist anywhere. Do
 not run after these superstitions. Better for you and for the race that
 you become rank atheists, because you would have strength, but these are
@@ -393,7 +393,7 @@ necessary not only for children, but for many a grown-up man. So long as
 we have a body and so long as we are deluded by the idea of our identity
 with the body, so long as we have five senses and see the external
 world, we must have a Personal God. For if we have all these ideas, we
-must take as the great Râmânuja has proved, all the ideas about God and
+must take as the great Rāmānuja has proved, all the ideas about God and
 nature and the individualized soul; when you take the one you have to
 take the whole triangle — we cannot avoid it. Therefore as long as you
 see the external world to avoid a Personal God and a personal soul is
@@ -407,7 +407,7 @@ limitations, and then and then alone flashes into the human soul the
 conception of monism: I and the whole universe are one; I and Brahman
 are one. And this conclusion you will find has not only been reached
 through knowledge and philosophy, but parts of it through the power of
-love. You read in the *Bhâgavata*, when Krishna disappeared and the
+love. You read in the *Bhāgavata*, when Krishna disappeared and the
 Gopis bewailed his disappearance, that at last the thought of Krishna
 became so prominent in their minds that each one forgot her own body and
 thought she was Krishna, and began to decorate herself and to play as he
@@ -425,14 +425,14 @@ even if there have been quarrels among the ancient commentators, whom
 all of us ought to revere; for there is no limitation to knowledge,
 there is no omniscience exclusively the property of any one in ancient
 or modern times. If there have been sages and Rishis in the past, be
-sure that there will be many now. If there have been Vyâsas and Vâlmikis
-and Shankarâchâryas in ancient times, why may not each one of you become
+sure that there will be many now. If there have been Vyāsas and Vālmikis
+and Shankarāchāryas in ancient times, why may not each one of you become
 a Shankaracharya? This is another point of our religion that you must
 always remember, that in all other scriptures inspiration is quoted as
 their authority, but this inspiration is limited to a very few persons,
 and through them the truth came to the masses, and we have all to obey
 them. Truth came to Jesus of Nazareth, and we must all obey him. But the
-truth came to the Rishis of India — the Mantra-drashtâs, the seers of
+truth came to the Rishis of India — the Mantra-drashtās, the seers of
 thought — and will come to all Rishis in the future, not to talkers, not
 to book-swallowers, not to scholars, not to philologists, but to seers
 of thought. The Self is not to be reached by too much talking, not even

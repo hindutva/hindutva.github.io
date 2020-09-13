@@ -11,7 +11,7 @@ title: PRANAYAMA
 ## PRANAYAMA
 
 First of all we will try to understand a little of the meaning of
-Prânâyama. Prâna stands in metaphysics for the sum total of the energy
+Prānāyama. Prāna stands in metaphysics for the sum total of the energy
 that is in the universe. This universe, according to the theory of the
 philosophers, proceeds in the form of waves; it rises, and again it
 subsides, melts away, as it were; then again it proceeds out in all this
@@ -19,7 +19,7 @@ variety; then again it slowly returns. So it goes on like a pulsation.
 The whole of this universe is composed of matter and force; and
 according to Sanskrit philosophers, everything that we call matter,
 solid and liquid, is the outcome of one primal matter which they call
-Âkâsha or ether; and the primordial force, of which all the forces that
+Âkāsha or ether; and the primordial force, of which all the forces that
 we see in nature are manifestations, they call Prana. It is this Prana
 acting upon Akasha, which creates this universe, and after the end of a
 period, called a cycle, there is a period of rest. One period of
@@ -85,7 +85,7 @@ facts to generalise upon, what are you going to do? So all these
 attempts at generalising are based upon knowing the things we
 generalise. A man proposes a theory, and adds theory to theory, until
 the whole book is patchwork of theories, not one of them with the least
-meaning. The science of Râja-Yoga says, first you must gather facts
+meaning. The science of Rāja-Yoga says, first you must gather facts
 about your own mind, and that can be done by analysing your mind,
 developing its finer powers of perception and seeing for yourselves what
 is happening inside; and when you have got these facts, then generalise;

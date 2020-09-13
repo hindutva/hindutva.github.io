@@ -14,17 +14,17 @@ During his sojourn in Calcutta in 1897, Swami Vivekananda used to stay
 for the most part at the Math, the headquarters of the Ramakrisnna
 Mission, located then at Alambazar. During this time several young men,
 who had been preparing themselves for some time previously, gathered
-round him and took the vows of Brahmacharya and Sannyâsa, and Swamiji
-began to train them for future work, by holding classes on the Gitâ and
+round him and took the vows of Brahmacharya and Sannyāsa, and Swamiji
+began to train them for future work, by holding classes on the Gitā and
 Vedanta, and initiating them into the practices of meditation. In one of
 these classes he talked eloquently in Bengali on the Gita. The following
 is the translation of the summary of the discourse as it was entered in
 the Math diary:
 
-The book known as the Gita forms a part of the Mahâbhârata. To
+The book known as the Gita forms a part of the Mahābhārata. To
 understand the Gita properly, several things are very important to know.
 First, whether it formed a part of the Mahabharata, i.e. whether the
-authorship attributed to Veda-Vyâsa was true, or if it was merely
+authorship attributed to Veda-Vyāsa was true, or if it was merely
 interpolated within the great epic; secondly, whether there was any
 historical personality of the name of Krishna; thirdly, whether the
 great war of Kurukshetra as mentioned in the Gita actually took place;
@@ -33,18 +33,18 @@ and fourthly, whether Arjuna and others were real historical persons.
 Now in the first place, let us see what grounds there are for such
 inquiry. We know that there were many who went by the name of
 Veda-Vyasa; and among them who was the real author of the Gita — the
-Bâdarâyana Vyasa or Dvaipâyana Vyasa? "Vyasa" was only a title. Anyone
-who composed a new Purâna was known by the name of Vyasa, like the word
-Vikramâditya, which was also a general name. Another point is, the book,
+Bādarāyana Vyasa or Dvaipāyana Vyasa? "Vyasa" was only a title. Anyone
+who composed a new Purāna was known by the name of Vyasa, like the word
+Vikramāditya, which was also a general name. Another point is, the book,
 Gita, had not been much known to the generality of people before
-Shankarâchârya made it famous by writing his great commentary on it.
+Shankarāchārya made it famous by writing his great commentary on it.
 Long before that, there was current, according to many, the commentary
-on it by Bodhâyana. If this could be proved, it would go a long way, no
+on it by Bodhāyana. If this could be proved, it would go a long way, no
 doubt, to establish the antiquity of the Gita and the authorship of
-Vyasa. But the Bodhayana Bhâshya on the *Vedânta Sutras* — from which
-Râmânuja compiled his *Shri-Bhâshya*, which Shankaracharya mentions and
+Vyasa. But the Bodhayana Bhāshya on the *Vedānta Sutras* — from which
+Rāmānuja compiled his *Shri-Bhāshya*, which Shankaracharya mentions and
 even quotes in part here and there in his own commentary, and which was
-so greatly discussed by the Swami Dayânanda — not a copy even of that
+so greatly discussed by the Swami Dayānanda — not a copy even of that
 Bodhayana Bhashya could I find while travelling throughout India. It is
 said that even Ramanuja compiled his Bhashya from a worm-eaten
 manuscript which he happened to find. When even this great Bodhayana
@@ -55,12 +55,12 @@ the author of the Gita, and that it was he who foisted it into the body
 of the Mahabharata.
 
 Then as to the second point in question, much doubt exists about the
-personality of Krishna. In one place in the Chhândogya Upanishad we find
+personality of Krishna. In one place in the Chhāndogya Upanishad we find
 mention of Krishna, the son of Devaki, who received spiritual
 instructions from one Ghora, a Yogi. In the Mahabharata, Krishna is the
-king of Dwârakâ; and in the *Vishnu Purâna* we find a description of
-Krishna playing with the Gopis. Again, in the *Bhâgavata*, the account
-of his Râsalilâ is detailed at length. In very ancient times in our
+king of Dwārakā; and in the *Vishnu Purāna* we find a description of
+Krishna playing with the Gopis. Again, in the *Bhāgavata*, the account
+of his Rāsalilā is detailed at length. In very ancient times in our
 country there was in vogue an Utsava called Madanotsava (celebration in
 honour of Cupid). That very thing was transformed into Dola and thrust
 upon the shoulders of Krishna. Who can be so bold as to assert that the
@@ -86,11 +86,11 @@ sorts of imaginary superhuman attributes. As regards Krishna the same
 must have happened, but it seems quite probable that he was a king.
 Quite probable I say, because in ancient times in our country it was
 chiefly the kings who exerted themselves most in the preaching of
-Brahma-Jnâna. Another point to be especially noted here is that whoever
+Brahma-Jnāna. Another point to be especially noted here is that whoever
 might have been the author of the Gita, we find its teachings the same
 as those in the whole of the Mahabharata. From this we can safely infer
 that in the age of the Mahabharata some great man arose and preached the
-Brahma-Jnâna in this new garb to the then existing society. Another fact
+Brahma-Jnāna in this new garb to the then existing society. Another fact
 comes to the fore that in the olden days, as one sect after another
 arose, there also came into existence and use among them one new
 scripture or another. It happened, too, that in the lapse of time both
@@ -101,8 +101,8 @@ in this sacred book.
 
 Now to the third point, bearing on the subject of the Kurukshetra War,
 no special evidence in support of it can be adduced. But there is no
-doubt that there was a war fought between the Kurus and the Panchâlas.
-Another thing: how could there be so much discussion about Jnâna,
+doubt that there was a war fought between the Kurus and the Panchālas.
+Another thing: how could there be so much discussion about Jnāna,
 Bhakti, and Yoga on the battle-field, where the huge army stood in
 battle array ready to fight, just waiting for the last signal? And was
 any shorthand writer present there to note down every word spoken
@@ -113,7 +113,7 @@ on within man between the tendencies of good and evil. This meaning,
 too, may not be irrational.
 
 About the fourth point, there is enough ground of doubt as regards the
-historicity of Arjuna and others, and it is this: Shatapatha Brâhmana is
+historicity of Arjuna and others, and it is this: Shatapatha Brāhmana is
 a very ancient book. In it are mentioned somewhere all the names of
 those who were the performers of the Ashvamedha Yajna: but in those
 places there is not only no mention, but no hint even of the names of
@@ -134,7 +134,7 @@ importance of such inquiries. Many of the sects believe that in order to
 preach a good thing which may be beneficial to many, there is no harm in
 telling an untruth, if that helps such preaching, or in other words, the
 end justifies the means. Hence we find many of our Tantras beginning
-with, "Mahâdeva said to Pârvati". But our duty should be to convince
+with, "Mahādeva said to Pārvati". But our duty should be to convince
 ourselves of the truth, to believe in truth only. Such is the power of
 superstition, or faith in old traditions without inquiry into its truth,
 that it keeps men bound hand and foot, so much so, that even Jesus the
@@ -150,7 +150,7 @@ across here and there an exquisitely beautiful rose, with its leaves,
 thorns, roots, all entangled. Compared with that, the Gita is like these
 truths beautifully arranged together in their proper places — like a
 fine garland or a bouquet of the choicest flowers. The Upanishads deal
-elaborately with Shraddhâ in many places, but hardly mention Bhakti. In
+elaborately with Shraddhā in many places, but hardly mention Bhakti. In
 the Gita, on the other hand, the subject of Bhakti is not only again and
 again dealt with, but in it, the innate spirit of Bhakti has attained
 its culmination.
@@ -168,7 +168,7 @@ show a complete reconciliation (Samanvaya) among these warring sects, it
 was fully accomplished by Ramakrishna Paramahamsa in this nineteenth
 century.
 
-The next is, Nishkâma Karma, or work without desire or attachment.
+The next is, Nishkāma Karma, or work without desire or attachment.
 People nowadays understand what is meant by this in various ways. Some
 say what is implied by being unattached is to become purposeless. If
 that were its real meaning, then heartless brutes and the walls would be
@@ -179,7 +179,7 @@ recognised as past masters in the practice of Nishkama Karma! Janaka
 children, but these people all want to be Janakas, with the sole
 qualification of being the fathers of a brood of children! No! The true
 Nishkama Karmi (performer of work without desire) is neither to be like
-a brute, nor to be inert, nor heartless. He is not Tâmasika but of pure
+a brute, nor to be inert, nor heartless. He is not Tāmasika but of pure
 Sattva. His heart is so full of love and sympathy that he can embrace
 the whole world with his love. The world at large cannot generally
 comprehend his all-embracing love and sympathy.
@@ -214,7 +214,7 @@ The Blessed Lord said:
 In such a strait, whence comes upon thee, O Arjuna, this dejection,
 un-Aryan-like, disgraceful, and contrary to the attainment of heaven?
 
-Yield not to unmanliness, O son of Prithâ! Ill doth it become thee. Cast
+Yield not to unmanliness, O son of Prithā! Ill doth it become thee. Cast
 off this mean faint-heartedness and arise, O scorcher of shine enemies!"
 
 In the Shlokas beginning with तं तथा कृपयाविष्टं, how poetically, how
@@ -229,9 +229,9 @@ was afraid, he was overwhelmed with pity. That he had the instinct and
 the inclination to fight is proved by the simple fact that he came to
 the battle-field with no other purpose than that. Frequently in our
 lives also such things are seen to happen. Many people think they are
-Sâttvika by nature, but they are really nothing but Tâmasika. Many
+Sāttvika by nature, but they are really nothing but Tāmasika. Many
 living in an uncleanly way regard themselves as Paramahamsas! Why?
-Because the Shâstras say that Paramahamsas live like one inert, or mad,
+Because the Shāstras say that Paramahamsas live like one inert, or mad,
 or like an unclean spirit. Paramahamsas are compared to children, but
 here it should be understood that the comparison is one-sided. The
 Paramahamsa and the child are not one and non-different. They only
@@ -244,10 +244,10 @@ the opposite qualities of Sattva and Tamas. They seem in some respects
 to be the same, no doubt, but there is a world of difference between
 them. The Tamoguna loves very much to array itself in the garb of the
 Sattva. Here, in Arjuna, the mighty warrior, it has come under the guise
-of Dayâ (pity).
+of Dayā (pity).
 
 In order to remove this delusion which had overtaken Arjuna, what did
-the Bhagavân say? As I always preach that you should not decry a man by
+the Bhagavān say? As I always preach that you should not decry a man by
 calling him a sinner, but that you should draw his attention to the
 omnipotent power that is in him, in the same way does the Bhagavan speak
 to Arjuna. नैतत्त्वय्युपपद्यते — "It doth not befit thee!" "Thou art
@@ -272,7 +272,7 @@ opposite vibration, and behold the magic transformation! Thou art
 omnipotent — go, go to the mouth of the cannon, fear not.
 
 Hate not the most abject sinner, fool; not to his exterior. Turn thy
-gaze inward, where resides the Paramâtman. Proclaim to the whole world
+gaze inward, where resides the Paramātman. Proclaim to the whole world
 with trumpet voice, "There is no sin in thee, there is no misery in
 thee; thou art the reservoir of omnipotent power. Arise, awake, and
 manifest the Divinity within!"

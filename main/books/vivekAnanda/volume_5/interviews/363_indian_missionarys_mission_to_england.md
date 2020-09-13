@@ -81,8 +81,8 @@ remarkable sweetness of expression. No one could look upon it unmoved."
 "Yes, Vedanta means the end of the Vedas, the third section or
 Upanishads, containing the ripened ideas which we find more as germs in
 the earlier portion. The most ancient portion of the Vedas is the
-Samhitâ, which is in very archaic Sanskrit, only to be understood by the
-aid of a very old dictionary, the Nirukta of Yâska."
+Samhitā, which is in very archaic Sanskrit, only to be understood by the
+aid of a very old dictionary, the Nirukta of Yāska."
 
 "I fear that we English have rather the idea that India has much to
 learn from us; the average man is pretty ignorant as to what may be

@@ -25,7 +25,7 @@ DARJEELING,
 
 HONOURED MADAM, (Shrimati Sarala Ghoshal — Editor, *Bharati*)
 
-I feel much obliged for the *Bhârati* sent by you, and consider myself
+I feel much obliged for the *Bhārati* sent by you, and consider myself
 fortunate that the cause, to which my humble life has been dedicated,
 has been able to win the approbation off highly talented ladies like
 you.
@@ -59,7 +59,7 @@ mass-of-flesh bodies.
 Yet it is only through the present state of things that it is possible
 to proceed to work. There is no other way. Every one has the power to
 judge of good end evil, but he is the hero who undaunted by the waves of
-Samsâra — which is full of errors, delusions, and miseries — with one
+Samsāra — which is full of errors, delusions, and miseries — with one
 hand wipes the tears, and with the other, unshaken, shows the path of
 deliverance. On the one hand there is the conservative society, like a
 mass of inert matter; on the other the restless, impatient, fire-darting
@@ -82,7 +82,7 @@ destroy the dark designs of millions of hypocrites and brutes.
 My going to the West again is yet uncertain; if I go, know that too will
 be for India. Where is the strength of men in this country? Where is the
 strength of money? Many men and women of the West are ready to do good
-to India by serving even the lowest Chandâlas, in the Indian way, and
+to India by serving even the lowest Chandālas, in the Indian way, and
 through the Indian religion. How many such are there in this country?
 And financial strength! To meet the expenses or my reception, the people
 of Calcutta made me deliver a lecture and sold tickets! . . . I do not

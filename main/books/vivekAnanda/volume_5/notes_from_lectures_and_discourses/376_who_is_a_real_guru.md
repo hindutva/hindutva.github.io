@@ -30,7 +30,7 @@ completely to the guidance of our Guru. The Guru only knows what will
 lead us towards perfection. We are quite blind to it. We do not know
 anything. This sort of humility will open the door of our heart for
 spiritual truths. Truth will never come into our minds so long as there
-will remain the faintest shadow of Ahamkâra (egotism). All of you should
+will remain the faintest shadow of Ahamkāra (egotism). All of you should
 try to root out this devil from your heart. Complete self-surrender is
 the only way to spiritual illumination.
 

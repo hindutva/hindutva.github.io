@@ -65,7 +65,7 @@ In those, and only those systems which dared to transcend beyond the
 personality of a limited human consciousness, we find also an attempt to
 resolve all physical phenomena into unity.
 
-The result was the "Akâsha" of the Hindus and the "Ether" of the Greeks.
+The result was the "Akāsha" of the Hindus and the "Ether" of the Greeks.
 
 This "Akasha" was, after the mind, the first material manifestation,
 said the Hindu sages, and out of this "Akasha" all this has been

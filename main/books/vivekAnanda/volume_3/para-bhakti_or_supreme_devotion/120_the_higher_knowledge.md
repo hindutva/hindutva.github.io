@@ -16,7 +16,7 @@ CHAPTER VI
 
 The Upanishads distinguish between a higher knowledge and a lower
 knowledge; and to the Bhakta there is really no difference between this
-higher knowledge and his higher love (Parâ-Bhakti). The Mundaka
+higher knowledge and his higher love (Parā-Bhakti). The Mundaka
 Upanishad says:
 
 द्वे विद्ये वेदितव्ये इति ह स्म यद्ब्रह्मविदो वदन्ति। परा चैवापरा च॥
@@ -24,16 +24,16 @@ Upanishad says:
 निरुक्तं छन्दो ज्योतिषमिति। अथ परा यया तदक्षरमधिगम्यते॥
 
 — "The knowers of the Brahman declare that there are two kinds of
-knowledge worthy to be known, namely, the Higher (Parâ) and the lower
-(Aparâ). Of these the lower (knowledge) consists of the Rig-Veda, the
-Yajur-Veda, the Sâma-Veda, the Atharva-Veda, the Shikshâ (or the science
+knowledge worthy to be known, namely, the Higher (Parā) and the lower
+(Aparā). Of these the lower (knowledge) consists of the Rig-Veda, the
+Yajur-Veda, the Sāma-Veda, the Atharva-Veda, the Shikshā (or the science
 dealing with pronunciation and accent), the Kalpa (or the sacrificial
 liturgy), grammar, the Nirukta (or the science dealing with etymology
 and the meaning of words), prosody, and astronomy; and the higher
 (knowledge) is that by which that Unchangeable is known."
 
 The higher knowledge is thus clearly shown to be the knowledge of the
-Brahman; and the *Devi-Bhâgavata* gives us the following definition of
+Brahman; and the *Devi-Bhāgavata* gives us the following definition of
 the higher love (Para-Bhakti): "As oil poured from one vessel to another
 falls in an unbroken line, so, when the mind in an unbroken stream
 thinks of the Lord, we have what is called Para-Bhakti or supreme love."
@@ -42,7 +42,7 @@ heart to the Lord with an inseparable attachment is indeed the highest
 manifestation of man's love to God. All other forms of Bhakti are only
 preparatory to the attainment of this highest form thereof, viz the
 Para-Bhakti which is also known as the love that comes after attachment
-(Râgânugâ). When this supreme love once comes into the heart of man, his
+(Rāgānugā). When this supreme love once comes into the heart of man, his
 mind will continuously think of God and remember nothing else. He will
 give no room in himself to thoughts other than those of God, and his
 soul will be unconquerably pure and will alone break all the bonds of

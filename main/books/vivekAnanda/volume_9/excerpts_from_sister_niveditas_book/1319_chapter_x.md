@@ -22,7 +22,7 @@ JULY 29.
 
 From this time we saw very little of the Swami. He was full of
 enthusiasm about the pilgrimage and lived mostly on one meal a day,
-seeking no company much, save that of Sâdhus. Sometimes he would come to
+seeking no company much, save that of Sādhus. Sometimes he would come to
 a camping-ground, beads in hand. Tonight two of the party went roaming
 about Bawan, which was like a village fair, all modified by a religious
 tendency centering in the sacred springs. Afterwards with Dhira Mata it

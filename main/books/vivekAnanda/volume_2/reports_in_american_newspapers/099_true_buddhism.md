@@ -43,7 +43,7 @@ atom or nature.
 "Thus the intellectual world was divided before Buddha came. But for a
 correct understanding of his religion, it is also necessary to speak of
 the caste then existing. The Vedas teach that he who knows God is a
-Brahma \[Brâhmin\]; he who protects his fellows is a Chocta
+Brahma \[Brāhmin\]; he who protects his fellows is a Chocta
 \[Kshatriya\], while he who gains his livelihood in trade is a Visha
 \[Vaishya\]. These different social diversions \[divisions\] developed
 or degenerated into iron-bound casts \[castes\], and an organized and

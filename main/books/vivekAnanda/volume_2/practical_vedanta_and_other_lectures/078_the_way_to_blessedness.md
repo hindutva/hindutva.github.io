@@ -57,7 +57,7 @@ immortal, will delight in long life, knowing the nature of the pleasure
 produced by song and sport? Therefore, tell me this secret about the
 great hereafter, I do not want anything else; that is what Nachiketas
 wants, the mystery of death." Then the God of death was pleased. We have
-been saying in the last two or three lectures that this Jnâna prepares
+been saying in the last two or three lectures that this Jnāna prepares
 the mind. So you see here that the first preparation is that a man must
 desire nothing else but the truth, and truth for truth's sake. See how
 this boy rejected all these gifts which Death offered him; possessions,
@@ -234,7 +234,7 @@ body, and behind that is the universal mind, and behind that is the
 universal Soul. Just as this body is a portion of the universal body, so
 this mind is a portion of the universal mind, and the soul of man a
 portion of the universal Soul. This is what is called the
-Vishishtâdvaita, qualified monism. Now, we know that the universal Soul
+Vishishtādvaita, qualified monism. Now, we know that the universal Soul
 is infinite. How can infinity have parts? How can it be broken up,
 divided? It may be very poetic to say that I am a spark of the Infinite,
 but it is absurd to the thinking mind. What is meant by dividing

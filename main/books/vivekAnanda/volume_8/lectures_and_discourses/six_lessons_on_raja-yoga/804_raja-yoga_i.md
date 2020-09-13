@@ -17,7 +17,7 @@ Vivekananda to an intimate audience in the house of Mrs. Sara C. Bull, a
 devoted American disciple, and were preserved by her and finally printed
 in 1913 for private circulation — *Ed*.)
 
-Râja-Yoga is as much a science as any in the world. It is an analysis of
+Rāja-Yoga is as much a science as any in the world. It is an analysis of
 the mind, a gathering of the facts of the supersensuous world and so
 building up the spiritual world. All the great spiritual teachers the
 world has known said, "I see and I know." Jesus, Paul, and Peter all
@@ -155,7 +155,7 @@ organs of motion, or knowledge and action.
 The internal organ or mind has four aspects. First — Manas, the
 cogitating or thinking faculty, which is usually almost entirely wasted,
 because uncontrolled; properly governed, it is a wonderful power. Second
-— Buddhi, the will (sometimes called the intellect). Third — Ahamkâra,
+— Buddhi, the will (sometimes called the intellect). Third — Ahamkāra,
 the self-conscious egotism (from Aham). Fourth — Chitta, the substance
 in and through which all the faculties act, the floor of the mind as it
 were; or the sea in which the various faculties are waves.
@@ -183,7 +183,7 @@ If we could entirely stop our mind-stuff from breaking into waves, it
 would put an end to our bodies. For millions of years we have worked so
 hard to manufacture these bodies that in the struggle we have forgotten
 our real purpose in getting them, which was to become perfect. We have
-grown to think that body-making is the end of our efforts. This is Mâyâ.
+grown to think that body-making is the end of our efforts. This is Māyā.
 We must break this delusion and return to our original aim and realise
 we are not the body, it is our servant.
 

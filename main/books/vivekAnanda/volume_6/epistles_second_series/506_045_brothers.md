@@ -83,7 +83,7 @@ Be independent, learn to form independent judgments. — That such and
 such a chapter of such and such a Tantra has prescribed a standard
 length for the handle of a bell, — what matters it to me? Through the
 Lord's will, out of your lips shall come millions of Vedas and Tantras
-and Purânas. ... If now you can show this in practice, if you can make
+and Purānas. ... If now you can show this in practice, if you can make
 three or four hundred thousand disciples in India within a year, then
 only I may have some hope. ...
 
@@ -153,8 +153,8 @@ VIVEKANANDA.
   
 PS. Remember my previous letter — we want both men and women. There is
 no distinction of sex in the soul. It won't do merely to call Shri
-Ramakrishna an Incarnation, you must manifest power. Where are Gour-Mâ,
-Yogin-Mâ, and Golap-Mâ? Tell them to spread these ideas. We want
+Ramakrishna an Incarnation, you must manifest power. Where are Gour-Mā,
+Yogin-Mā, and Golap-Mā? Tell them to spread these ideas. We want
 thousands of men and thousands of women who will spread like wild fire
 from the Himalayas to Cape Comorin, from the North Pole to the South
 Pole — all over the world. It is no use indulging in child's play —

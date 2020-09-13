@@ -15,18 +15,18 @@ the Raja:
 
 His Most Holiness,
 
-Sri Paramahamsa, Yati-Râja, Digvijaya-Kolâhala, Sarvamata-Sampratipanna,
-Parama-Yogeeswara, Srimat Bhagavân Sree Ramakrishna Paramahamsa
-Karakamala Sanjâta, Râjâdhirâja-Sevita, SREE VIVEKANANDA SWAMI, MAY IT
+Sri Paramahamsa, Yati-Rāja, Digvijaya-Kolāhala, Sarvamata-Sampratipanna,
+Parama-Yogeeswara, Srimat Bhagavān Sree Ramakrishna Paramahamsa
+Karakamala Sanjāta, Rājādhirāja-Sevita, SREE VIVEKANANDA SWAMI, MAY IT
 PLEASE YOUR HOLINESS,
 
-We, the inhabitants of this ancient and historic Samsthânam of Sethu
-Bandha Rameswaram, otherwise known as Râmanâthapuram or Ramnad, beg,
+We, the inhabitants of this ancient and historic Samsthānam of Sethu
+Bandha Rameswaram, otherwise known as Rāmanāthapuram or Ramnad, beg,
 most cordially, to welcome you to this, our motherland. We deem it a
 very rare privilege to be the first to pay your Holiness our heartfelt
 homage on your landing in India, and that, on the shores sanctified by
-the footsteps of that great Hero and our revered Lord — Sree Bhagavân
-Râmachandra.
+the footsteps of that great Hero and our revered Lord — Sree Bhagavān
+Rāmachandra.
 
 We have watched with feelings of genuine pride and pleasure the
 unprecedented success which has crowned your laudable efforts in
@@ -207,7 +207,7 @@ country and in every society, and it is a greatly regrettable thing that
 in India, where it was always understood, the same mistake of forcing
 the highest truths on people who are not ready for them has been made of
 late. My method need not be yours. The Sannyasin, as you all know, is
-the ideal of the Hindu's life, and every one by our Shâstras is
+the ideal of the Hindu's life, and every one by our Shāstras is
 compelled to give up. Every Hindu who has tasted the fruits of this
 world must give up in the latter part of his life, and he who does not
 is not a Hindu and has no more right to call himself a Hindu. We know

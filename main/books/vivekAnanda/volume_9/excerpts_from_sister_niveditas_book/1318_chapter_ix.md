@@ -42,8 +42,8 @@ Zoroaster was a reformer of some old religion. Even Ormuzd and Ahriman
 with him were not supreme; they were only manifestations of the Supreme.
 That older religion must have been Vedantic. So the Egyptians and
 Semites cling to the theory of sin while the Aryans, as Indians and
-Greeks, quickly lose it. In India righteousness and sin become Vidyâ and
-Avidyâ — both to be transcended. Amongst the Aryans, Persians and
+Greeks, quickly lose it. In India righteousness and sin become Vidyā and
+Avidyā — both to be transcended. Amongst the Aryans, Persians and
 Europeans become Semitized by religious ideas; hence the sense of
 sin.[1](#fn1)
 
@@ -149,7 +149,7 @@ reserved people, I have noticed, are always the most brutal when
 roused".
 
 Again, evidently talking of the ascetic life and giving the rules of
-Brahmacharya — "The Sannyâsin who thinks of gold, to desire it, commits
+Brahmacharya — "The Sannyāsin who thinks of gold, to desire it, commits
 suicide", and so on.
 
 JULY 24.
@@ -196,7 +196,7 @@ represent the interests of women when he should go West, of how it would
 exceed the responsibility of work for men. And he added, turning to the
 worker of the party, "Yes, you have faith, but you have not that burning
 enthusiasm that you need. You want to be consumed \[with\] energy.
-Shiva! Shiva!" And so, invoking the blessing of Mahâdeva, he said
+Shiva! Shiva!" And so, invoking the blessing of Mahādeva, he said
 goodnight and left us, and we presently went to bed.
 
 JULY 25.

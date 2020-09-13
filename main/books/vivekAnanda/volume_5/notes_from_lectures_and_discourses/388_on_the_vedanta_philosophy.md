@@ -126,7 +126,7 @@ give nothing, know nothing but bliss. Then it passes, and we again see
 the panorama of the universe moving before us; and we know that it is
 but a mosaic work set upon God, who is the background of all things.
 
-The Vedanta teaches that Nirvâna can be attained here and now, that we
+The Vedanta teaches that Nirvāna can be attained here and now, that we
 do not have to wait for death to reach it. Nirvana is the realisation of
 the Self; and after having once known that, if only for an instant,
 never again can one be deluded by the mirage of personality. Having
