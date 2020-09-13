@@ -31,6 +31,9 @@ contents:
   - title: History इतिहासः
     contents:
       - url: recdir://main/history/
+  - title: Books ग्रन्थाः
+    contents:
+      - url: recdir://main/books/
   - title: Paganology
     url: /paganology/
   - title: Home
