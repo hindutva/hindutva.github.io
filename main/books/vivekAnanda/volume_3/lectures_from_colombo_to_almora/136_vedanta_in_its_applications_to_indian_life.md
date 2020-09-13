@@ -421,7 +421,7 @@ twenty times more. Because, in spite of the greatness of the Upanishads,
 in spite of our boasted ancestry of sages, compared to many other races,
 I must tell you that we are weak, very weak. First of all is our
 physical weakness. That physical weakness is the cause of at least
-one-third of our miseries. We are lazy, we cannot work; we cannot
+one-third of our miseries.+++(5)+++ We are lazy, we cannot work; we cannot
 combine, we do not love each other; we are intensely selfish, not three
 of us can come together without hating each other, without being jealous
 of each other. That is the state in which we are — hopelessly
@@ -444,7 +444,7 @@ them, for I love you. I know where the shoe pinches. I have gained a
 little experience. You will understand the Gita better with your biceps,
 your muscles, a little stronger. You will understand the mighty genius
 and the mighty strength of Krishna better with a little of strong blood
-in you. You will understand the Upanishads better and the glory of the
+in you.+++(5)+++ You will understand the Upanishads better and the glory of the
 Atman when your body stands firm upon your feet, and you feel yourselves
 as men. Thus we have to apply these to our needs.
 
