@@ -2,18 +2,13 @@
 title: XI
 
 ---
-<div>
 
-[←](010_haripada.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Epistles – Fourth
-Series](epistles_fourth_series_contents.htm)
-/ [→](012_diwanji_saheb.htm)
+
+
 
   
 
-[«](010_haripada.htm) Chronology
-[»](../../unpublished/i_your_highness.htm)  
+  
 Addressee [»](../../volume_5/epistles_first_series/003_alasinga.htm)
 
 ## XI
@@ -61,4 +56,4 @@ Yours etc.,
 SACHCHIDANANDA.  
 (Swamiji used to call himself such in those days.)
 
-</div>
+

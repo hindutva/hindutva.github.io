@@ -2,13 +2,9 @@
 title: 'STRAY REMARKS ON THEOSOPHY '
 
 ---
-<div>
 
-[←](indias_message_to_the_world.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-4](../volume_4_contents.htm) / [Writings:
-Prose](writings_prose_contents.htm)
-/ [→](reply_to_the_maharaja_of_khetri.htm)
+
+
 
   
 
@@ -94,4 +90,4 @@ the lungs of consumptives, the healthy, spiritual, active, and patriotic
 from the charlatans, the morbids, and the degenerates posing as
 spiritual beings.
 
-</div>
+

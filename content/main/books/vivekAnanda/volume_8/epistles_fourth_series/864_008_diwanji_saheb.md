@@ -2,18 +2,14 @@
 title: VIII
 
 ---
-<div>
 
-[←](007_diwanji_saheb.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Epistles – Fourth
-Series](epistles_fourth_series_contents.htm)
-/ [→](009_diwanji_saheb.htm)
+
+
 
   
 
-[«](007_diwanji_saheb.htm) Chronology [»](009_diwanji_saheb.htm)  
-[«](007_diwanji_saheb.htm) Addressee [»](009_diwanji_saheb.htm)
+  
+
 
 ## VIII
 
@@ -44,4 +40,4 @@ circumstances. Hoping and relying on your kind nature, I remain,
 Yours faithfully,  
 VIVEKANANDA.
 
-</div>
+

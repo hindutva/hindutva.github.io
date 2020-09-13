@@ -2,13 +2,9 @@
 title: VEDANTISM
 
 ---
-<div>
 
-[←](first_public_lecture_in_the_east_%28colombo%29.htm)
-[Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
-/ [Volume 3](../volume_3_contents.htm) / [Lectures from Colombo to
-Almora](lectures_from_colombo_to_almora_contents.htm)
-/ [→](reply_to_the_address_of_welcome_at_pamban.htm)
+
+
 
   
 
@@ -601,4 +597,4 @@ their ancestors. With the blessing of the Lord every one here will yet
 do such deeds that will eclipse those of our ancestors, great and
 glorious as they may have been.
 
-</div>
+

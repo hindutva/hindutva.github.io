@@ -2,13 +2,9 @@
 title: A HYMN TO THE DIVINITY OF SHRI RAMAKRISHNA
 
 ---
-<div>
 
-[←](a_hymn_to_shiva.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-4](../volume_4_contents.htm) / [Translations:
-Poems](translation_poems_contents.htm)
-/ [→](and_let_shyama_dance_there.htm)
+
+
 
   
 
@@ -84,4 +80,4 @@ In all! O verily, in Thee the pain
 And evil of this mortal world escapes,  
 And vanishes, O cherished One.
 
-</div>
+

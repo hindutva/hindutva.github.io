@@ -2,19 +2,14 @@
 title: LXXXII
 
 ---
-<div>
 
-[←](081_goodwin.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Epistles – Fourth
-Series](epistles_fourth_series_contents.htm)
-/ [→](083_blessed_and_beloved.htm)
+
+
 
   
 
-[«](081_goodwin.htm) Chronology [»](083_blessed_and_beloved.htm)  
-[«](079_blessed_and_beloved.htm) Addressee
-[»](083_blessed_and_beloved.htm)
+  
+
 
 ## LXXXII
 
@@ -74,4 +69,4 @@ faddists.
 
 V.
 
-</div>
+

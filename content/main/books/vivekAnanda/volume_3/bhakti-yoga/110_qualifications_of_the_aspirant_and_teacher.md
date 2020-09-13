@@ -2,12 +2,9 @@
 title: QUALIFICATIONS OF THE ASPIRANT AND THE TEACHER
 
 ---
-<div>
 
-[←](the_need_of_guru.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-3](../volume_3_contents.htm) / [Bhakti-Yoga](bhakti-yoga_contents.htm)
-/ [→](incarnate_teachers_and_incarnation.htm)
+
+
 
   
 
@@ -180,4 +177,4 @@ influence, and see in him God manifested. Those who come to seek truth
 with such a spirit of love and veneration, to them the Lord of Truth
 reveals the most wonderful things regarding truth, goodness, and beauty.
 
-</div>
+

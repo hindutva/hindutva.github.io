@@ -2,18 +2,14 @@
 title: LXXXVII
 
 ---
-<div>
 
-[←](086_mrs_bull.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Epistles – Second
-Series](epistles_second_series_contents.htm) / [→](088_mrs_bull.htm)
+
+
 
   
 
-[«](086_mrs_bull.htm) Chronology [»](088_mrs_bull.htm)  
-[«](070_alberta.htm) Addressee
-[»](../../volume_7/epistles_third_series/33_sister.htm)
+  
+
 
 ## LXXXVII
 
@@ -60,4 +56,4 @@ Yours with love and blessings,
 
 VIVEKANANDA.
 
-</div>
+

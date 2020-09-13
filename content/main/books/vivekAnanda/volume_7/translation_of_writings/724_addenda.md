@@ -4,13 +4,9 @@ title: 'MEMOIRS OF EUROPEAN TRAVEL
   ADDENDA'
 
 ---
-<div>
 
-[←](memoirs_of_european_travel_ii.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Translation of
-Writings](translation_of_writings_contents.htm)
-/ [→](../notes_of_class_talks_and_lectures/notes_of_class_talks/on_art.htm)
+
+
 
   
 
@@ -202,4 +198,4 @@ art contented itself merely by copying the works of previous artists of
 that country; and the only novelty there was, consisted in reproducing
 exactly the face of some particular individual.
 
-</div>
+

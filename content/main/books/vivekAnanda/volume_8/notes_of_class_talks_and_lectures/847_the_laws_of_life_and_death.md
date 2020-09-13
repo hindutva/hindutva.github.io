@@ -2,13 +2,9 @@
 title: THE LAWS OF LIFE AND DEATH
 
 ---
-<div>
 
-[←](the_claims_of_vedanta.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Notes of Class Talks and
-Lectures](notes_of_class_talks_and_lectures_contents.htm)
-/ [→](the_reality_and_the_shadow.htm)
+
+
 
   
 
@@ -65,4 +61,4 @@ slaves of thirst, the slaves of desire, the slaves of a thousand things.
 Only by escaping from life can we escape from slavery to freedom. God is
 the only one who is free. God and freedom are one and the same.
 
-</div>
+

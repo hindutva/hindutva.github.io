@@ -2,13 +2,9 @@
 title: THE EAST AND THE WEST
 
 ---
-<div>
 
-[←](to_the_fourth_of_july.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Writings: Prose and
-Poems](writings_prose_and_poems_contents.htm)
-/ [→](../../volume_6/lectures_and_discourses/the_methods_and_purpose_of_religion.htm)
+
+
 
   
 
@@ -2957,4 +2953,4 @@ every social rule is for the protection of the weak.
     rice well-dressed with flesh-meat."  (Ramayana - Ayodhyakanda
     55.19-20)
 
-</div>
+

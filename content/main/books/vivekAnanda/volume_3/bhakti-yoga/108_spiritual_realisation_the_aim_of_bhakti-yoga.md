@@ -2,12 +2,9 @@
 title: SPIRITUAL REALISATION, THE AIM OF BHAKTI-YOGA
 
 ---
-<div>
 
-[←](the_philosophy_of_ishwara.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-3](../volume_3_contents.htm) / [Bhakti-Yoga](bhakti-yoga_contents.htm)
-/ [→](the_need_of_guru.htm)
+
+
 
   
 
@@ -82,4 +79,4 @@ truth, and sit like children at the feet of those who know what they are
 talking about — the sages of India. Let us then listen attentively to
 what they say.
 
-</div>
+

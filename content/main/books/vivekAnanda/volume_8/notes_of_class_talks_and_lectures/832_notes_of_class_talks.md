@@ -2,13 +2,9 @@
 title: NOTES OF CLASS TALKS
 
 ---
-<div>
 
-[←](../writings_poems/no_one_to_blame.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Notes of Class Talks and
-Lectures](notes_of_class_talks_and_lectures_contents.htm)
-/ [→](man_the_maker.htm)
+
+
 
   
 
@@ -111,4 +107,4 @@ would always remain a thief, and the blackguard, a blackguard. If a baby
 died, it would have to remain a baby. The real individuality is that
 which never changes, and will never change; and that is God within us.
 
-</div>
+

@@ -2,19 +2,14 @@
 title: LXXVIII
 
 ---
-<div>
 
-[←](077_babies.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Epistles – Fourth
-Series](epistles_fourth_series_contents.htm)
-/ [→](079_blessed_and_beloved.htm)
+
+
 
   
 
-[«](../../volume_6/epistles_second_series/104_mrs_bull.htm) Chronology
-[»](079_blessed_and_beloved.htm)  
-[«](074_sturdy.htm) Addressee [»](079_blessed_and_beloved.htm)
+  
+
 
 ## LXXVIII
 
@@ -38,4 +33,4 @@ Yours ever affectionately,
 
 VIVEKANANDA.
 
-</div>
+

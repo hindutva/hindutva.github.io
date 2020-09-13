@@ -2,13 +2,9 @@
 title: THE GOD OF LOVE IS HIS OWN PROOF
 
 ---
-<div>
 
-[←](the_triangle_of_love.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-3](../volume_3_contents.htm) / [Para-Bhakti or Supreme
-Devotion](para-bhakti_or_supreme_devotion_contents.htm)
-/ [→](human_representations_of_the_divine_ideal_of_love.htm)
+
+
 
   
 
@@ -78,4 +74,4 @@ because he has Him already seated in glory in his own heart as the one
 Almighty inextinguishable Light of Love which is ever shining and
 eternally present.
 
-</div>
+

@@ -2,18 +2,14 @@
 title: LXIV
 
 ---
-<div>
 
-[←](063_shashi.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Epistles – Second
-Series](epistles_second_series_contents.htm) / [→](065_mrs_bull.htm)
+
+
 
   
 
-[«](../../volume_8/epistles_fourth_series/040_friend.htm) Chronology
-[»](../../volume_7/epistles_third_series/28_brother.htm)  
-[«](062_mrs_bull.htm) Addressee [»](065_mrs_bull.htm)
+  
+
 
 ## LXIV
 
@@ -79,4 +75,4 @@ on the margin to explain Hindustani words.
 Your obedient son,  
 VIVEKANANDA.
 
-</div>
+

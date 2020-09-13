@@ -2,13 +2,9 @@
 title: YAJNAVALKYA AND MAITREYI
 
 ---
-<div>
 
-[←](the_way_to_blessedness.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-2](../volume_2_contents.htm) / [Practical Vedanta and other
-lectures](practical_vedanta_and_other_lectures_contents.htm)
-/ [→](soul_nature_and_god.htm)
+
+
 
   
 
@@ -213,4 +209,4 @@ one, manifested in different forms. To realise this unity is the end and
 aim of all meditation, and this is what Yajnavalkya was trying to
 explain to Maitreyi.
 
-</div>
+

@@ -2,25 +2,17 @@
 title: XXV
 
 ---
-<div>
 
-[←](024_babies.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Epistles – Fourth
-Series](epistles_fourth_series_contents.htm) / [→](026_sister.htm)
+
+
 
   
 
-[«](../../volume_9/letters_fifth_series/027_mother.htm) Chronology
-[»](../../volume_5/epistles_first_series/012_sister.htm)  
-[«](../../volume_6/epistles_second_series/044_sisters.htm) Both Sisters
-[»](042_babies.htm)  
-[«](../../volume_6/epistles_second_series/044_sisters.htm) Mary or
-Harriet Hale [»](026_sister.htm)  
-[«](../../volume_6/epistles_second_series/044_sisters.htm) Harriet Hale
-[»](042_babies.htm)  
-[«](../../volume_6/epistles_second_series/044_sisters.htm) Mary Hale
-[»](026_sister.htm)
+  
+  
+  
+  
+
 
 ## XXV
 
@@ -67,4 +59,4 @@ Ever your well-wishing brother,
 
 VIVEKANANDA.
 
-</div>
+

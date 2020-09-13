@@ -2,13 +2,9 @@
 title: CONCENTRATION AND BREATHING
 
 ---
-<div>
 
-[←](nature_and_man.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Lectures and
-Discourses](lectures_and_discourses_contents.htm)
-/ [→](introduction_to_jnana-yoga.htm)
+
+
 
   
 
@@ -131,4 +127,4 @@ The first breathing exercise is perfectly safe and very healthful. It
 will give you good health, and better your condition generally at least.
 The other practices should be taken up slowly and carefully.
 
-</div>
+

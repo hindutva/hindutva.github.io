@@ -2,13 +2,9 @@
 title: SADHANAS OR PREPARATIONS FOR HIGHER LIFE
 
 ---
-<div>
 
-[←](work_without_motive.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Notes from Lectures and
-Discourses](notes_from_lectures_and_discourses_contents.htm)
-/ [→](the_cosmos_and_the_self.htm)
+
+
 
   
 
@@ -180,4 +176,4 @@ more, and the whole life will seem like a show. We shall see only the
 infinite rhythm going on, endless and purposeless, going we do not know
 where. Only this much shall we say; our play is done.
 
-</div>
+

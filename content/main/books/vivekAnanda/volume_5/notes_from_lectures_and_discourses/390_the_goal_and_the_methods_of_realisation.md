@@ -2,13 +2,9 @@
 title: THE GOAL AND METHODS OF REALISATION
 
 ---
-<div>
 
-[←](law_and_freedom.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Notes from Lectures and
-Discourses](notes_from_lectures_and_discourses_contents.htm)
-/ [→](world-wide_unity.htm)
+
+
 
   
 
@@ -59,4 +55,4 @@ good, so far as they encourage man to lead a religious life. The more
 sects there are, the more opportunities there are for making successful
 appeals to the divine instinct in all men.
 
-</div>
+

@@ -4,12 +4,9 @@ title: 'RECORDED BY MISS S. E. WALDO
   (A DISCIPLE)'
 
 ---
-<div>
 
-[←](32_thursday_july_25.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Inspired
-Talks](inspired_talks_contents.htm) / [→](34_saturday_july_27.htm)
+
+
 
   
 
@@ -28,4 +25,4 @@ importance fosters superstition and is really weakness. Truth must have
 no compromise. Teach truth and make no apology for any superstition;
 neither drag truth to the level of the listener.
 
-</div>
+

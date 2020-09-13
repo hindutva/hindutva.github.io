@@ -4,12 +4,9 @@ title: 'RECORDED BY MISS S. E. WALDO
   (A DISCIPLE)'
 
 ---
-<div>
 
-[←](20_friday_july_12.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Inspired
-Talks](inspired_talks_contents.htm) / [→](22_sunday_july_14.htm)
+
+
 
   
 
@@ -68,4 +65,4 @@ Even fighting in self-defence is wrong, though it is higher than
 fighting in aggression. There is no "righteous" indignation, because
 indignation comes from not recognising sameness in all things.
 
-</div>
+

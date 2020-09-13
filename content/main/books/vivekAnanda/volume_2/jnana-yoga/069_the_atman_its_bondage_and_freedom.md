@@ -2,12 +2,9 @@
 title: 'THE ATMAN: ITS BONDAGE AND FREEDOM'
 
 ---
-<div>
 
-[←](the_atman.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-2](../volume_2_contents.htm) / [Jnana-Yoga](jnana-yoga_contents.htm)
-/ [→](the_real_and_the_apparent_man.htm)
+
+
 
   
 
@@ -258,4 +255,4 @@ time, the highest state is when we have no desires, but the two are
 opposite poles of the same existence. One is near the animal, and the
 other near to God.
 
-</div>
+

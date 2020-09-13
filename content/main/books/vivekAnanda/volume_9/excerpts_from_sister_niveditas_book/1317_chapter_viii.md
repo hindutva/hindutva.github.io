@@ -2,13 +2,13 @@
 title: CHAPTER VIII
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Excerpts from Sister
 Nivedita's Book](excerpts_from_sister_niveditas_book_contents.htm) /
 
-[←](chapter_vii.htm)
+
 
 ## CHAPTER VIII
 
@@ -252,7 +252,7 @@ was none like him!"
 
 [→](chapter_ix.htm)
 
-</div>
+
 
 1.  [^](#fn1_1)In travelling from Naples to Port Said, on his way back
     to India, in January 1897, the Swami had a dream of an old and

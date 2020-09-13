@@ -2,19 +2,14 @@
 title: LVII
 
 ---
-<div>
 
-[←](056_dear_and_beloved.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Epistles – Second
-Series](epistles_second_series_contents.htm) / [→](058_sarada.htm)
+
+
 
   
 
-[«](../../volume_5/epistles_first_series/027_alasinga.htm) Chronology
-[»](../../volume_5/epistles_first_series/028_mrs_bull.htm)  
-[«](050_mrs_bull.htm) Addressee
-[»](../../volume_5/epistles_first_series/028_mrs_bull.htm)
+  
+
 
 ## LVII
 
@@ -43,4 +38,4 @@ I remain yours obediently,
 
 VIVEKANANDA.
 
-</div>
+

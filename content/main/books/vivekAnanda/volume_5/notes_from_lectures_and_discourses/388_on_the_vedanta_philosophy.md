@@ -2,13 +2,9 @@
 title: ON THE VEDANTA PHILOSOPHY
 
 ---
-<div>
 
-[←](buddhism_and_vedanta.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Notes from Lectures and
-Discourses](notes_from_lectures_and_discourses_contents.htm)
-/ [→](law_and_freedom.htm)
+
+
 
   
 
@@ -190,4 +186,4 @@ by the side of an idolater or even an atheist. What is more, in the
 Vedantic ocean, the Hindu, Mohammedan, Christian, and Parsee are all
 one, all children of the Almighty God.
 
-</div>
+

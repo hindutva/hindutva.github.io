@@ -2,15 +2,13 @@
 title: CI
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
 
-[←](100_miss_noble.htm)  
-[←Chronology](../../volume_8/epistles_fourth_series/086_joe.htm)  
-[←Addressee](100_miss_noble.htm)
+
 
 ## CI
 
@@ -37,4 +35,4 @@ VIVEKANANDA
 [Addressee→](108_miss_noble.htm)  
 [Chronology→](../../volume_6/epistles_second_series/118_mrs_bull.htm)
 
-</div>
+

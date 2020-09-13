@@ -2,19 +2,14 @@
 title: CXCV
 
 ---
-<div>
 
-[←](194_mademoiselle.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Epistles – Fourth
-Series](epistles_fourth_series_contents.htm) / [→](196_joe.htm)
+
+
 
   
 
-[«](194_mademoiselle.htm) Chronology
-[»](../../volume_9/letters_fifth_series/185_mother.htm)  
-[«](../../volume_9/letters_fifth_series/184_christina.htm) Addressee
-[»](../../volume_9/letters_fifth_series/187_christina.htm)
+  
+
 
 ## CXCV
 
@@ -101,4 +96,4 @@ Office to forward our letters to our further destinations.
 
 V.
 
-</div>
+

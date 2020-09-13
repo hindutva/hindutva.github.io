@@ -2,12 +2,9 @@
 title: THE NECESSITY OF RELIGION
 
 ---
-<div>
 
-[←](../bhakti_or_devotion.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-2](../volume_2_contents.htm) / [Jnana-Yoga](jnana-yoga_contents.htm)
-/ [→](the_real_nature_of_man.htm)
+
+
 
   
 
@@ -390,4 +387,4 @@ space will meet and become one with that which is beyond them both,
 where the mind and senses cannot reach — the Absolute, the Infinite, the
 One without a second.
 
-</div>
+

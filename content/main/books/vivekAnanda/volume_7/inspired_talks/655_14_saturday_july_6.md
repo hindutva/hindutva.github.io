@@ -4,12 +4,9 @@ title: 'RECORDED BY MISS S. E. WALDO
   (A DISCIPLE)'
 
 ---
-<div>
 
-[←](13_friday_july_5.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Inspired
-Talks](inspired_talks_contents.htm) / [→](15_sunday_july_7.htm)
+
+
 
   
 
@@ -105,4 +102,4 @@ releases us, we cannot get free.
 The universe is ours to enjoy. But want nothing. To want is weakness.
 Want makes us beggars, and we are sons of the king, not beggars.
 
-</div>
+

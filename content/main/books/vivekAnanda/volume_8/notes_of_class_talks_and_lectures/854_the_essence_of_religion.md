@@ -2,13 +2,9 @@
 title: THE ESSENCE OF RELIGION
 
 ---
-<div>
 
-[←](the_worship_of_the_divine_mother.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Notes of Class Talks and
-Lectures](notes_of_class_talks_and_lectures_contents.htm)
-/ [→](../sayings_and_utterances.htm)
+
+
 
   
 
@@ -161,4 +157,4 @@ of love. Man is transformed in the presence of this Light of Love and
 realises at last the beautiful and inspiring truth that Love, Lover, and
 the Beloved are really one.
 
-</div>
+

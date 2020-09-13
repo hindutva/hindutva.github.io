@@ -2,13 +2,9 @@
 title: THE NATURE OF THE SOUL AND ITS GOAL
 
 ---
-<div>
 
-[←](the_methods_and_purpose_of_religion.htm) [Home](../../../index.htm)
-/ [Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Lectures and
-Discourses](lectures_and_discourses_contents.htm)
-/ [→](the_importance_of_psychology.htm)
+
+
 
   
 
@@ -292,4 +288,4 @@ soul then finds That which is true in everything. That which is in every
 atom, everywhere present, the essence of all things, the God of this
 universe — know that thou art He, know that thou art free.
 
-</div>
+

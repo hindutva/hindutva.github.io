@@ -2,13 +2,13 @@
 title: CHAPTER XII
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Excerpts from Sister
 Nivedita's Book](excerpts_from_sister_niveditas_book_contents.htm) /
 
-[←](chapter_xi.htm)
+
 
 ## CHAPTER XII
 
@@ -129,7 +129,7 @@ he could be with us for a few days before leaving for Ganderbal.
 
 [→](concluding_words.htm)
 
-</div>
+
 
 1.  [^](#fn1_1)Sanâtana, the famous Sannyâsin disciple of Shri Chaitanya
     of Bengal who gave up his office of minister to the nawab of Bengal

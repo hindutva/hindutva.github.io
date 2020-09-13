@@ -2,12 +2,9 @@
 title: 'LIGHT '
 
 ---
-<div>
 
-[←](thou_blessed_dream.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Writings:
-Poems](writings_poems_contents.htm) / [→](the_living_god.htm)
+
+
 
   
 
@@ -22,4 +19,4 @@ And find that all is right,
 In my deepest sorrows  
 There is a soul of light.
 
-</div>
+

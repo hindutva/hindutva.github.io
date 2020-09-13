@@ -2,17 +2,13 @@
 title: XXV
 
 ---
-<div>
 
-[←](24_kali.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Epistles – Third
-Series](epistles_third_series_contents.htm) / [→](26_brahmananda.htm)
+
+
 
   
 
-[«](../../volume_6/epistles_second_series/056_dear_and_beloved.htm)
-Chronology [»](26_brahmananda.htm)  
+  
 Addressee [»](../../volume_9/letters_fifth_series/114_shivananda.htm)
 
 ## XXV
@@ -148,4 +144,4 @@ Yours ever,
 
 VIVEKANANDA.
 
-</div>
+

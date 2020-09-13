@@ -2,19 +2,14 @@
 title: CLXXIX
 
 ---
-<div>
 
-[←](178_mary.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Epistles – Fourth
-Series](epistles_fourth_series_contents.htm) / [→](180_nivedita.htm)
+
+
 
   
 
-[«](../../volume_7/epistles_third_series/52_aunt_roxy.htm) Chronology
-[»](../../volume_9/letters_fifth_series/166_margot.htm)  
-[«](171_margot.htm) Addressee
-[»](../../volume_9/letters_fifth_series/166_margot.htm)
+  
+
 
 ## CLXXIX
 
@@ -53,4 +48,4 @@ of it. She is well known; find out her address.
 
 V.
 
-</div>
+

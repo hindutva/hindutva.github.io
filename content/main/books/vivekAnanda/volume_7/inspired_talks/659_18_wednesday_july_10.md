@@ -4,12 +4,9 @@ title: 'RECORDED BY MISS S. E. WALDO
   (A DISCIPLE)'
 
 ---
-<div>
 
-[←](17_tuesday_july_9.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Inspired
-Talks](inspired_talks_contents.htm) / [→](19_thursday_july_11.htm)
+
+
 
   
 
@@ -104,4 +101,4 @@ to Brahman" — where alone love and truth are.
     applied to the order because of their habitual use of this special
     drug to fortify the murderers for their task.
 
-</div>
+

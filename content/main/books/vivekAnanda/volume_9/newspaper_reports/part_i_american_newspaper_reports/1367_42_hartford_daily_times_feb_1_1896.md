@@ -2,7 +2,7 @@
 title: '"UNIVERSAL RELIGION"'
 
 ---
-<div>
+
 
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
@@ -10,11 +10,7 @@ title: '"UNIVERSAL RELIGION"'
 Reports](../newspaper_reports_contents.htm) / [American Newspaper
 Reports](american_newspaper_contents.htm) /
 
-[←](41_ny_herald_jan_19_1896.htm)
 
-## "UNIVERSAL RELIGION"
-
-(*New Discoveries*, Vol. 3, pp. 475-79.)
 
 Vivekananda's Lecture on the Creeds of the World
 
@@ -119,4 +115,4 @@ be with you.
 
 [→](43_tribune_mar_5_1896.htm)
 
-</div>
+

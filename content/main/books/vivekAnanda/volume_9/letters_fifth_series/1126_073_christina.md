@@ -2,15 +2,13 @@
 title: LXXIII
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
 
-[←](072_mckindley.htm)  
-[←Chronology](../../volume_8/epistles_fourth_series/062_joe_joe.htm)  
-[←Addressee](069_christina.htm)
+
 
 ## LXXIII
 
@@ -45,4 +43,4 @@ and sends his loving regards for you.
 [Addressee→](074_christina.htm)  
 [Chronology→](../../volume_8/epistles_fourth_series/063_sturdy.htm)
 
-</div>
+

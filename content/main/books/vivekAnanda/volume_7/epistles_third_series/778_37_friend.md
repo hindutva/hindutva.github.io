@@ -2,26 +2,14 @@
 title: XXXVII
 
 ---
-<div>
 
-[←](36_miss_noble.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Epistles – Third
-Series](epistles_third_series_contents.htm) / [→](38_sharat_chandra.htm)
+
+
 
   
 
-[«](../../volume_6/epistles_second_series/102_frankincense.htm)
-Chronology [»](../../volume_9/letters_fifth_series/093_sir.htm)  
-[«](28_brother.htm) Addressee
+  
 
-## XXXVII
-
-63 ST. GEORGE'S ROAD,  
-LONDON, S.W.  
-*6th July, 1896*.
-
-DEAR FRIEND AND BROTHER, (To Dr. Lewis I. Janes.)
 
 Yours of the 25th June has duly reached and gave me great pleasure. I am
 so glad to see the noble work progressing. I had learnt with the
@@ -43,4 +31,4 @@ Yours ever in the truth,
 
 VIVEKANANDA.
 
-</div>
+

@@ -2,13 +2,9 @@
 title: INTRODUCTION
 
 ---
-<div>
 
-[←](raja-yoga_in_brief.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-1](../complete_works_v1_contents.htm) /
-[Raja-Yoga](raja-yoga_contents.htm)
-/ [→](concentration_its_spiritual_uses.htm)
+
+
 
   
 
@@ -162,4 +158,4 @@ something that will take us beyond the world. "Thou art our father, and
 wilt take us to the other shore of this ocean of ignorance." That is the
 science of religion, nothing else.
 
-</div>
+

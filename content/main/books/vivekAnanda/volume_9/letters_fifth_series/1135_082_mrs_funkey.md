@@ -2,18 +2,13 @@
 title: LXXXII
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
 
-[←](081_mrs_bull.htm)  
-[←Chronology](../../volume_8/epistles_fourth_series/067_sister.htm)
-
-## LXXXII
-
-*To Mrs. Charles (Mary) Funke*
+ Funke*
 
 228 W. 39  
 NEW YORK,
@@ -39,4 +34,4 @@ VIVEKANANDA
 [Addressee→  
 ](089_mrs_funkey.htm)[Chronology→](083_mrs_bull.htm)
 
-</div>
+

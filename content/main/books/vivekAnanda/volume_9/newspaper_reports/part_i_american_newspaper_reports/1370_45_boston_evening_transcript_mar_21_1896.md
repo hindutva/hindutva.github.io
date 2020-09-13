@@ -2,7 +2,7 @@
 title: PHILOSOPHY OF FREEDOM
 
 ---
-<div>
+
 
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
@@ -10,11 +10,7 @@ title: PHILOSOPHY OF FREEDOM
 Reports](../newspaper_reports_contents.htm) / [American Newspaper
 Reports](american_newspaper_contents.htm) /
 
-[←](44_news_tribune_mar_16_1896.htm)
 
-## PHILOSOPHY OF FREEDOM
-
-(*New Discoveries*, Vol. 4, pp. 56-58.)
 
 \[*Boston Evening Transcript*, March 21, 1896\]
 
@@ -81,4 +77,4 @@ dogmas; truth, at length, must inevitably prevail. . . .
 
 [→](46_boston_daily_globe_mar_24_1896.htm)
 
-</div>
+

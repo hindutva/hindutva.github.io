@@ -2,13 +2,9 @@
 title: A HYMN TO SHRI RAMAKRISHNA
 
 ---
-<div>
 
-[←](to_shri_krishna.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Writings:
-Poems](writings_poems_contents.htm)
-/ [→](a_hymn_to_shri_ramakrishna.htm)
+
+
 
   
 
@@ -59,4 +55,4 @@ auspicious, converts sinfulness to purity. Because, O Thou the only goal
 of all beings, shelter have I none, therefore Thou art, O friend of the
 lowly, my only refuge.
 
-</div>
+

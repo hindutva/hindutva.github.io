@@ -4,12 +4,9 @@ title: 'RECORDED BY MISS S. E. WALDO
   (A DISCIPLE)'
 
 ---
-<div>
 
-[←](29_sunday_july_21.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Inspired
-Talks](inspired_talks_contents.htm) / [→](31_wednesday_july_24.htm)
+
+
 
   
 
@@ -93,4 +90,4 @@ the rope", delusion cannot touch the Atman. When we lay hold of the rope
 the Witness only, then you can admire the picture of the universe
 undisturbed.
 
-</div>
+

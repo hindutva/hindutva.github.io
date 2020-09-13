@@ -2,21 +2,13 @@
 title: AN UNFINISHED POEM
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) /[Writings: Prose and
 Poems](writings_prose_and_poems_contents.htm) /
 
-[←](an_untitled_poem.htm)
 
-## AN UNFINISHED POEM
-
-(*New Discoveries*, Vol. 3. p. 490. This undated poem is preserved in
-the archives of the Vedanta Centre, Cohasset, Massachusetts. Cf. "My
-Play is Done", *[Complete
-Works](../../volume_6/writings_prose_and_poems/my_play_is_done.htm)* ,
-VI.)
 
 From life to life I am waiting here at the gates — they
 
@@ -54,4 +46,4 @@ On the other this wall . . .
 
 [→](bhartriharis_verses.htm)
 
-</div>
+

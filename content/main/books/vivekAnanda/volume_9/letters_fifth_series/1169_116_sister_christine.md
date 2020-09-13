@@ -2,15 +2,13 @@
 title: CXVI
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
 
-[←](115_christina.htm)  
-[←Chronology](../../volume_8/epistles_fourth_series/120_shivananda.htm)  
-[←Addressee](115_christina.htm)
+
 
 ## CXVI
 
@@ -43,4 +41,4 @@ VIVEKANANDA.
 [Addressee→](118_christina.htm)  
 [Chronology→](117_miss_noble.htm)
 
-</div>
+

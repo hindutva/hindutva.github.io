@@ -2,13 +2,9 @@
 title: REINCARNATION
 
 ---
-<div>
 
-[←](personal_traits.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-3](../volume_3_contents.htm) / [Reports in American
-Newspapers](reports_in_american_newspapers_contents.htm)
-/ [→](hindu_civilisation.htm)
+
+
 
   
 
@@ -62,4 +58,4 @@ eight, and continuing in this way he will at length approach the acme of
 perfection, divinity, and will be allowed to drink deep of oblivion in
 the "Islands of the Blest".
 
-</div>
+

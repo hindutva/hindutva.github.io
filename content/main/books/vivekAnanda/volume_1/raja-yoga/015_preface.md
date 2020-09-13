@@ -2,12 +2,9 @@
 title: PREFACE
 
 ---
-<div>
 
-[←](../karma-yoga/the_ideal.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-1](../complete_works_v1_contents.htm)
-/ [Raja-Yoga](raja-yoga_contents.htm) / [→](introductory.htm)
+
+
 
   
 
@@ -99,4 +96,4 @@ by one, or more, or all of these — and be free.
 This is the whole of religion. Doctrines, or dogmas, or rituals, or
 books, or temples, or forms, are but secondary details.
 
-</div>
+

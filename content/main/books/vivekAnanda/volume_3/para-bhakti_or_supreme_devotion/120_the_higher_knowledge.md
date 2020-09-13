@@ -4,13 +4,9 @@ title: 'THE HIGHER KNOWLEDGE AND THE HIGHER LOVE ARE ONE TO THE TRUE
   LOVER'
 
 ---
-<div>
 
-[←](universal_love_and_how_it_leads_to_self-surrender.htm)
-[Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
-/ [Volume 3](../volume_3_contents.htm) / [Para-Bhakti or Supreme
-Devotion](para-bhakti_or_supreme_devotion_contents.htm)
-/ [→](the_triangle_of_love.htm)
+
+
 
   
 
@@ -66,4 +62,4 @@ manifestation of love that may be seen in the world. Such love, working
 itself out on the plane of spirituality, necessarily leads to the
 attainment of Para-Bhakti.
 
-</div>
+

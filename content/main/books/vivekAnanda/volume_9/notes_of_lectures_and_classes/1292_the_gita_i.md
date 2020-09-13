@@ -2,19 +2,13 @@
 title: THE GITA — I
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Notes of Lectures and
 Classes](notes_of_lectures_and_classes_contents.htm) /
 
-[←](the_gita.htm)
 
-## THE GITA — I
-
-(*New Discoveries*, Vol. 6, pp. 205-7. Cf. Ida Ansell's notes of "The
-Gita I", *[Complete
-Works](../../volume_1/lectures_and_discourses/the_gita_i.htm)*, I.)
 
 *\[Mr. Frank Rhodehamel's notes of a Bhagavad-Gitâ lecture delivered
 Saturday, May 26, 1900, in San Francisco, California\]*
@@ -92,4 +86,4 @@ time. Nature will then be nothing to you."
 
 [→](the_gita_iii.htm)
 
-</div>
+

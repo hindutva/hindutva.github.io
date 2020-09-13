@@ -2,13 +2,9 @@
 title: THE ADVAITA ASHRAMA, HIMALAYAS
 
 ---
-<div>
 
-[←](the_belur_math_an_appeal.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Writings: Prose and
-Poems](writings_prose_and_poems_contents.htm)
-/ [→](the_ramakrishna_home_of_service_varanasi.htm)
+
+
 
   
 
@@ -47,4 +43,4 @@ the Doctrine of Unity, pure and simple; and though in entire sympathy
 with all other systems, this Ashrama is dedicated to Advaita and Advaita
 alone.
 
-</div>
+

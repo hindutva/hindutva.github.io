@@ -2,18 +2,14 @@
 title: CLXIII
 
 ---
-<div>
 
-[←](162_mary.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Epistles – Fourth
-Series](epistles_fourth_series_contents.htm) / [→](164_mary.htm)
+
+
 
   
 
-[«](162_mary.htm) Chronology
-[»](../../volume_9/letters_fifth_series/164_christina.htm)  
-[«](159_dhira_mata.htm) Addressee [»](170_dhira_mata.htm)
+  
+
 
 ## CLXIII
 
@@ -57,4 +53,4 @@ PS. Kindly tell Mrs. Leggett that my address for some weeks now will be,
 
 V.
 
-</div>
+

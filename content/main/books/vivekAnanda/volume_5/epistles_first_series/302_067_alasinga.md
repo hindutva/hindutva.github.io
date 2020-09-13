@@ -2,18 +2,14 @@
 title: LXVII
 
 ---
-<div>
 
-[←](066_nanjunda_rao.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Epistles – First
-Series](epistles_first_series_contents.htm) / [→](068_alasinga.htm)
+
+
 
   
 
-[«](../../volume_8/epistles_fourth_series/085_sister.htm) Chronology
-[»](../../volume_9/letters_fifth_series/099_christina.htm)  
-[«](064_alasinga.htm) Addressee [»](068_alasinga.htm)
+  
+
 
 ## LXVII
 
@@ -69,4 +65,4 @@ Yours with love,
 
 VIVEKANANDA.
 
-</div>
+

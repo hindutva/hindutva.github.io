@@ -2,12 +2,9 @@
 title: volume 7/epistles third seriesnote
 
 ---
-<div>
 
-[←](../notes_of_class_talks_and_lectures/notes_of_lectures/the_science_of_yoga.htm)
-[Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
-/ [Volume 7](../volume_7_contents.htm) / [Epistles – Third
-Series](epistles_third_series_contents.htm) / [→](01_sir.htm)
+
+
 
   
 
@@ -20,4 +17,4 @@ readers, these volumes use the more familiar name Vivekananda.
 
 PUBLISHER
 
-</div>
+

@@ -2,13 +2,9 @@
 title: ON LORD BUDDHA
 
 ---
-<div>
 
-[←](the_great_teachers_of_the_world.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-4](../volume_4_contents.htm) / [Lectures and
-Discourses](lectures_and_discourses_contents.htm)
-/ [→](christ_the_messenger.htm)
+
+
 
   
 
@@ -74,4 +70,4 @@ not come from belief or faith. Talk does not count for anything. Parrots
 can do that. Perfection comes through the disinterested performance of
 action.
 
-</div>
+

@@ -2,14 +2,9 @@
 title: ON MANTRA AND MANTRA-CHAITANYA
 
 ---
-<div>
 
-[←](on_music.htm) [Home](../../../../index.htm) /
-[Complete-Works](../../../complete_works.htm) / [Volume
-7](../../volume_7_contents.htm) / [Notes of Class Talks and
-Lectures](../notes_of_class_talks_and_lectures_contents.htm) / [Notes of
-Class Talks](notes_of_class_talks_contents.htm)
-/ [→](on_conceptions_of_godhead.htm)
+
+
 
   
 
@@ -38,4 +33,4 @@ sacrifices, when they will surely produce effect in the form of various
 material enjoyments or spiritual knowledge. The latter arises from the
 utterance of the Upanishads.
 
-</div>
+

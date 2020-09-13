@@ -2,13 +2,9 @@
 title: HINDUS AT THE FAIR
 
 ---
-<div>
 
-[←](india_her_religion_and_customs.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-3](../volume_3_contents.htm) / [Reports in American
-Newspapers](reports_in_american_newspapers_contents.htm)
-/ [→](at_the_parliament_of_religions.htm)
+
+
 
   
 
@@ -97,4 +93,4 @@ Theosophists, he answered with the simple statement, "I have never met
 one of them," as much as to imply, "There may be such persons, but
 though I am at home in the Himalayas, I have yet to come across them."
 
-</div>
+

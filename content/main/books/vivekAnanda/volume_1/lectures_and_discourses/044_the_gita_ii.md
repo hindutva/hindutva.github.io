@@ -2,13 +2,9 @@
 title: THE GITA II
 
 ---
-<div>
 
-[←](the_gita_i.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-1](../complete_works_v1_contents.htm) / [Lectures and
-Discourses](lectures_and_discourses_contents.htm)
-/ [→](the_gita_iii.htm)
+
+
 
   
 
@@ -238,4 +234,4 @@ nature, the ocean-like heart of the sage knows no disturbance, knows no
 fear." (Ibid. 70.) Let miseries come in millions of rivers and happiness
 in hundreds! I am no slave to misery! I am no slave to happiness!
 
-</div>
+

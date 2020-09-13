@@ -2,19 +2,14 @@
 title: CII
 
 ---
-<div>
 
-[←](101_shashi.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Epistles – Second
-Series](epistles_second_series_contents.htm) / [→](103_mrs_bull.htm)
+
+
 
   
 
-[«](101_shashi.htm) Chronology
-[»](../../volume_7/epistles_third_series/37_friend.htm)  
-[«](../../volume_9/letters_fifth_series/067_friend.htm) Addressee
-[»](../../volume_9/letters_fifth_series/093_sir.htm)
+  
+
 
 ## CII
 
@@ -91,4 +86,4 @@ the cup and we will be mad.
 Yours ever in madness,  
 VIVEKANANDA.
 
-</div>
+

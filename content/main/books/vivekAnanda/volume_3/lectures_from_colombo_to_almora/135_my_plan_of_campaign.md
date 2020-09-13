@@ -2,13 +2,9 @@
 title: MY PLAN OF CAMPAIGN
 
 ---
-<div>
 
-[←](reply_to_the_address_of_welcome_at_madras.htm)
-[Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
-/ [Volume 3](../volume_3_contents.htm) / [Lectures from Colombo to
-Almora](lectures_from_colombo_to_almora_contents.htm)
-/ [→](vedanta_in_its_applications_to_indian_life.htm)
+
+
 
   
 
@@ -636,4 +632,4 @@ India, I will come back and tell you that we are all sinking! I am come
 now to sit in your midst, and if we are to sink, let us all sink
 together, but never let curses rise to our lips.
 
-</div>
+

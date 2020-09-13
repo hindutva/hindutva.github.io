@@ -2,18 +2,14 @@
 title: CLVIII
 
 ---
-<div>
 
-[←](157_mary.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Epistles – Fourth
-Series](epistles_fourth_series_contents.htm) / [→](159_dhira_mata.htm)
+
+
 
   
 
-[«](../../volume_6/epistles_second_series/155_nivedita.htm) Chronology
-[»](159_dhira_mata.htm)  
-[«](155_dhira_mata.htm) Addressee [»](159_dhira_mata.htm)
+  
+
 
 ## CLVIII
 
@@ -59,4 +55,4 @@ With everlasting love and gratitude.
 Your son,  
 VIVEKANANDA.
 
-</div>
+

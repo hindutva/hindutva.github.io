@@ -2,13 +2,9 @@
 title: ON FANATICISM
 
 ---
-<div>
 
-[←](on_karma-yoga.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Notes from Lectures and
-Discourses](notes_from_lectures_and_discourses_contents.htm)
-/ [→](work_is_worship.htm)
+
+
 
   
 
@@ -97,4 +93,4 @@ How did the writer know all these things? She had been inspired, and
 wanted me to believe it too; and because I refused, she said, "You must
 be a very bad man; there is no hope for you!" This is fanaticism.
 
-</div>
+

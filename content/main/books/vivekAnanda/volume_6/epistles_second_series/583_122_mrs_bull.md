@@ -2,19 +2,14 @@
 title: CXXII
 
 ---
-<div>
 
-[←](121_mary.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Epistles – Second
-Series](epistles_second_series_contents.htm) / [→](123_mary.htm)
+
+
 
   
 
-[«](../../volume_9/letters_fifth_series/104_gentlemen.htm) Chronology
-[»](../../volume_9/letters_fifth_series/105_christina.htm)  
-[«](118_mrs_bull.htm) Addressee
-[»](../../volume_9/letters_fifth_series/106_mrs_bull.htm)
+  
+
 
 ## CXXII
 
@@ -68,4 +63,4 @@ Yours etc.,
 
 VIVEKANANDA.
 
-</div>
+

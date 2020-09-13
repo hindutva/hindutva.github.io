@@ -2,19 +2,14 @@
 title: LXXIX
 
 ---
-<div>
 
-[←](078_rakhal.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Epistles – Second
-Series](epistles_second_series_contents.htm) / [→](080_mrs_bull.htm)
+
+
 
   
 
-[«](../../volume_8/epistles_fourth_series/052_joe_joe.htm) Chronology
-[»](080_mrs_bull.htm)  
-[«](../../volume_9/letters_fifth_series/070_mother.htm) Addressee
-[»](080_mrs_bull.htm)
+  
+
 
 ## LXXIX
 
@@ -36,4 +31,4 @@ on. I have a great chance of such a few.
 
 VIVEKANANDA.
 
-</div>
+

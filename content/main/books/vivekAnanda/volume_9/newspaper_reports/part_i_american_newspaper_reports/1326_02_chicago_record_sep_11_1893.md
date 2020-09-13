@@ -2,7 +2,7 @@
 title: PARLOR TALK
 
 ---
-<div>
+
 
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
@@ -10,18 +10,7 @@ title: PARLOR TALK
 Reports](../newspaper_reports_contents.htm) / [American Newspaper
 Reports](american_newspaper_contents.htm) /
 
-[←](01_chicago_newspapers_sep_11_1893.htm)
-
-## PARLOR TALK
-
-(*New Discoveries*.)
-
-\[*Chicago Record,* September 11, 1893\]
-
-Four leaders of religious thought were sitting in Dr. Barrow's
-\[Barrows's\] parlor — the Jain, George Condin \[Candlin\], the
-missionary who has passed sixteen years in China, Swami Vivekananda, the
-learned Brahman (The Swami was a Kshatriya, not a Brahmin.) Hindoo, and
+ Hindoo, and
 Dr. John H. Barrows, the Chicago Presbyterian. These four talked as if
 they were brothers of one faith.[1](#fn1)
 
@@ -39,7 +28,7 @@ some great truths to our 15,000,000 faithful Brahmins.
 
 [→](03_chicago_inter_ocean_sep_21_1893.htm)
 
-</div>
+
 
 1.  [^](#fn1_1)An unidentified talk (probably occurring on Sunday,
     September 10), of which there is no verbatim transcript available.

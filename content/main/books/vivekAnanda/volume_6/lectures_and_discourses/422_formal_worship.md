@@ -2,12 +2,9 @@
 title: FORMAL WORSHIP
 
 ---
-<div>
 
-[←](worshipper_and_worshipped.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Lectures and
-Discourses](lectures_and_discourses_contents.htm) / [→](divine_love.htm)
+
+
 
   
 
@@ -348,4 +345,4 @@ into twenty million hells. I only want one thing: Be Thou my love!"
 
 (*Vedanta and the West*, Nov.-Dec. 1955)
 
-</div>
+

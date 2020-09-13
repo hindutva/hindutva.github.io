@@ -2,18 +2,14 @@
 title: LXXI
 
 ---
-<div>
 
-[←](070_indian_mirror.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Epistles – First
-Series](epistles_first_series_contents.htm) / [→](072_alasinga.htm)
+
+
 
   
 
-[«](../../volume_6/epistles_second_series/112_mary.htm) Chronology
-[»](../../volume_6/epistles_second_series/113_mrs_bull.htm)  
-[«](069_alasinga.htm) Addressee [»](072_alasinga.htm)
+  
+
 
 ## LXXI
 
@@ -45,4 +41,4 @@ press. India and America are the biggest buyers.
 
 V.
 
-</div>
+

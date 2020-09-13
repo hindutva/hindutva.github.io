@@ -2,7 +2,7 @@
 title: A BENGALI SADHU1
 
 ---
-<div>
+
 
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
@@ -10,9 +10,7 @@ title: A BENGALI SADHU1
 Reports](../newspaper_reports_contents.htm) / [Indian Newspaper
 Reports](indian_newspaper_contents.htm) /
 
-[←](../part_ii_european_newspaper_reports/light_oct_28_1896.htm)
 
-## A BENGALI SADHU[1](#fn1)
 
 \[*Madura Mail*, January 28, 1893\]
 
@@ -131,7 +129,7 @@ Sudras.
 
 [→](02_the_indian_mirror_nov_28_1893.htm)
 
-</div>
+
 
 1.  [^](#fn1_1)Basu, Sri Sankari Prasad, "Swami Vivekananda in Madras:
     1892-1893 — Some New Findings", Prabuddha Bharata, 1974, pp. 296-98.

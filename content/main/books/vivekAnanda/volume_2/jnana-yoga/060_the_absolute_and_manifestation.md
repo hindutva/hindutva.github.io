@@ -2,12 +2,9 @@
 title: THE ABSOLUTE AND MANIFESTATION
 
 ---
-<div>
 
-[←](maya_and_freedom.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-2](../volume_2_contents.htm) / [Jnana-Yoga](jnana-yoga_contents.htm)
-/ [→](god_in_everything.htm)
+
+
 
   
 
@@ -427,4 +424,4 @@ that is our goal. We want harmony, not one-sided development. And it is
 possible to have the intellect of a Shankara with the heart of a Buddha.
 I hope we shall all struggle to attain to that blessed combination.
 
-</div>
+

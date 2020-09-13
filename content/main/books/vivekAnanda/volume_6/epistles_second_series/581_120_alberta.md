@@ -2,18 +2,14 @@
 title: CXX
 
 ---
-<div>
 
-[←](119_frankincense.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Epistles – Second
-Series](epistles_second_series_contents.htm) / [→](121_mary.htm)
+
+
 
   
 
-[«](119_frankincense.htm) Chronology
-[»](../../volume_8/epistles_fourth_series/087_rakhal.htm)  
-[«](117_alberta.htm) Addressee [»](164_alberta.htm)
+  
+
 
 ## CXX
 
@@ -30,4 +26,4 @@ With all love and blessings,
 
 VIVEKANANDA.
 
-</div>
+

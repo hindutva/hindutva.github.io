@@ -2,13 +2,9 @@
 title: THE HINDOO RELIGION
 
 ---
-<div>
 
-[←](an_interesting_lecture.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-3](../volume_3_contents.htm) / [Reports in American
-Newspapers](reports_in_american_newspapers_contents.htm)
-/ [→](the_hindoo_monk.htm)
+
+
 
   
 
@@ -91,4 +87,4 @@ They seek to eject and trample those who do not believe as they do.
     captured enough of it to enable the reader who is familiar with
     Swamiji's thought to comprehend his meaning.
 
-</div>
+

@@ -2,13 +2,9 @@
 title: ADDRESS AT THE FINAL SESSION
 
 ---
-<div>
 
-[←](v1_c1_buddhism.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-1](../complete_works_v1_contents.htm) / [Addresses at The Parliament of
-Religions](addresses_at_the_parliament.htm) /
-[→](../karma-yoga/effect_on_character.htm)
+
+
 
   
 
@@ -59,4 +55,4 @@ religion will soon be written, in spite of resistance: "Help and not
 Fight," "Assimilation and not Destruction," "Harmony and Peace and not
 Dissension."
 
-</div>
+

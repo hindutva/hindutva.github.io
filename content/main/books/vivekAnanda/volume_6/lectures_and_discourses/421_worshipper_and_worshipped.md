@@ -2,13 +2,9 @@
 title: WORSHIPPER AND WORSHIPPED
 
 ---
-<div>
 
-[←](the_vedanta_philosophy_and_christianity.htm)
-[Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
-/ [Volume 6](../volume_6_contents.htm) / [Lectures and
-Discourses](lectures_and_discourses_contents.htm)
-/ [→](formal_worship.htm)
+
+
 
   
 
@@ -318,4 +314,4 @@ is \[the soul\] to attain this perfection? By worship.
 
 (*Vedanta and the West*, July-Aug. 1955).
 
-</div>
+

@@ -2,13 +2,9 @@
 title: THE NEED OF SYMBOLS
 
 ---
-<div>
 
-[←](the_teacher_of_spirituality.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-4](../volume_4_contents.htm) / [Addresses on
-Bhakti-Yoga](addresses_on_bhakti-yoga_contents.htm)
-/ [→](the_chief_symbols.htm)
+
+
 
   
 
@@ -219,4 +215,4 @@ same as thinking, I will become a millionaire and lord it over people.
 There are many of these heavens, but through them you cannot gain the
 right to enter the gates of religion and love.
 
-</div>
+

@@ -2,15 +2,13 @@
 title: CLXV
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
 
-[←](164_christina.htm)  
-[←Chronology](../../volume_8/epistles_fourth_series/173_dhira_mata.htm)  
-[←Addressee](164_christina.htm)
+
 
 ## CLXV
 
@@ -40,4 +38,4 @@ VIVEKANANDA.
 [Addressee→](169_christina.htm)  
 [Chronology→](../../volume_8/epistles_fourth_series/174_joe.htm)
 
-</div>
+

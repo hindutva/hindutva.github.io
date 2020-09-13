@@ -2,13 +2,9 @@
 title: VEDIC TEACHING IN THEORY AND PRACTICE
 
 ---
-<div>
 
-[←](address_of_welcome_at_almora_and_reply.htm)
-[Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
-/ [Volume 3](../volume_3_contents.htm) / [Lectures from Colombo to
-Almora](lectures_from_colombo_to_almora_contents.htm)
-/ [→](bhakti_1.htm)
+
+
 
   
 
@@ -54,4 +50,4 @@ attentive hearers, when all details and personalities were lost, names
 and forms disappeared, only the Spirit remaining, uniting the speaker,
 hearer, and the spoken word.
 
-</div>
+

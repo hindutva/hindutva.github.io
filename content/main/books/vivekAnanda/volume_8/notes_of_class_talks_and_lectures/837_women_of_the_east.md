@@ -2,13 +2,9 @@
 title: WOMEN OF THE EAST
 
 ---
-<div>
 
-[←](pranayama.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Notes of Class Talks and
-Lectures](notes_of_class_talks_and_lectures_contents.htm)
-/ [→](congress_of_religious_unity.htm)
+
+
 
   
 
@@ -70,4 +66,4 @@ beautiful characteristics and at the same time develop the intellects of
 our women, the Hindu woman of the future will be the ideal woman of the
 world."
 
-</div>
+

@@ -4,12 +4,9 @@ title: 'RECORDED BY MISS S. E. WALDO
   (A DISCIPLE)'
 
 ---
-<div>
 
-[←](28_saturday_july_20.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Inspired
-Talks](inspired_talks_contents.htm) / [→](30_tuesday_july_23.htm)
+
+
 
   
 
@@ -81,4 +78,4 @@ worshipper; the Mantra is the external word to express it. Constant
 repetition of the word helps to fix the ideal firmly in the mind. This
 method of worship prevails among religious devotees all over India.
 
-</div>
+

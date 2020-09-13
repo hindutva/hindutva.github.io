@@ -2,26 +2,17 @@
 title: XLIV
 
 ---
-<div>
 
-[←](043_sisters.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Epistles – Second
-Series](epistles_second_series_contents.htm) / [→](045_brothers.htm)
+
+
 
   
 
-[«](../../volume_8/epistles_fourth_series/024_babies.htm) Chronology
-[»](045_brothers.htm)  
-[«](../../volume_8/epistles_fourth_series/024_babies.htm) Both Sisters
-[»](../../volume_8/epistles_fourth_series/025_sisters.htm)  
-[«](../../volume_8/epistles_fourth_series/024_babies.htm) Mary or
-Harriet Hale
-[»](../../volume_8/epistles_fourth_series/025_sisters.htm)  
-[«](../../volume_8/epistles_fourth_series/024_babies.htm) Harriet Hale
-[»](../../volume_8/epistles_fourth_series/025_sisters.htm)  
-[«](../../volume_8/epistles_fourth_series/024_babies.htm) Mary Hale
-[»](../../volume_8/epistles_fourth_series/025_sisters.htm)
+  
+  
+  
+  
+
 
 ## XLIV
 
@@ -139,4 +130,4 @@ Yours with all blessings,
 
 VIVEKANANDA.
 
-</div>
+

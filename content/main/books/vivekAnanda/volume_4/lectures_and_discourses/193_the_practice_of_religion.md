@@ -2,13 +2,9 @@
 title: THE PRACTICE OF RELIGION
 
 ---
-<div>
 
-[←](meditation.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-4](../volume_4_contents.htm) / [Lectures and
-Discourses](lectures_and_discourses_contents.htm)
-/ [→](../writings_prose/is_the_soul_immortal.htm)
+
+
 
   
 
@@ -387,4 +383,4 @@ is — the unborn, the deathless, and birthless being. No more is there
 any misery, no more births upon this earth, no more evolution. \[The
 soul knows itself as having\] ever been perfect and free.
 
-</div>
+

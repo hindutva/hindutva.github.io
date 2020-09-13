@@ -2,13 +2,9 @@
 title: ON KARMA-YOGA
 
 ---
-<div>
 
-[←](../interviews/on_the_bounds_of_hinduism.htm)
-[Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
-/ [Volume 5](../volume_5_contents.htm) / [Notes from Lectures and
-Discourses](notes_from_lectures_and_discourses_contents.htm)
-/ [→](on_fanaticism.htm)
+
+
 
   
 
@@ -121,4 +117,4 @@ miserable life, and everything will be a failure. But that man who does
 his duty as he goes, putting, his shoulder to the wheel, will see the
 light, and higher and higher duties will fall to his share.
 
-</div>
+

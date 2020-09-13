@@ -2,19 +2,14 @@
 title: CLIII
 
 ---
-<div>
 
-[←](152_margot.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Epistles – Second
-Series](epistles_second_series_contents.htm) / [→](154_akhandananda.htm)
+
+
 
   
 
-[«](../../volume_9/letters_fifth_series/162_margo.htm) Chronology
-[»](../../volume_8/epistles_fourth_series/155_dhira_mata.htm)  
-[«](../../volume_9/letters_fifth_series/162_margo.htm) Addressee
-[»](155_nivedita.htm)
+  
+
 
 ## CLIII
 
@@ -85,4 +80,4 @@ chapter.
 With all love,  
 VIVEKANANDA.
 
-</div>
+

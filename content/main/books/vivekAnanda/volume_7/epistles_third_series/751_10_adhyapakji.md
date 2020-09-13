@@ -2,18 +2,14 @@
 title: X
 
 ---
-<div>
 
-[←](09_adhyapakji.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Epistles – Third
-Series](epistles_third_series_contents.htm)
-/ [→](11_mrs_tannatt_woods.htm)
+
+
 
   
 
-[«](09_adhyapakji.htm) Chronology [»](11_mrs_tannatt_woods.htm)  
-[«](09_adhyapakji.htm) Addressee [»](12_adhyapakji.htm)
+  
+
 
 ## X
 
@@ -142,4 +138,4 @@ Your ever grateful friend,
 
 VIVEKANANDA.
 
-</div>
+

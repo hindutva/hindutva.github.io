@@ -4,12 +4,9 @@ title: 'RECORDED BY MISS S. E. WALDO
   (A DISCIPLE)'
 
 ---
-<div>
 
-[←](19_thursday_july_11.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Inspired
-Talks](inspired_talks_contents.htm) / [→](21_saturday_july_13.htm)
+
+
 
   
 
@@ -88,4 +85,4 @@ will arise, and the result will become visible. "Thought is the power of
 the word, the word is the expression of the thought," say Mimâmsakas, a
 Hindu philosophical sect.
 
-</div>
+

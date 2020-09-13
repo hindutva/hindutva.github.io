@@ -4,13 +4,9 @@ title: 'THE WAY TO THE REALISATION OF
   A UNIVERSAL RELIGION'
 
 ---
-<div>
 
-[←](practical_vedanta_part_iv.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-2](../volume_2_contents.htm) / [Practical Vedanta and other
-lectures](practical_vedanta_and_other_lectures_contents.htm)
-/ [→](the_ideal_of_a_universal_religion.htm)
+
+
 
   
 
@@ -489,4 +485,4 @@ and open every window of the heart for all that will come in the future.
 Salutation to all the prophets of the past, to all the great ones of the
 present, and to all that are to come in the future!
 
-</div>
+

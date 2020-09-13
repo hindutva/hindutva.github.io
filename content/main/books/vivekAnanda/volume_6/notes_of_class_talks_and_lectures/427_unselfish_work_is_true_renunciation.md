@@ -2,13 +2,9 @@
 title: UNSELFISH WORK IS TRUE RENUNCIATION
 
 ---
-<div>
 
-[←](religion_is_self-abnegation.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Notes of Class Talks and
-Lectures](notes_of_class_talks_and_lectures_contents.htm)
-/ [→](freedom_of_the_self.htm)
+
+
 
   
 
@@ -32,4 +28,4 @@ can keep calm in a cave or when asleep. Stand in the whirl and madness
 of action and reach the Centre. If you have found the Centre, you cannot
 be moved.
 
-</div>
+

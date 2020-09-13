@@ -2,13 +2,9 @@
 title: II
 
 ---
-<div>
 
-[←](discussion_at_the_graduate_philosophical.htm)
-[Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
-/ [Volume 5](../volume_5_contents.htm) / [Questions and
-Answers](questions_and_answers_contents.htm)
-/ [→](brooklyn_ethical_society.htm)
+
+
 
   
 
@@ -57,4 +53,4 @@ sacrifice and other reasons, and people drank wine and ate meat in large
 quantities. Since Buddha's teaching drunkenness has almost disappeared,
 and the killing of animals has almost gone.
 
-</div>
+

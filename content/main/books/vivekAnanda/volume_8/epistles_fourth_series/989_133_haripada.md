@@ -2,19 +2,14 @@
 title: CXXXIII
 
 ---
-<div>
 
-[←](132_mary.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Epistles – Fourth
-Series](epistles_fourth_series_contents.htm) / [→](134_haripada.htm)
+
+
 
   
 
-[«](../../volume_5/epistles_first_series/084_your_highness.htm)
-Chronology
-[»](../../volume_5/epistles_first_series/085_your_highness.htm)  
-[«](105_haripada.htm) Addressee [»](134_haripada.htm)
+  
+
 
 ## CXXXIII
 
@@ -51,4 +46,4 @@ foreign devotees. With best wishes,
 Yours affectionately,  
 VIVEKANANDA.
 
-</div>
+

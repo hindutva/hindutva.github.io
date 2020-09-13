@@ -2,19 +2,14 @@
 title: CLXXIII
 
 ---
-<div>
 
-[←](172_american_friend.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Epistles – Fourth
-Series](epistles_fourth_series_contents.htm) / [→](174_joe.htm)
+
+
 
   
 
-[«](172_american_friend.htm) Chronology
-[»](../../volume_9/letters_fifth_series/165_sister_christine.htm)  
-[«](170_dhira_mata.htm) Addressee
-[»](../../volume_9/letters_fifth_series/168_mother.htm)
+  
+
 
 ## CLXXIII
 
@@ -86,4 +81,4 @@ be hurt at that.
 
 V.
 
-</div>
+

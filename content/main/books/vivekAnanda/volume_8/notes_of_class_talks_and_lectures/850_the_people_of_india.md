@@ -2,13 +2,9 @@
 title: THE PEOPLE OF INDIA
 
 ---
-<div>
 
-[←](way_to_salvation.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Notes of Class Talks and
-Lectures](notes_of_class_talks_and_lectures_contents.htm)
-/ [→](i_am_that_i_am.htm)
+
+
 
   
 
@@ -82,4 +78,4 @@ in life, but, according to the Hindu way of thinking, marriage is rather
 a duty than a privilege, and the denial of the right of child widows to
 marry is no particular hardship.
 
-</div>
+

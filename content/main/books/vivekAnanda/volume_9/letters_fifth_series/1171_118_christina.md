@@ -2,15 +2,13 @@
 title: CXVIII
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
 
-[←](117_miss_noble.htm)  
-[←Chronology](../../volume_8/epistles_fourth_series/123_mary.htm)  
-[←Addressee](116_sister_christine.htm)
+
 
 ## CXVIII
 
@@ -64,4 +62,4 @@ cuts deep into the stone soul." — R. K. \[Ramakrishna\] Paramahamsa
 [Addressee→](127_christina.htm)  
 [Chronology→](119_margaret.htm)
 
-</div>
+

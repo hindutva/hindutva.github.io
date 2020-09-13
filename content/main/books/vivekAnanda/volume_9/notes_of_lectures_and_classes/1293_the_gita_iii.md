@@ -2,19 +2,13 @@
 title: THE GITA — III
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Notes of Lectures and
 Classes](notes_of_lectures_and_classes_contents.htm) /
 
-[←](the_gita_i.htm)
 
-## THE GITA — III
-
-(*New Discoveries*, Vol. 6, pp. 213-16. Cf. Ida Ansell's notes of "The
-Gita III", *[Complete
-Works](../../volume_1/lectures_and_discourses/the_gita_iii.htm)*, I.)
 
 *\[Mr. Frank Rhodehamel's notes of the Bhagavad-Gitâ lecture delivered
 Tuesday, May 29, 1900, in San Francisco, California\]*
@@ -114,4 +108,4 @@ that these so-called laws are broken shows clearly they are not laws.
 
 [→](gita_class.htm)
 
-</div>
+

@@ -2,13 +2,9 @@
 title: REPLY TO THE ADDRESS OF WELCOME AT PARAMAKUDI
 
 ---
-<div>
 
-[←](reply_to_the_address_of_welcome_at_ramnad.htm)
-[Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
-/ [Volume 3](../volume_3_contents.htm) / [Lectures from Colombo to
-Almora](lectures_from_colombo_to_almora_contents.htm)
-/ [→](reply_to_the_address_of_welcome_at_shivaganga_and_manamadura.htm)
+
+
 
   
 
@@ -239,4 +235,4 @@ of a Personal God such as were never attained anywhere else in the
 world. If a man wants to be a rationalist and satisfy his reason, it is
 also here that he can find the most rational ideas of the Impersonal.
 
-</div>
+

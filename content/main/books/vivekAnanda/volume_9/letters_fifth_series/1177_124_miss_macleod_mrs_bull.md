@@ -2,28 +2,13 @@
 title: CXXIV
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
 
-[←](123_sir.htm)  
-[←Chronology](../../volume_8/epistles_fourth_series/130_rakhal.htm)  
-[←Mrs. Ole Bull](120_dhira_mata.htm)  
-[←Miss Josephine
-MacLeod](../../volume_8/epistles_fourth_series/127_joe_joe.htm)
-
-## CXXIV
-
-*To Miss Josephine MacLeod or Mrs. Ole Bull*
-
-SESHNAG  
-CHANDANBARI, KASHMIR  
-\[EN ROUTE FROM SRINAGAR TO AMARNATH\]  
-\[*End of July 1898*\]
-
-I send back the old Dandi (A simple palanquin.) as it is difficult to
+ as it is difficult to
 carry it through. I have got another like Margaret's. Please send it
 back to the Tahsildar of Vernag, Khand Chand, Esq., whom you already
 know. We are all right. Margot has discovered some new flowers and is
@@ -70,4 +55,4 @@ MacLeod→](../../volume_8/epistles_fourth_series/135_joe.htm)
 Bull→](../../volume_6/epistles_second_series/145_dhira_mata.htm)  
 [Chronology→](../../volume_8/epistles_fourth_series/131_rakhal.htm)
 
-</div>
+

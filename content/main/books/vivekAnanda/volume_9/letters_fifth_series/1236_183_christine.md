@@ -2,15 +2,13 @@
 title: CLXXXIII
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
 
-[←](182_nivedita.htm)  
-[←Chronology](182_nivedita.htm)  
-[←Addressee](181_christine.htm)
+
 
 ## CLXXXIII
 
@@ -37,4 +35,4 @@ VIVEKANANDA
 [Addressee→](184_christina.htm)  
 [Chronology→](../../volume_6/epistles_second_series/161_nivedita.htm)
 
-</div>
+

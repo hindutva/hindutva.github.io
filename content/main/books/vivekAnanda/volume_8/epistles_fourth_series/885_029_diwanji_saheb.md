@@ -2,19 +2,14 @@
 title: XXIX
 
 ---
-<div>
 
-[←](028_sister.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Epistles – Fourth
-Series](epistles_fourth_series_contents.htm)
-/ [→](030_diwanji_saheb.htm)
+
+
 
   
 
-[«](../../volume_9/letters_fifth_series/034_mother.htm) Chronology
-[»](030_diwanji_saheb.htm)  
-[«](020_diwanji_saheb.htm) Addressee [»](030_diwanji_saheb.htm)
+  
+
 
 ## XXIX
 
@@ -46,4 +41,4 @@ I remain, yours faithfully,
 
 VIVEKANANDA.
 
-</div>
+

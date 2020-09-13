@@ -2,13 +2,9 @@
 title: REFERENCES TO YOGA
 
 ---
-<div>
 
-[←](independence.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-1](../complete_works_v1_contents.htm)
-/ [Raja-Yoga](raja-yoga_contents.htm)
-/ [→](../lectures_and_discourses/soul_god_and_religion.htm)
+
+
 
   
 
@@ -328,4 +324,4 @@ worship should be performed.
 *These several extracts give an idea of what other systems of Indian
 Philosophy have to say upon Yoga.*
 
-</div>
+

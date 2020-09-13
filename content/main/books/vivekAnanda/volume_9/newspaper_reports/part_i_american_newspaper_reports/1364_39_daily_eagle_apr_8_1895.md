@@ -2,7 +2,7 @@
 title: LET INDIA ALONE
 
 ---
-<div>
+
 
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
@@ -10,11 +10,7 @@ title: LET INDIA ALONE
 Reports](../newspaper_reports_contents.htm) / [American Newspaper
 Reports](american_newspaper_contents.htm) /
 
-[←](38_baltimore_news_nov_3_1894.htm)
 
-## LET INDIA ALONE
-
-(*New Discoveries*, Vol. 2, p. 314.)
 
 \[*Daily Eagle*, April 8, 1895\]
 
@@ -40,4 +36,4 @@ alone, and it would come out all right.
 
 [→](40_ny_world_dec_8_1895.htm)
 
-</div>
+

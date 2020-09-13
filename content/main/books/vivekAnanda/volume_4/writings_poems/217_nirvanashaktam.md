@@ -2,12 +2,9 @@
 title: NIRVANASHATKAM, OR SIX STANZAS ON NIRVANA
 
 ---
-<div>
 
-[←](hold_on_yet_a_while.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-4](../volume_4_contents.htm) / [Writings:
-Poems](writings_poems_contents.htm) / [→](the_song_of_the_sannyasin.htm)
+
+
 
   
 
@@ -58,4 +55,4 @@ I am in everything; I am the basis of the universe; everywhere am I.
 I am Existence Absolute, Knowledge Absolute, Bliss Absolute —  
 I am He, I am He. (Shivoham, Shivoham).
 
-</div>
+

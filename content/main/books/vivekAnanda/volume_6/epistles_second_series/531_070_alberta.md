@@ -2,17 +2,13 @@
 title: LXX
 
 ---
-<div>
 
-[←](069_shashi.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Epistles – Second
-Series](epistles_second_series_contents.htm) / [→](071_rakhal.htm)
+
+
 
   
 
-[«](../../volume_5/epistles_first_series/046_friend.htm) Chronology
-[»](../../volume_5/epistles_first_series/047_maharaja_of_khetri.htm)  
+  
 Addressee [»](087_alberta.htm)
 
 ## LXX
@@ -57,4 +53,4 @@ Ever your affectionate,
 
 SWAMI VIVEKANANDA.
 
-</div>
+

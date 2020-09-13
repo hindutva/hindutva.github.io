@@ -2,18 +2,14 @@
 title: XXVII
 
 ---
-<div>
 
-[←](026_sir.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Epistles – Second
-Series](epistles_second_series_contents.htm) / [→](028_akhandananda.htm)
+
+
 
   
 
-[«](../../volume_9/letters_fifth_series/004_balaram_babu.htm) Chronology
-[»](028_akhandananda.htm)  
-[«](023_akhandananda.htm) Addressee [»](028_akhandananda.htm)
+  
+
 
 ## XXVII
 
@@ -72,4 +68,4 @@ Ever yours,
 
 VIVEKANANDA.
 
-</div>
+

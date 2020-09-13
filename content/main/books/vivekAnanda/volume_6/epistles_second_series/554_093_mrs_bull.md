@@ -2,19 +2,14 @@
 title: XCIII
 
 ---
-<div>
 
-[←](092_yogen.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Epistles – Second
-Series](epistles_second_series_contents.htm) / [→](094_sarada.htm)
+
+
 
   
 
-[«](../../volume_9/letters_fifth_series/084_christina.htm) Chronology
-[»](../../volume_9/letters_fifth_series/085_mrs_bull.htm)  
-[«](../../volume_9/letters_fifth_series/083_mrs_bull.htm) Addressee
-[»](../../volume_9/letters_fifth_series/085_mrs_bull.htm)
+  
+
 
 ## XCIII
 
@@ -72,4 +67,4 @@ forcibly the vanity of the world. May the Lord break the bondage of all
 
 VIVEKANANDA.
 
-</div>
+

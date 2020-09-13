@@ -2,13 +2,9 @@
 title: ADDRESS OF WELCOME PRESENTED AT CALCUTTA AND REPLY
 
 ---
-<div>
 
-[←](on_charity.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-3](../volume_3_contents.htm) / [Lectures from Colombo to
-Almora](lectures_from_colombo_to_almora_contents.htm)
-/ [→](the_vedanta_in_all_its_phases.htm)
+
+
 
   
 
@@ -482,4 +478,4 @@ have received at your hands. It is my wish — my intense, sincere wish —
 to be even of the least service to the world, and above all to my own
 country and countrymen.
 
-</div>
+

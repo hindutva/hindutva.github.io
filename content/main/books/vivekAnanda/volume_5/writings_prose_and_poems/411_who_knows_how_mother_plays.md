@@ -2,13 +2,9 @@
 title: WHO KNOWS HOW MOTHER PLAYS!
 
 ---
-<div>
 
-[←](the_ramakrishna_home_of_service_varanasi.htm)
-[Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
-/ [Volume 5](../volume_5_contents.htm) / [Writings: Prose and
-Poems](writings_prose_and_poems_contents.htm)
-/ [→](to_the_fourth_of_july.htm)
+
+
 
   
 
@@ -43,4 +39,4 @@ Which father never dreamt;
 May thousandfold in daughter  
 Her powers Mother store.
 
-</div>
+

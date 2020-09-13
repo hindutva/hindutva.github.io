@@ -2,18 +2,14 @@
 title: XIV
 
 ---
-<div>
 
-[←](013_alasinga.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Epistles – First
-Series](epistles_first_series_contents.htm) / [→](015_kidi.htm)
+
+
 
   
 
-[«](../../volume_9/letters_fifth_series/035_mother.htm) Chronology
-[»](015_kidi.htm)  
-[«](013_alasinga.htm) Addressee [»](017_alasinga.htm)
+  
+
 
 ## XIV
 
@@ -64,4 +60,4 @@ Yours with everlasting love,
 
 VIVEKANANDA.
 
-</div>
+

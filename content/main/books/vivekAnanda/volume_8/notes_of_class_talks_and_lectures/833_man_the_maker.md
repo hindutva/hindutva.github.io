@@ -2,13 +2,9 @@
 title: MAN THE MAKER OF HIS DESTINY
 
 ---
-<div>
 
-[←](notes_of_class_talks.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Notes of Class Talks and
-Lectures](notes_of_class_talks_and_lectures_contents.htm)
-/ [→](god_personal_and_impersonal.htm)
+
+
 
   
 
@@ -141,4 +137,4 @@ because you are Divine Stars; all these things are under your feet. You
 can swallow the stars by the handful if you want; such is your real
 nature. Be strong, get beyond all superstitions, and be free.
 
-</div>
+

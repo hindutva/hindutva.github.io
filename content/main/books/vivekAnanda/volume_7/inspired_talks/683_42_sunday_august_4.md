@@ -4,12 +4,9 @@ title: 'RECORDED BY MISS S. E. WALDO
   (A DISCIPLE)'
 
 ---
-<div>
 
-[←](41_saturday_august_3.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Inspired
-Talks](inspired_talks_contents.htm) / [→](43_monday_august_5.htm)
+
+
 
   
 
@@ -153,4 +150,4 @@ The knowing ones must have pity on the ignorant. One who knows is
 willing to give up his body even for an ant, because he knows that the
 body is nothing.
 
-</div>
+

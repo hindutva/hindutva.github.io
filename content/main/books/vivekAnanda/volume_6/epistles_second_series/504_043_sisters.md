@@ -2,26 +2,17 @@
 title: XLIII
 
 ---
-<div>
 
-[←](042_sir.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Epistles – Second
-Series](epistles_second_series_contents.htm) / [→](044_sisters.htm)
+
+
 
   
 
-[«](042_sir.htm) Chronology
-[»](../../volume_8/epistles_fourth_series/021_dear.htm)  
-[«](../../volume_8/epistles_fourth_series/017_babies.htm) Both Sisters
-[»](../../volume_8/epistles_fourth_series/023_sisters.htm)  
-[«](../../volume_8/epistles_fourth_series/019_sister.htm) Mary or
-Harriet Hale
-[»](../../volume_8/epistles_fourth_series/023_sisters.htm)  
-[«](../../volume_8/epistles_fourth_series/017_babies.htm) Harriet Hale
-[»](../../volume_8/epistles_fourth_series/023_sisters.htm)  
-[«](../../volume_8/epistles_fourth_series/019_sister.htm) Mary Hale
-[»](../../volume_8/epistles_fourth_series/023_sisters.htm)
+  
+  
+  
+  
+
 
 ## XLIII
 
@@ -92,4 +83,4 @@ VIVEKANANDA.
     young ones fly upwards before they touch the earth. Shri Ramakrishna
     used to compare the eternally liberated souls to these young birds.
 
-</div>
+

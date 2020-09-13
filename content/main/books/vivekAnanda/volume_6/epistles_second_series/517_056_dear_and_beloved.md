@@ -4,18 +4,14 @@ title: 'LVI
   1'
 
 ---
-<div>
 
-[←](055_akhandananda.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Epistles – Second
-Series](epistles_second_series_contents.htm) / [→](057_mrs_bull.htm)
+
+
 
   
 
-[«](055_akhandananda.htm) Chronology
-[»](../../volume_7/epistles_third_series/25_brother_shivananda.htm)  
-[«](045_brothers.htm) Addressee [»](073_brother_disciples.htm)
+  
+
 
 ## LVI [1](#fn1)
 
@@ -250,4 +246,4 @@ own part, and all the parts taken together express an ideal of harmony.
     Editor  
     Volume 6 Page 200
 
-</div>
+

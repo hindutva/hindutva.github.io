@@ -4,12 +4,9 @@ title: 'RECORDED BY MISS S. E. WALDO
   (A DISCIPLE)'
 
 ---
-<div>
 
-[←](30_tuesday_july_23.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Inspired
-Talks](inspired_talks_contents.htm) / [→](32_thursday_july_25.htm)
+
+
 
   
 
@@ -90,4 +87,4 @@ to It give us Ishvara. It is the Reality of the universe as seen through
 our mind. Personal devil is the misery of the world seen through the
 minds of the superstitious.
 
-</div>
+

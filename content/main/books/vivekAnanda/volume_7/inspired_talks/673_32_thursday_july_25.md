@@ -4,12 +4,9 @@ title: 'RECORDED BY MISS S. E. WALDO
   (A DISCIPLE)'
 
 ---
-<div>
 
-[←](31_wednesday_july_24.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Inspired
-Talks](inspired_talks_contents.htm) / [→](33_friday_july_26.htm)
+
+
 
   
 
@@ -86,4 +83,4 @@ world, God will take care of the next." What nonsense! If we can take
 care of this world, what need of a gratuitous Lord to take care of the
 other!
 
-</div>
+

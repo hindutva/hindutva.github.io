@@ -2,13 +2,9 @@
 title: VEDANTISM
 
 ---
-<div>
 
-[←](the_vedanta.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-3](../volume_3_contents.htm) / [Lectures from Colombo to
-Almora](lectures_from_colombo_to_almora_contents.htm)
-/ [→](the_influence.htm)
+
+
 
   
 
@@ -196,4 +192,4 @@ point in every science was reached when it found the one unity
 underlying all variety. This was as true in physical science as in the
 spiritual.
 
-</div>
+

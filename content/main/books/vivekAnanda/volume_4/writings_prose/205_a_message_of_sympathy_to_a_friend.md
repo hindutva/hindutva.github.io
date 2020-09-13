@@ -2,16 +2,13 @@
 title: A MESSAGE OF SYMPATHY TO A FRIEND
 
 ---
-<div>
 
-[←](reply_to_the_madras_address.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-4](../volume_4_contents.htm) / [Writings:
-Prose](writings_prose_contents.htm) / [→](what_we_believe_in.htm)
+
+
 
   
 
-[«](../../unpublished/ii_your_highness.htm) Chronology [»  
+ Chronology [»  
 ](../../volume_6/epistles_second_series/039_mother.htm)
 
 ## A MESSAGE OF SYMPATHY TO A FRIEND
@@ -64,4 +61,4 @@ May the Lord send you peace is the prayer day and night of —
 
 VIVEKANANDA.
 
-</div>
+

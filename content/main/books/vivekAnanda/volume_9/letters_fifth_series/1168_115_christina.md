@@ -2,15 +2,13 @@
 title: CXV
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
 
-[←](114_shivananda.htm)  
-[←Chronology](../../volume_8/epistles_fourth_series/118_rakhal.htm)  
-[←Addressee](105_christina.htm)
+
 
 ## CXV
 
@@ -45,4 +43,4 @@ V.
 [Addressee→](116_sister_christine.htm)  
 [Chronology→](../../volume_8/epistles_fourth_series/119_rakhal.htm)
 
-</div>
+

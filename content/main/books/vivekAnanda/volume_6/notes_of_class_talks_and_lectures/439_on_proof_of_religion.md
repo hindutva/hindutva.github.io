@@ -2,13 +2,9 @@
 title: ON PROOF OF RELIGION
 
 ---
-<div>
 
-[←](the_goal.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Notes of Class Talks and
-Lectures](notes_of_class_talks_and_lectures_contents.htm)
-/ [→](the_design_theory.htm)
+
+
 
   
 
@@ -89,4 +85,4 @@ Buddhists are the Burmese, Siamese, Chinese, etc.
 Arnold's book, *The Light of Asia*, represents more of Vedantism than
 Buddhism.
 
-</div>
+

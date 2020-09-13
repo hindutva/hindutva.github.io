@@ -2,7 +2,7 @@
 title: VEDANTISM, AND WHAT IT IS AND WHAT IT IS NOT
 
 ---
-<div>
+
 
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
@@ -10,11 +10,7 @@ title: VEDANTISM, AND WHAT IT IS AND WHAT IT IS NOT
 Reports](../newspaper_reports_contents.htm) / [American Newspaper
 Reports](american_newspaper_contents.htm) /
 
-[←](56_sf_chronicle_feb_24_1900.htm)
 
-## VEDANTISM, AND WHAT IT IS AND WHAT IT IS NOT
-
-(*New Discoveries*, Vol. 5, pp. 329-31.)
 
 Lecture of Swami Vivekananda on the Religion of the
 
@@ -72,4 +68,4 @@ lies, without stretching the texts, without compromise.
 
 [→](58_the_alameda_encinal_apr_5_1900.htm)
 
-</div>
+

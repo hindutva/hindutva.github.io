@@ -2,13 +2,9 @@
 title: THE COSMOS AND THE SELF
 
 ---
-<div>
 
-[←](sadhanas_or_preparations_for_higher_life.htm)
-[Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
-/ [Volume 5](../volume_5_contents.htm) / [Notes from Lectures and
-Discourses](notes_from_lectures_and_discourses_contents.htm)
-/ [→](who_is_a_real_guru.htm)
+
+
 
   
 
@@ -88,4 +84,4 @@ separate, but as a reality we are one. The more we think ourselves
 separate from this Whole, the more miserable we become. So, Advaita is
 the basis of ethics.
 
-</div>
+

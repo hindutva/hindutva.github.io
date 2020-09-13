@@ -2,19 +2,14 @@
 title: CLXIV
 
 ---
-<div>
 
-[←](163_mother.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Epistles – Second
-Series](epistles_second_series_contents.htm) / [→](165_joe.htm)
+
+
 
   
 
-[«](163_mother.htm) Chronology
-[»](../../volume_9/letters_fifth_series/184_christina.htm)  
-[«](120_alberta.htm) Addressee
-[»](../../volume_7/epistles_third_series/53_alberta.htm)
+  
+
 
 ## CLXIV
 
@@ -33,4 +28,4 @@ Yours with love and blessings,
 
 VIVEKANANDA.
 
-</div>
+

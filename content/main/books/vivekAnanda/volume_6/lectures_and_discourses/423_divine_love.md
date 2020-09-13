@@ -2,13 +2,9 @@
 title: DIVINE LOVE
 
 ---
-<div>
 
-[←](formal_worship.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Lectures and
-Discourses](lectures_and_discourses_contents.htm)
-/ [→](../notes_of_class_talks_and_lectures/religion_and_science.htm)
+
+
 
   
 
@@ -284,4 +280,4 @@ these gifts not!"
 
 (*Vedanta and the West*, Sept.-Oct. 1955)
 
-</div>
+

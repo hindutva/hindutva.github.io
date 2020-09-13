@@ -2,13 +2,9 @@
 title: THE POWER OF THE MIND
 
 ---
-<div>
 
-[←](concentration.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Notes of Class Talks and
-Lectures](notes_of_class_talks_and_lectures_contents.htm)
-/ [→](lessons_on_raja-yoga.htm)
+
+
 
   
 
@@ -91,4 +87,4 @@ religion simply show that spirituality is not present. Religious
 quarrels are always over the husks. When purity, when spirituality goes,
 leaving the soul dry, quarrels begin, and not before.
 
-</div>
+

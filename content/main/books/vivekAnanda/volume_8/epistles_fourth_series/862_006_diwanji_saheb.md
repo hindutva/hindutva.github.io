@@ -2,18 +2,13 @@
 title: VI
 
 ---
-<div>
 
-[←](005_sir.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Epistles – Fourth
-Series](epistles_fourth_series_contents.htm)
-/ [→](007_diwanji_saheb.htm)
+
+
 
   
 
-[«](../../volume_6/epistles_second_series/037_govinda_sahay.htm)
-Chronology [»](007_diwanji_saheb.htm)  
+  
 Addressee [»](007_diwanji_saheb.htm)
 
 ## VI
@@ -41,4 +36,4 @@ VIVEKANANDA.
 PS. At Nadiad I met Mr. Manilal Nabhubhai. He is a very learned and
 pious gentleman, and I enjoyed his company much.
 
-</div>
+

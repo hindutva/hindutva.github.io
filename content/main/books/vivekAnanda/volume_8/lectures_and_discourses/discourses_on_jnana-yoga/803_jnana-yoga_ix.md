@@ -2,14 +2,9 @@
 title: JNANA YOGA - IX
 
 ---
-<div>
 
-[←](jnana-yoga_viii.htm) [Home](../../../../index.htm) /
-[Complete-Works](../../../complete_works.htm) / [Volume
-8](../../volume_8_contents.htm) / [Lectures and
-Discourses](../lectures_and_discourses_contents.htm) / [Discourses on
-Jnana-Yoga](discourses_on_jnana-yoga_contents.htm)
-/ [→](../six_lessons_on_raja-yoga/raja-yoga_i.htm)
+
+
 
   
 
@@ -119,4 +114,4 @@ earthly plane, but ever free on the spiritual side. The Self is beyond
 both freedom and bondage. We *are* Brahman, we *are* immortal knowledge
 beyond the senses, we *are* Bliss Absolute.
 
-</div>
+

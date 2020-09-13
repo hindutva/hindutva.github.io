@@ -2,12 +2,9 @@
 title: THE CONTROL OF PSYCHIC PRANA
 
 ---
-<div>
 
-[←](the_psychic_prana.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-1](../complete_works_v1_contents.htm) /
-[Raja-Yoga](raja-yoga_contents.htm) / [→](pratyahara_and_dharana.htm)
+
+
 
   
 
@@ -154,4 +151,4 @@ Raja-Yoga is dangerous, and may lead to insanity. If people practice
 Raja-Yoga and at the same time lead an impure life, how can they expect
 to become Yogis?
 
-</div>
+

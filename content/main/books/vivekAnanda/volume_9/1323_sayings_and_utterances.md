@@ -2,12 +2,12 @@
 title: SAYINGS AND UTTERANCES
 
 ---
-<div>
+
 
 [Home](../../index.htm) / [Complete-Works](../complete_works.htm) /
 [Volume 9](volume_9_contents.htm) /
 
-[←](excerpts_from_sister_niveditas_book/concluding_words.htm)
+
 
 ## SAYINGS AND UTTERANCES
 
@@ -996,4 +996,4 @@ another in his hand\] — for I *have* touched the feet of God!" (*CWSN*
 
 [→](newspaper_reports/part_i_american_newspaper_reports/american_newspaper_contents.htm)
 
-</div>
+

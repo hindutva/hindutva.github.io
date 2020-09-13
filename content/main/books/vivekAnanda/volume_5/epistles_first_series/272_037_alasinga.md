@@ -2,19 +2,14 @@
 title: XXXVII
 
 ---
-<div>
 
-[←](036_sister.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Epistles – First
-Series](epistles_first_series_contents.htm) / [→](038_s.htm)
+
+
 
   
 
-[«](../../volume_7/epistles_third_series/27_alasinga.htm) Chronology
-[»](../../volume_8/epistles_fourth_series/039_friend.htm)  
-[«](../../volume_7/epistles_third_series/27_alasinga.htm) Addressee
-[»](039_alasinga.htm)
+  
+
 
 ## XXXVII
 
@@ -49,4 +44,4 @@ Ever yours with blessings,
 
 VIVEKANANDA.
 
-</div>
+

@@ -2,19 +2,14 @@
 title: XLIII
 
 ---
-<div>
 
-[←](042_babies.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Epistles – Fourth
-Series](epistles_fourth_series_contents.htm) / [→](044_joe.htm)
+
+
 
   
 
-[«](../../volume_9/letters_fifth_series/056_mother.htm) Chronology
-[»](../../volume_9/letters_fifth_series/057_mother.htm)  
-[«](../../volume_5/epistles_first_series/040_alasinga.htm) Addressee
-[»](../../volume_5/epistles_first_series/043_alasinga.htm)
+  
+
 
 ## XLIII
 
@@ -41,4 +36,4 @@ I have succeeded in doing something in this country at last.
 
 V.
 
-</div>
+

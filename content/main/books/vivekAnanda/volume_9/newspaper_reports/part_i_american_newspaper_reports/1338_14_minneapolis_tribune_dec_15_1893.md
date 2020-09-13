@@ -2,7 +2,7 @@
 title: THE MANNERS AND CUSTOMS OF INDIA
 
 ---
-<div>
+
 
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
@@ -10,11 +10,7 @@ title: THE MANNERS AND CUSTOMS OF INDIA
 Reports](../newspaper_reports_contents.htm) / [American Newspaper
 Reports](american_newspaper_contents.htm) /
 
-[←](13_minneapolis_journal_dec_15_1893.htm)
 
-## THE MANNERS AND CUSTOMS OF INDIA
-
-(*New Discoveries*, Vol. 1, pp. 217-19.)
 
 \[*Minneapolis Tribune*, December 15, 1893\]
 
@@ -66,4 +62,4 @@ interrogation.
 
 [→](15_detroit_tribune_feb_18_1894.htm)
 
-</div>
+

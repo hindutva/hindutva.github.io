@@ -2,15 +2,13 @@
 title: LXXVIII
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
 
-[←](077_sir.htm)  
-[←Chronology](../../volume_8/epistles_fourth_series/065_sharat.htm)  
-[←Addressee](075_christina.htm)
+
 
 ## LXXVIII
 
@@ -45,4 +43,4 @@ V.
 [Addressee→](084_christina.htm)  
 [Chronology→](079_mrs_bull.htm)
 
-</div>
+

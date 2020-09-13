@@ -2,17 +2,14 @@
 title: LXXX
 
 ---
-<div>
 
-[←](079_mrs_bull.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Epistles – Second
-Series](epistles_second_series_contents.htm) / [→](081_mother.htm)
+
+
 
   
 
-[«](079_mrs_bull.htm) Chronology [»](081_mother.htm)  
-[«](079_mrs_bull.htm) Addressee [»](084_mrs_bull.htm)
+  
+
 
 ## LXXX
 
@@ -33,4 +30,4 @@ Yours with best wishes,
 
 VIVEKANANDA.
 
-</div>
+

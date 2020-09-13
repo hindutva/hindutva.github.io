@@ -2,12 +2,9 @@
 title: WHAT IS DUTY?
 
 ---
-<div>
 
-[←](secret_of_work.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-1](../complete_works_v1_contents.htm)
-/ [Karma-Yoga](karma-yoga_contents.htm) / [→](we_help_ourselves.htm)
+
+
 
   
 
@@ -266,4 +263,4 @@ work on, doing as we go whatever happens to be our duty, and being ever
 ready to put our shoulders to the wheel. Then surely shall we see the
 Light!
 
-</div>
+

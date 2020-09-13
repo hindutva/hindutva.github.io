@@ -2,7 +2,7 @@
 title: A LECTURE ON "INDIA AND HINDUISM"
 
 ---
-<div>
+
 
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
@@ -10,17 +10,7 @@ title: A LECTURE ON "INDIA AND HINDUISM"
 Reports](../newspaper_reports_contents.htm) / [American Newspaper
 Reports](american_newspaper_contents.htm) /
 
-[←](24_the_lynn_daily.htm)
-
-## A LECTURE ON "INDIA AND HINDUISM"
-
-(*New Discoveries*, Vol. 2, p. 42.)
-
-\[*New York Daily Tribune*, April 25, 1894\]
-
-Swami Vivekananda lectured before Mrs. Arthur Smith's conversation
-circle last evening at the Waldorf on "India and Hinduism." (Of which no
-verbatim transcript is available.) Miss Sara Humbert, contralto, and
+ Miss Sara Humbert, contralto, and
 Miss Annie Wilson, soprano, sang several selections. The lecturer wore
 an orange-colored coat and the accompanying yellow turban, which is
 called a beggar's suit. This is worn when a Buddhist has given up
@@ -39,4 +29,4 @@ spirit, able to do without the limitations of a body. . . .
 
 [→](26_smith_college_monthly_may_1894.htm)
 
-</div>
+

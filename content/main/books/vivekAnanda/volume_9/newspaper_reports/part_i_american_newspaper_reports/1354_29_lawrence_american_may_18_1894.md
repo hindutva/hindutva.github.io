@@ -2,7 +2,7 @@
 title: THE BRAHMAN MONK
 
 ---
-<div>
+
 
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
@@ -10,18 +10,7 @@ title: THE BRAHMAN MONK
 Reports](../newspaper_reports_contents.htm) / [American Newspaper
 Reports](american_newspaper_contents.htm) /
 
-[←](28_evening_tribune_may_16_1894.htm)
 
-## THE BRAHMAN MONK
-
-(*New Discoveries*, Vol. 2, pp. 68-71.)
-
-Swami Vivekananda the Guest of the Woman's Club
-
-(Of which no verbatim transcript is available Cf. the preceding American
-newspaper report, "[Lecture by Hindoo
-monk](28_evening_tribune_may_16_1894.htm) " of the Lawrence Evening
-Tribune (pp. 463-66), for other highlights of the same lecture.)
 
 \[*Lawrence American and Andover Advertiser*, May 18, 1894\]
 
@@ -133,4 +122,4 @@ most delightful guest.
 
 [→](30_boston_evening_transcript_aug_11_1894.htm)
 
-</div>
+

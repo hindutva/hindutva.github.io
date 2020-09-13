@@ -2,13 +2,9 @@
 title: THE WORSHIP OF THE DIVINE MOTHER
 
 ---
-<div>
 
-[←](unity.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Notes of Class Talks and
-Lectures](notes_of_class_talks_and_lectures_contents.htm)
-/ [→](the_essence_of_religion.htm)
+
+
 
   
 
@@ -71,4 +67,4 @@ Her child. See Her in all, good and bad alike. Then alone will come
 thus. Until then, misery will pursue us. Only resting in Mother are we
 safe.
 
-</div>
+

@@ -2,19 +2,14 @@
 title: XXVIII
 
 ---
-<div>
 
-[←](027_alasinga.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Epistles – First
-Series](epistles_first_series_contents.htm) / [→](029_gg.htm)
+
+
 
   
 
-[«](../../volume_6/epistles_second_series/057_mrs_bull.htm) Chronology
-[»](../../volume_4/writings_prose/a_plan_of_work_for_india.htm)  
-[«](../../volume_6/epistles_second_series/057_mrs_bull.htm) Addressee
-[»](031_ole_bull.htm)
+  
+
 
 ## XXVIII
 
@@ -57,4 +52,4 @@ VIVEKANANDA.
 PS. I saw Miss Couring at Brooklyn. She was as kind as ever. Give her my
 love if you write her soon.
 
-</div>
+

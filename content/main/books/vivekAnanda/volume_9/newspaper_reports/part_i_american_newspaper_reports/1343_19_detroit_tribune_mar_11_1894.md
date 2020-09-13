@@ -2,7 +2,7 @@
 title: KANANDA, THE PAGAN
 
 ---
-<div>
+
 
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
@@ -10,11 +10,7 @@ title: KANANDA, THE PAGAN
 Reports](../newspaper_reports_contents.htm) / [American Newspaper
 Reports](american_newspaper_contents.htm) /
 
-[←](18_detroit_evening_news_feb_25_1894.htm)
 
-## KANANDA, THE PAGAN
-
-(*New Discoveries*, Vol. 1, pp. 410-16.)
 
 \[*Detroit Tribune*, March 11, 1894\]
 
@@ -265,4 +261,4 @@ last night, and once or twice applauded heartily.
 
 [→](20_detroit_tribune_mar_20_1894.htm)
 
-</div>
+

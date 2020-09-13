@@ -2,19 +2,14 @@
 title: XXVII
 
 ---
-<div>
 
-[←](26_brahmananda.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Epistles – Third
-Series](epistles_third_series_contents.htm) / [→](28_brother.htm)
+
+
 
   
 
-[«](../../volume_5/epistles_first_series/036_sister.htm) Chronology
-[»](../../volume_5/epistles_first_series/037_alasinga.htm)  
-[«](../../volume_5/epistles_first_series/035_alasinga.htm) Addressee
-[»](../../volume_5/epistles_first_series/037_alasinga.htm)
+  
+
 
 ## XXVII
 
@@ -56,4 +51,4 @@ Yours,
 
 VIVEKANANDA.
 
-</div>
+

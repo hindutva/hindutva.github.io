@@ -2,13 +2,9 @@
 title: ONE EXISTENCE APPEARING AS MANY
 
 ---
-<div>
 
-[←](the_free_soul.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-3](../volume_3_contents.htm) / [Lectures and
-Discourses](lectures_and_discourses_contents.htm)
-/ [→](../bhakti-yoga/definition_of_bhakti.htm)
+
+
 
   
 
@@ -296,4 +292,4 @@ Jnani seeks to tear himself away from this bondage of matter by the
 force of intellectual conviction. This is the negative way — the "Neti,
 Neti" — "Not this, not this."
 
-</div>
+

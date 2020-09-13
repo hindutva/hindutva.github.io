@@ -2,13 +2,9 @@
 title: THE TRIANGLE OF LOVE
 
 ---
-<div>
 
-[←](the_higher_knowledge.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-3](../volume_3_contents.htm) / [Para-Bhakti or Supreme
-Devotion](para-bhakti_or_supreme_devotion_contents.htm)
-/ [→](the_god_of_love_is_his_own_proof.htm)
+
+
 
   
 
@@ -137,4 +133,4 @@ love their own highest ideal. That is why good men have a very high
 ideal of God, and their ideal is indeed so very different from that of
 others.
 
-</div>
+

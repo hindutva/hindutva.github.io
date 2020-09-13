@@ -2,7 +2,7 @@
 title: AN INDIAN ASCETIC
 
 ---
-<div>
+
 
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
@@ -10,11 +10,7 @@ title: AN INDIAN ASCETIC
 Reports](../newspaper_reports_contents.htm) / [European Newspaper
 Reports](european_newspaper_contents.htm) /
 
-[←](maidenhead_adviser_oct_23_1895.htm)
 
-## AN INDIAN ASCETIC
-
-(*New Discoveries*, Vol. 3, pp. 246-47.)
 
 \[*Standard*, October 23, 1895\]
 
@@ -65,7 +61,7 @@ free from any kind of hesitation.
 
 [→](london_morning_post_oct_23_1895.htm)
 
-</div>
+
 
 1.  [^](#fn1_1)The lecture was "Self-Knowledge", of which there is no
     verbatim transcript available.

@@ -2,19 +2,14 @@
 title: LXIV
 
 ---
-<div>
 
-[←](063_alasinga.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Epistles – First
-Series](epistles_first_series_contents.htm)
-/ [→](065_blessed_and_beloved.htm)
+
+
 
   
 
-[«](063_alasinga.htm) Chronology
-[»](../../volume_8/epistles_fourth_series/081_goodwin.htm)  
-[«](063_alasinga.htm) Addressee [»](067_alasinga.htm)
+  
+
 
 ## LXIV
 
@@ -74,4 +69,4 @@ Yours with blessings and love,
 
 VIVEKANANDA.
 
-</div>
+

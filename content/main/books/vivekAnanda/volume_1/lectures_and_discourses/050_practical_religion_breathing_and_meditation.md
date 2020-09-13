@@ -2,13 +2,9 @@
 title: 'PRACTICAL RELIGION: BREATHING AND MEDITATION'
 
 ---
-<div>
 
-[←](breathing.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-1](../complete_works_v1_contents.htm) / [Lectures and
-Discourses](lectures_and_discourses_contents.htm)
-/ [→](../../volume_2/work_and_its_secret.htm)
+
+
 
   
 
@@ -274,4 +270,4 @@ to control his own mind. This is the world he has to conquer — the
 greater and more difficult world to conquer. Do not despair! Awake,
 arise, and stop not until the goal is reached!...
 
-</div>
+

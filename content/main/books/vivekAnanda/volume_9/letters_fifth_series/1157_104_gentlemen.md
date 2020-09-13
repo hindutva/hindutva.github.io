@@ -2,18 +2,13 @@
 title: CIV
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
 
-[←](103_madras_committee.htm)  
-[←Chronology](../../volume_8/epistles_fourth_series/089_rakhal.htm)
 
-## CIV
-
-*To the Hindu Students of Trichinapally*[1](#fn1)
 
 \[*February 16, 1897*\]
 
@@ -35,7 +30,7 @@ VIVEKANANDA.
 [→](105_christina.htm)  
 [Chronology→](../../volume_6/epistles_second_series/122_mrs_bull.htm)
 
-</div>
+
 
 1.  [^](#fn1_1)A deputation consisting of Messrs. K. S. Krishnamachari
     and S. M. Raja Ram waited upon Swami Vivekananda in the "Nilgiri

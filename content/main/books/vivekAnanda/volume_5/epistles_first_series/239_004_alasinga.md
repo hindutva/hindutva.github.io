@@ -2,18 +2,14 @@
 title: IV
 
 ---
-<div>
 
-[←](003_alasinga.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Epistles – First
-Series](epistles_first_series_contents.htm) / [→](005_alasinga.htm)
+
+
 
   
 
-[«](003.htm) Chronology
-[»](../../volume_7/epistles_third_series/08_adhyapakji.htm)  
-[«](003_alasinga.htm) Addressee [»](005_alasinga.htm)
+  
+
 
 ## IV
 
@@ -273,4 +269,4 @@ word costs Rs. 4 in cable!!
 Yours,  
 VIVEKANANDA.
 
-</div>
+

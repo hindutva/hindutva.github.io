@@ -2,13 +2,9 @@
 title: REPLY TO THE MADRAS ADDRESS
 
 ---
-<div>
 
-[←](reply_to_the_maharaja_of_khetri.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-4](../volume_4_contents.htm) / [Writings:
-Prose](writings_prose_contents.htm)
-/ [→](a_message_of_sympathy_to_a_friend.htm)
+
+
 
   
 
@@ -739,4 +735,4 @@ VIVEKANANDA.
     right thing. This method of leading to a subtle object through easy
     and gradual steps is called Arundhati Nyaya.
 
-</div>
+

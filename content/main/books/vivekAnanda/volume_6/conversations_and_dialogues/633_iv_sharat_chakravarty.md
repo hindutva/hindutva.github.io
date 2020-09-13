@@ -2,13 +2,9 @@
 title: IV
 
 ---
-<div>
 
-[←](iii_sharat_chakravarty.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Conversations and
-Dialogues](conversations_and_dialogues_contents.htm)
-/ [→](v_sharat_chakravarty.htm)
+
+
 
   
 
@@ -211,4 +207,4 @@ rivers falling into it"?
     the disciple, it very easily and naturally grew to be a term of
     peculiar endearment. — Ed.
 
-</div>
+

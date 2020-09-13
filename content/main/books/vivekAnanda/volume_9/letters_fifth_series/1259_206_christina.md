@@ -2,15 +2,13 @@
 title: CCVI
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
 
-[←](205_christina.htm)  
-[←Chronology](205_christina.htm)  
-[←Addressee](205_christina.htm)
+
 
 ## CCVI
 
@@ -56,4 +54,4 @@ VIVEKANANDA.
 [Addressee→](208_christina.htm)  
 [Chronology→](../../volume_5/epistles_first_series/113_joe.htm)
 
-</div>
+

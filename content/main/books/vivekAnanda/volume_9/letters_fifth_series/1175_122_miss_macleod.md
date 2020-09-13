@@ -2,15 +2,13 @@
 title: CXXII
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
 
-[←](121_jagmohan.htm)  
-[←Chronology](../../volume_8/epistles_fourth_series/125_joe_joe.htm)  
-[←Addressee](../../volume_8/epistles_fourth_series/125_joe_joe.htm)
+
 
 ## CXXII
 
@@ -38,4 +36,4 @@ VIVEKANANDA
 [Addressee→](../../volume_8/epistles_fourth_series/127_joe_joe.htm)  
 [Chronology→](123_sir.htm)
 
-</div>
+

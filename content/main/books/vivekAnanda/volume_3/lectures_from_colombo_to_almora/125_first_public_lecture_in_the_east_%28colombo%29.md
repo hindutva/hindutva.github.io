@@ -2,13 +2,9 @@
 title: FIRST PUBLIC LECTURE IN THE EAST
 
 ---
-<div>
 
-[←](../para-bhakti_or_supreme_devotion/conclusion.htm)
-[Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
-/ [Volume 3](../volume_3_contents.htm) / [Lectures from Colombo to
-Almora](lectures_from_colombo_to_almora_contents.htm)
-/ [→](vedantism.htm)
+
+
 
   
 
@@ -415,4 +411,4 @@ forbearance, toleration, sympathy, and brotherhood, everyone may learn,
 whether man, woman, or child, learned or unlearned, without respect of
 race, caste, or creed. "They call Thee by various names; Thou art One."
 
-</div>
+

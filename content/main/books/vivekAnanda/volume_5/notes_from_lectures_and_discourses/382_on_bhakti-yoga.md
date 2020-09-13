@@ -2,13 +2,9 @@
 title: ON BHAKTI-YOGA
 
 ---
-<div>
 
-[←](the_evils_of_adhikarivada.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Notes from Lectures and
-Discourses](notes_from_lectures_and_discourses_contents.htm)
-/ [→](ishvara_and_brahman.htm)
+
+
 
   
 
@@ -152,4 +148,4 @@ this or that. But he is a power, living even now in his disciples and
 working in the world. I saw him growing in his ideas. He is still
 growing. Shri Ramakrishna was both a Jivanmukta and an Acharya.
 
-</div>
+

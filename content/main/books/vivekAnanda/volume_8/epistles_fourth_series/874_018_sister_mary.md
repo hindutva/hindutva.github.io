@@ -2,23 +2,17 @@
 title: XVIII
 
 ---
-<div>
 
-[←](017_babies.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Epistles – Fourth
-Series](epistles_fourth_series_contents.htm) / [→](019_sister.htm)
+
+
 
   
 
-[«](../../volume_7/epistles_third_series/14_sister.htm) Chronology
-[»](../../volume_6/epistles_second_series/040_maharaja_of_khetri.htm)  
-[«](017_babies.htm) Both Sisters
-[»](../../volume_6/epistles_second_series/043_sisters.htm)  
-[«](017_babies.htm) Mary or Harriet Hale [»](019_sister.htm)  
-[«](017_babies.htm) Harriet Hale
-[»](../../volume_6/epistles_second_series/043_sisters.htm)  
-[«](017_babies.htm) Mary Hale [»](019_sister.htm)
+  
+  
+  
+  
+
 
 ## XVIII
 
@@ -55,4 +49,4 @@ I am all right. Hoping it is same with you.
 I remain your brother,  
 VIVEKANANDA.
 
-</div>
+

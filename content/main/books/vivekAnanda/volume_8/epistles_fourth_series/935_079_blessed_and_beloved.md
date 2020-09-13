@@ -2,18 +2,14 @@
 title: LXXIX
 
 ---
-<div>
 
-[←](078_blessed_and_beloved.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Epistles – Fourth
-Series](epistles_fourth_series_contents.htm) / [→](080_dear.htm)
+
+
 
   
 
-[«](078_blessed_and_beloved.htm) Chronology [»](080_dear.htm)  
-[«](078_blessed_and_beloved.htm) Addressee
-[»](082_blessed_and_beloved.htm)
+  
+
 
 ## LXXIX
 
@@ -52,4 +48,4 @@ be taken refuge in, when it has both fruits and shade. If, however, we
 do not get the fruit, who prevents our enjoyment of the shade?" So ought
 great attempts to be made, is the moral.
 
-</div>
+

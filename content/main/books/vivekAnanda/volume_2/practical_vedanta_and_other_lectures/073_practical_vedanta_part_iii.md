@@ -2,13 +2,9 @@
 title: PRACTICAL VEDANTA
 
 ---
-<div>
 
-[←](practical_vedanta_part_ii.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-2](../volume_2_contents.htm) / [Practical Vedanta and other
-lectures](practical_vedanta_and_other_lectures_contents.htm)
-/ [→](practical_vedanta_part_iv.htm)
+
+
 
   
 
@@ -396,4 +392,4 @@ full consciousness of his infinite power and wisdom, the giant will rise
 to his feet and stand erect. Let us all help to hasten that glorious
 consummation.
 
-</div>
+

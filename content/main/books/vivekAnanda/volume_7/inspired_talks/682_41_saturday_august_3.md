@@ -4,12 +4,9 @@ title: 'RECORDED BY MISS S. E. WALDO
   (A DISCIPLE)'
 
 ---
-<div>
 
-[←](40_friday_august_2.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Inspired
-Talks](inspired_talks_contents.htm) / [→](42_sunday_august_4.htm)
+
+
 
   
 
@@ -144,4 +141,4 @@ robe.
     three boons. So both of them agreed to get back their ugly little
     noses and the dice was accordingly cast.
 
-</div>
+

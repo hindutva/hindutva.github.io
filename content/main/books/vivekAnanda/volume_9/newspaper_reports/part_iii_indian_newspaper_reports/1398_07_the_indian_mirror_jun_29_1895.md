@@ -2,7 +2,7 @@
 title: "A SUMMARY OF \"BUDDHISM, THE FULFILMENT OF\n HINDUISM\""
 
 ---
-<div>
+
 
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
@@ -10,11 +10,7 @@ title: "A SUMMARY OF \"BUDDHISM, THE FULFILMENT OF\n HINDUISM\""
 Reports](../newspaper_reports_contents.htm) / [Indian Newspaper
 Reports](indian_newspaper_contents.htm) /
 
-[←](06_the_bengalee_may_18_1895.htm)
 
-## A SUMMARY OF "BUDDHISM, THE FULFILMENT OF HINDUISM"
-
-(*Vivekananda in Indian Newspapers*, p. 73.)
 
 \[*The Indian Mirror*, June 29, 1895\]
 
@@ -37,4 +33,4 @@ Works](../../../volume_1/addresses_at_the_parliament/v1_c1_buddhism.htm)*
 
 [→](08_the_indian_mirror_dec_1_1895.htm)
 
-</div>
+

@@ -2,19 +2,14 @@
 title: XXXI
 
 ---
-<div>
 
-[←](030_alasinga.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Epistles – First
-Series](epistles_first_series_contents.htm) / [→](032_sister.htm)
+
+
 
   
 
-[«](../../volume_9/letters_fifth_series/047_miss_thursby.htm) Chronology
-[»](../../volume_8/epistles_fourth_series/038_miss_bell.htm)  
-[«](028_mrs_bull.htm) Addressee
-[»](../../volume_6/epistles_second_series/060_mrs_bull.htm)
+  
+
 
 ## XXXI
 
@@ -76,4 +71,4 @@ peace and bliss. . . .
 Yours etc.,  
 VIVEKANANDA.
 
-</div>
+

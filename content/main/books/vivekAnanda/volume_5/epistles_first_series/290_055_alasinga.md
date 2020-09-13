@@ -2,19 +2,14 @@
 title: LV
 
 ---
-<div>
 
-[←](054_alasinga.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Epistles – First
-Series](epistles_first_series_contents.htm) / [→](056_sister.htm)
+
+
 
   
 
-[«](../../volume_8/epistles_fourth_series/064_blessed_and_beloved.htm)
-Chronology [»](../../volume_8/epistles_fourth_series/065_sharat.htm)  
-[«](054_alasinga.htm) Addressee
-[»](../../volume_8/epistles_fourth_series/069_alasinga.htm)
+  
+
 
 ## LV
 
@@ -60,4 +55,4 @@ With love to you and all our friends there,
 Yours,  
 VIVEKANANDA.
 
-</div>
+

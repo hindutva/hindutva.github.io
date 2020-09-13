@@ -2,18 +2,14 @@
 title: CXXXI
 
 ---
-<div>
 
-[←](130_rakhal.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Epistles – Second
-Series](epistles_second_series_contents.htm) / [→](132_akhandananda.htm)
+
+
 
   
 
-[«](../../volume_7/epistles_third_series/41_miss_noble.htm) Chronology
-[»](../../volume_8/epistles_fourth_series/099_marie.htm)  
-[«](128_akhandananda.htm) Addressee [»](132_akhandananda.htm)
+  
+
 
 ## CXXXI
 
@@ -52,4 +48,4 @@ Yours affly.,
 
 VIVEKANANDA.
 
-</div>
+

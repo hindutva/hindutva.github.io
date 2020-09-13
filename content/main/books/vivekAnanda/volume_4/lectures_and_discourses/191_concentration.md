@@ -2,12 +2,9 @@
 title: CONCENTRATION
 
 ---
-<div>
 
-[←](the_claims_of_religion.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-4](../volume_4_contents.htm) / [Lectures and
-Discourses](lectures_and_discourses_contents.htm) / [→](meditation.htm)
+
+
 
   
 
@@ -301,4 +298,4 @@ it does not come. He who has known God has become God. There is nothing
 impossible to such a free soul. No more birth and death for him. He is
 free for ever.
 
-</div>
+

@@ -2,13 +2,9 @@
 title: THE MESSAGE OF DIVINE WISDOM
 
 ---
-<div>
 
-[←](six_sanskrit_mottoes.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Writings: Prose and
-Poems](writings_prose_and_poems_contents.htm)
-/ [→](the_belur_math_an_appeal.htm)
+
+
 
   
 
@@ -266,4 +262,4 @@ knowledge.
 
 \(c\) Knowledge — that follows meditation.
 
-</div>
+

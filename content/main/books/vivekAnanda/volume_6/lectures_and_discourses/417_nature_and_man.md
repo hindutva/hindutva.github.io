@@ -2,13 +2,9 @@
 title: NATURE AND MAN
 
 ---
-<div>
 
-[←](the_importance_of_psychology.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Lectures and
-Discourses](lectures_and_discourses_contents.htm)
-/ [→](concentration_and_breathing.htm)
+
+
 
   
 
@@ -123,4 +119,4 @@ did man build this house? By being in harmony with nature? No. By
 fighting against nature. It is the constant struggle against nature that
 constitutes human progress, not conformity with it.
 
-</div>
+

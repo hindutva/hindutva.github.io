@@ -2,13 +2,9 @@
 title: THE MANNERS AND CUSTOMS OF INDIA
 
 ---
-<div>
 
-[←](an_evening_with_our_hindu_cousins.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-2](../volume_2_contents.htm) / [Reports in American
-Newspapers](reports_in_american_newspapers_contents.htm)
-/ [→](the_religions_of_india.htm)
+
+
 
   
 
@@ -69,4 +65,4 @@ In reference to the matter of education, the speaker said that the
 educated men of India become professors, while the less educated become
 priests.
 
-</div>
+

@@ -2,27 +2,13 @@
 title: CXIV
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
 
-[←](113_friend.htm)  
-[←Chronology](../../volume_5/epistles_first_series/078_sister.htm)  
-[←Addressee](../../volume_7/epistles_third_series/25_brother_shivananda.htm)
 
-## CXIV
-
-(*Translated from Bengali*)
-
-*To Swami Shivananda*
-
-ALMORA,
-
-*The 9th July 1897*
-
-DEAR SHIVANANDA, (This address was written in English.)
 
 I haven't received any word of your arrival yet. I heard that Alasinga
 has gone there with his relations by way of Jaipur. We stayed at the
@@ -85,7 +71,7 @@ VIVEKANANDA
 ](115_christina.htm)[Addressee→](../../volume_8/epistles_fourth_series/120_shivananda.htm)  
 [Chronology→](../../volume_6/epistles_second_series/130_rakhal.htm)
 
-</div>
+
 
 1.  [^](#fn1_1)Thakur is a Bengali word, which means "lord" or "master"
     and, in this case, refers to Shri Ramakrishna.

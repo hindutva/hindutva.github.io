@@ -2,12 +2,9 @@
 title: TO MY OWN SOUL
 
 ---
-<div>
 
-[←](to_an_early_violet.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Writings:
-Poems](writings_poems_contents.htm) / [→](the_dance_of_shiva.htm)
+
+
 
   
 
@@ -34,4 +31,4 @@ For thou didst warn when evil thoughts were brewing —
 And though, alas, thy warning thrown away,  
 Went on the same as ever — good and true.
 
-</div>
+

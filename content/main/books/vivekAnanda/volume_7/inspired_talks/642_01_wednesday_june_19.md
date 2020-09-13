@@ -4,12 +4,9 @@ title: 'RECORDED BY MISS S. E. WALDO
   (A DISCIPLE)'
 
 ---
-<div>
 
-[←](../../volume_6/conversations_and_dialogues/xii_sharat_chakravarty.htm)
-[Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
-/ [Volume 7](../volume_7_contents.htm) / [Inspired
-Talks](inspired_talks_contents.htm) / [→](02_sunday_june_23.htm)
+
+
 
   
 
@@ -127,4 +124,4 @@ nature. (Here "nature" means matter and mind.)
     called Ormuzd (the principle of Good) and the other Ahriman (the
     principle of Evil).
 
-</div>
+

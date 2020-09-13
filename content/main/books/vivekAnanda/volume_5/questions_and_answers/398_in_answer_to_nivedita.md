@@ -2,12 +2,9 @@
 title: VI
 
 ---
-<div>
 
-[←](yoga_vairagya.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Questions and
-Answers](questions_and_answers_contents.htm) / [→](guru_avatara.htm)
+
+
 
   
 
@@ -79,4 +76,4 @@ favourable to Vedic ritual.
 
 This is the period of his love to Gopis. He was eleven years of age.
 
-</div>
+

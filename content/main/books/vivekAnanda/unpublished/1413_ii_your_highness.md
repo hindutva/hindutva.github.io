@@ -2,18 +2,14 @@
 title: II
 
 ---
-<div>
 
-[←](i_your_highness.htm) [Home](../../index.htm) /
-[Complete-Works](../complete_works.htm) /
-[Unpublished](unpublished_contents.htm) / [→](nyt_may_2_1894.htm)
+
+
 
   
 
-[«](../volume_8/epistles_fourth_series/014_diwanji_saheb.htm) Chronology
-[»](../volume_4/writings_prose/a_message_of_sympathy_to_a_friend.htm)  
-[«](i_your_highness.htm) Addressee
-[»](../volume_6/epistles_second_series/040_maharaja_of_khetri.htm)
+  
+
 
 ## II
 
@@ -77,4 +73,4 @@ Yours in the Lord,
 
 VIVEKANANDA
 
-</div>
+

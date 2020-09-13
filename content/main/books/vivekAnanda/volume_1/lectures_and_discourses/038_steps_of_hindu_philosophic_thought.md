@@ -2,13 +2,9 @@
 title: STEPS OF HINDU PHILOSOPHIC THOUGHT
 
 ---
-<div>
 
-[←](the_spirit_and_influence_of_vedanta.htm) [Home](../../../index.htm)
-/ [Complete-Works](../../complete_works.htm) / [Volume
-1](../complete_works_v1_contents.htm) / [Lectures and
-Discourses](lectures_and_discourses_contents.htm)
-/ [→](steps_to_realisation.htm)
+
+
 
   
 
@@ -372,4 +368,4 @@ as the universe will appear to us as God (Absolute), and that very God
 who has so long been external will appear to be internal, as our own
 Self.
 
-</div>
+

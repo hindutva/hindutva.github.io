@@ -2,19 +2,14 @@
 title: CLXI
 
 ---
-<div>
 
-[←](160_nivedita.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Epistles – Second
-Series](epistles_second_series_contents.htm) / [→](162_nivedita.htm)
+
+
 
   
 
-[«](../../volume_9/letters_fifth_series/183_christine.htm) Chronology
-[»](162_nivedita.htm)  
-[«](../../volume_9/letters_fifth_series/182_nivedita.htm) Addressee
-[»](162_nivedita.htm)
+  
+
 
 ## CLXI
 
@@ -77,4 +72,4 @@ With all love and blessings,
 Yours affectionately,  
 VIVEKANANDA.
 
-</div>
+

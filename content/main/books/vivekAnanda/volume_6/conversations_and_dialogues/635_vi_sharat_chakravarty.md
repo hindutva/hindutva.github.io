@@ -2,13 +2,9 @@
 title: VI
 
 ---
-<div>
 
-[←](v_sharat_chakravarty.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Conversations and
-Dialogues](conversations_and_dialogues_contents.htm)
-/ [→](vii_sharat_chakravarty.htm)
+
+
 
   
 
@@ -292,4 +288,4 @@ virtues and defects of men and women there, their luxury and so on.
     stand for the ordinary reference to self. By "here" is evidently
     meant the centre of the Mother's self-revelation.
 
-</div>
+

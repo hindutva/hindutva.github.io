@@ -2,13 +2,9 @@
 title: MY MASTER
 
 ---
-<div>
 
-[←](christ_the_messenger.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-4](../volume_4_contents.htm) / [Lectures and
-Discourses](lectures_and_discourses_contents.htm)
-/ [→](indian_religious_thought.htm)
+
+
 
   
 
@@ -1036,4 +1032,4 @@ teacher of the nineteenth century made no claim for himself. He left
 every religion undisturbed because he had realised that in reality they
 are all part and parcel of the one eternal religion.
 
-</div>
+

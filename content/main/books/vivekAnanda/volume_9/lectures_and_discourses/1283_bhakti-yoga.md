@@ -2,17 +2,13 @@
 title: BHAKTI-YOGA
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Lectures and
 Discourses](lectures_and_discourses_contents.htm) /
 
-[←](the_first_step_towards_jnana.htm)
 
-## BHAKTI-YOGA
-
-(*New Discoveries*, Vol. 3, pp. 543-54.)
 
 *\[A bhakti-yoga class delivered in New York, Monday morning, January
 20, 1896, and recorded by Mr. Josiah J. Goodwin\]*
@@ -476,4 +472,4 @@ girl was passing over your body."
 
 [→](the_mundaka_upanishad.htm)
 
-</div>
+

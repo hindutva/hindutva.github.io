@@ -2,17 +2,13 @@
 title: XXVI
 
 ---
-<div>
 
-[←](25_brother_shivananda.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Epistles – Third
-Series](epistles_third_series_contents.htm) / [→](27_alasinga.htm)
+
+
 
   
 
-[«](25_brother_shivananda.htm) Chronology
-[»](../../volume_9/letters_fifth_series/045_mother.htm)  
+  
 Addressee [»](30_rakhal.htm)
 
 ## XXVI
@@ -55,4 +51,4 @@ Ever yours in love,
 
 VIVEKANANDA.
 
-</div>
+

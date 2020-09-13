@@ -2,13 +2,9 @@
 title: 'CONCENTRATION: ITS SPIRITUAL USES '
 
 ---
-<div>
 
-[←](introduction.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-1](../complete_works_v1_contents.htm) /
-[Raja-Yoga](raja-yoga_contents.htm)
-/ [→](concentration_its_practice.htm)
+
+
 
   
 
@@ -1135,4 +1131,4 @@ know that the Soul is not a compound; It is the only eternal simple in
 the universe, and as such, It cannot be born, It cannot die; It is
 immortal, indestructible, the ever-living essence of intelligence.
 
-</div>
+

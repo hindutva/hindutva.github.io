@@ -2,7 +2,7 @@
 title: A MESSAGE FROM INDIA
 
 ---
-<div>
+
 
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
@@ -10,11 +10,7 @@ title: A MESSAGE FROM INDIA
 Reports](../newspaper_reports_contents.htm) / [American Newspaper
 Reports](american_newspaper_contents.htm) /
 
-[←](06_daily_iowa_capitol_nov_28_1893.htm)
 
-## A MESSAGE FROM INDIA
-
-(*New Discoveries*, Vol. 1, pp. 204-6.)
 
 Vive Kananda, the Famous Hindoo Monk and Scholar,
 
@@ -75,4 +71,4 @@ me,
 
 [→](08_daily_iowa_capitol_nov_29_1893.htm)
 
-</div>
+

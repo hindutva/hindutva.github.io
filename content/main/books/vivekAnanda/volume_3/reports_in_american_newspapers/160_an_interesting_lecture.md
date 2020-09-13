@@ -2,13 +2,9 @@
 title: AN INTERESTING LECTURE
 
 ---
-<div>
 
-[←](hindu_civilisation.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-3](../volume_3_contents.htm) / [Reports in American
-Newspapers](reports_in_american_newspapers_contents.htm)
-/ [→](the_hindoo_religion.htm)
+
+
 
   
 
@@ -24,4 +20,4 @@ as wide as the universe, taking in all religions, and accepting truth
 wherever it may be found. Bigotry and superstition and idle ceremony, he
 declared, have no place in "the religions of India".
 
-</div>
+

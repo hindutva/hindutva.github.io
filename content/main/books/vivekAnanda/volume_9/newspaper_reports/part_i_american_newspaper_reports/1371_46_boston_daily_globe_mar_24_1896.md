@@ -2,7 +2,7 @@
 title: OUT OF THE EAST
 
 ---
-<div>
+
 
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
@@ -10,11 +10,7 @@ title: OUT OF THE EAST
 Reports](../newspaper_reports_contents.htm) / [American Newspaper
 Reports](american_newspaper_contents.htm) /
 
-[←](45_boston_evening_transcript_mar_21_1896.htm)
 
-## OUT OF THE EAST
-
-(*New Discoveries*, Vol. 4, pp. 60-62.)
 
 \[*Boston Daily Globe*, March 24, 1896\]
 
@@ -86,7 +82,7 @@ striving.
 
 [→](47_boston_evening_transcript_mar_27_1896.htm)
 
-</div>
+
 
 1.  [^](#fn1_1)Delivered March 21 and March 23, 1896 respectively, of
     which there are no verbatim transcripts available.

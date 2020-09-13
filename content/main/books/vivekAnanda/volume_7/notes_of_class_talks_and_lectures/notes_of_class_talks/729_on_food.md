@@ -2,14 +2,9 @@
 title: ON FOOD
 
 ---
-<div>
 
-[←](on_conceptions_of_godhead.htm) [Home](../../../../index.htm) /
-[Complete-Works](../../../complete_works.htm) / [Volume
-7](../../volume_7_contents.htm) / [Notes of Class Talks and
-Lectures](../notes_of_class_talks_and_lectures_contents.htm) / [Notes of
-Class Talks](notes_of_class_talks_contents.htm)
-/ [→](on_sannyasa_and_family_life.htm)
+
+
 
   
 
@@ -28,4 +23,4 @@ which water was distilled and then oxygen was passed into it. After this
 the water became so pure that great improvement of health was sure to
 result from its use.
 
-</div>
+

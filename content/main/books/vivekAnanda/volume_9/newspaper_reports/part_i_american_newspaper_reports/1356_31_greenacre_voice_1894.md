@@ -2,7 +2,7 @@
 title: NIRVANASHATKAM
 
 ---
-<div>
+
 
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
@@ -10,11 +10,7 @@ title: NIRVANASHATKAM
 Reports](../newspaper_reports_contents.htm) / [American Newspaper
 Reports](american_newspaper_contents.htm) /
 
-[←](30_boston_evening_transcript_aug_11_1894.htm)
 
-## NIRVANASHATKAM
-
-(*New Discoveries*, Vol. 2, pp. 149-50 (Arena, October 1899, p. 499).)
 
 *\[Swami Vivekananda's partial translation of the "Nirvânashatkam" by
 Shankara, recited at Greenacre, Maine, and reported in an 1894 issue of
@@ -48,4 +44,4 @@ It."
 
 [→](32_boston_evening_transcript_aug_15_1894.htm)
 
-</div>
+

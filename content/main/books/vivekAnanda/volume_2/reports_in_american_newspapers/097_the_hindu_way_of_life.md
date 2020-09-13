@@ -2,13 +2,9 @@
 title: THE HINDU VIEW OF LIFE
 
 ---
-<div>
 
-[←](all_religions_are_good.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-2](../volume_2_contents.htm) / [Reports in American
-Newspapers](reports_in_american_newspapers_contents.htm)
-/ [→](ideals_of_womanhood.htm)
+
+
 
   
 
@@ -146,4 +142,4 @@ them availed themselves of this offer. (See *Complete Works*, Vol. V. in
 the Section, ["Questions and
 Answers"](../../volume_5/questions_and_answers/brooklyn_ethical_society.htm).)
 
-</div>
+

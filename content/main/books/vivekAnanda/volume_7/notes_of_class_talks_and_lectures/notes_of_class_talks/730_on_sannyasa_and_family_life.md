@@ -2,14 +2,9 @@
 title: ON SANNYÂSA AND FAMILY LIFE
 
 ---
-<div>
 
-[←](on_food.htm) [Home](../../../../index.htm) /
-[Complete-Works](../../../complete_works.htm) / [Volume
-7](../../volume_7_contents.htm) / [Notes of Class Talks and
-Lectures](../notes_of_class_talks_and_lectures_contents.htm) / [Notes of
-Class Talks](notes_of_class_talks_contents.htm)
-/ [→](on_questioning_the_competency_of_the_guru.htm)
+
+
 
   
 
@@ -38,4 +33,4 @@ our own selves. 'आवृत्तिरसकृदुपदेशात् �
 repeated for such has been repeatedly enjoined' — In this Sutra of
 Vedanta, Vyasa lays stress on repetition."
 
-</div>
+

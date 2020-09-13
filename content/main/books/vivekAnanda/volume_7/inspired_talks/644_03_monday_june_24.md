@@ -4,12 +4,9 @@ title: 'RECORDED BY MISS S. E. WALDO
   (A DISCIPLE)'
 
 ---
-<div>
 
-[←](02_sunday_june_23.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Inspired
-Talks](inspired_talks_contents.htm) / [→](04_tuesday_june_25.htm)
+
+
 
   
 
@@ -123,4 +120,4 @@ comes, know the Lord is playing with you and be exceeding glad.
 
 Love is beyond time and space, it is absolute.
 
-</div>
+

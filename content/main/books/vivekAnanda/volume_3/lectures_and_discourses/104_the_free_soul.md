@@ -2,13 +2,9 @@
 title: THE FREE SOUL
 
 ---
-<div>
 
-[←](unity_the_goal_of_religion.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-3](../volume_3_contents.htm) / [Lectures and
-Discourses](lectures_and_discourses_contents.htm)
-/ [→](one_existence_appearing_as_many.htm)
+
+
 
   
 
@@ -397,4 +393,4 @@ world? Go beyond that if you dare; go beyond law, let the whole universe
 vanish, and stand alone. "I am Existence-Absolute, Knowledge-Absolute,
 Bliss-Absolute; I am He, I am He."
 
-</div>
+

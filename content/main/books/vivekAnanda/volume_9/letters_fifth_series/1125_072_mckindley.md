@@ -2,15 +2,13 @@
 title: LXXII
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
 
-[←](071_sister_christine.htm)  
-[←Chronology](../../volume_5/epistles_first_series/053_alasinga.htm)  
-[←Addressee](../../volume_5/epistles_first_series/036_sister.htm)
+
 
 ## LXXII
 
@@ -91,7 +89,7 @@ VIVEKANANDA
 [Addressee→](144_isabel.htm)  
 [Chronology→](../../volume_8/epistles_fourth_series/056_joe_joe.htm)
 
-</div>
+
 
 1.  [^](#fn1_1)"Thotmeses" refers to the four Egyptian pharaohs of the
     18th dynasty (Thutmose I, II, III and IV), who reigned from 1504

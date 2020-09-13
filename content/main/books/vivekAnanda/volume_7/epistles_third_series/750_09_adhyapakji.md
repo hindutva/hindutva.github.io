@@ -2,17 +2,14 @@
 title: IX
 
 ---
-<div>
 
-[←](08_adhyapakji.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Epistles – Third
-Series](epistles_third_series_contents.htm) / [→](10_adhyapakji.htm)
+
+
 
   
 
-[«](08_adhyapakji.htm) Chronology [»](10_adhyapakji.htm)  
-[«](08_adhyapakji.htm) Addressee [»](10_adhyapakji.htm)
+  
+
 
 ## IX
 
@@ -143,4 +140,4 @@ In the rushing stream of life.
 note\].) Thou art my God.  
 My love, I am thine, I am thine.
 
-</div>
+

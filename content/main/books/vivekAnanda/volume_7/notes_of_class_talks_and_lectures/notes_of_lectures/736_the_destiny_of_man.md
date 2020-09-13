@@ -2,13 +2,9 @@
 title: THE DESTINY OF MAN
 
 ---
-<div>
 
-[←](mercenaries_in_religion.htm) [Home](../../../../index.htm) /
-[Complete-Works](../../../complete_works.htm) / [Volume
-7](../../volume_7_contents.htm) / [Notes of Class Talks and
-Lectures](../notes_of_class_talks_and_lectures_contents.htm) / [Notes of
-Lectures](notes_of_lectures_contents.htm) / [→](reincarnation.htm)
+
+
 
   
 
@@ -113,4 +109,4 @@ answers: Ignorance and bigotry can never crush truth."
 The speaker continued in this strain of reasoning for nearly two hours,
 and concluded by saying: "Let us help, and not destroy."
 
-</div>
+

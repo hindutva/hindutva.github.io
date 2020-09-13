@@ -4,12 +4,9 @@ title: 'RECORDED BY MISS S. E. WALDO
   (A DISCIPLE)'
 
 ---
-<div>
 
-[←](03_monday_june_24.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Inspired
-Talks](inspired_talks_contents.htm) / [→](05_wednesday_june_26.htm)
+
+
 
   
 
@@ -120,4 +117,4 @@ here a long time, perhaps I annoy you. I am sorry, I will go away." But
 the bull replied, "Oh no, not at all! Bring your whole family and live
 on my horn; what can you do to me?"
 
-</div>
+

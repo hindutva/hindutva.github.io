@@ -2,18 +2,14 @@
 title: LXXXIV
 
 ---
-<div>
 
-[←](083_rakhal.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Epistles – Second
-Series](epistles_second_series_contents.htm) / [→](085_akhandananda.htm)
+
+
 
   
 
-[«](083_rakhal.htm) Chronology
-[»](../../volume_8/epistles_fourth_series/053_kali.htm)  
-[«](080_mrs_bull.htm) Addressee [»](086_mrs_bull.htm)
+  
+
 
 ## LXXXIV
 
@@ -32,4 +28,4 @@ Yours with best wishes,
 
 VIVEKANANDA.
 
-</div>
+

@@ -2,17 +2,13 @@
 title: NOTES
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Writings: Prose and
 Poems](writings_prose_and_poems_contents.htm) /
 
-[←](the_ether.htm)
 
-## NOTES
-
-(*New Discoveries*, Vol. 3, pp. 440-41.)
 
 *\[An undated and untitled, one-page manuscript in Swami Vivekananda's
 own handwriting\]*
@@ -49,4 +45,4 @@ that is the Substance, the Brahman.
 
 [→](lecture_notes.htm)
 
-</div>
+

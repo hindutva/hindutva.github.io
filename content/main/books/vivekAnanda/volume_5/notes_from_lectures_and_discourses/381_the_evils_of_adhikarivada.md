@@ -2,13 +2,9 @@
 title: THE EVILS OF ADHIKARIVADA
 
 ---
-<div>
 
-[←](the_sannyasin_and_the_householder.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Notes from Lectures and
-Discourses](notes_from_lectures_and_discourses_contents.htm)
-/ [→](on_bhakti-yoga.htm)
+
+
 
   
 
@@ -86,4 +82,4 @@ continually, without swerving from it. Thus you will confer the greatest
 blessing on the masses, unshackle their bondages, and uplift the whole
 nation.
 
-</div>
+

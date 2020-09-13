@@ -2,18 +2,14 @@
 title: CLVI
 
 ---
-<div>
 
-[←](155_nivedita.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Epistles – Second
-Series](epistles_second_series_contents.htm) / [→](157_margot.htm)
+
+
 
   
 
-[«](../../volume_8/epistles_fourth_series/164_mary.htm) Chronology
-[»](157_margot.htm)  
-[«](155_nivedita.htm) Addressee [»](157_margot.htm)
+  
+
 
 ## CLVI
 
@@ -41,4 +37,4 @@ Yours,
 
 VIVEKANANDA.
 
-</div>
+

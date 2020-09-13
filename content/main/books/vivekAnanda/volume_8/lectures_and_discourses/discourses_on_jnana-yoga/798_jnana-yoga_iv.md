@@ -2,14 +2,9 @@
 title: JNANA YOGA - IV
 
 ---
-<div>
 
-[←](jnana-yoga_iii.htm) [Home](../../../../index.htm) /
-[Complete-Works](../../../complete_works.htm) / [Volume
-8](../../volume_8_contents.htm) / [Lectures and
-Discourses](../lectures_and_discourses_contents.htm) / [Discourses on
-Jnana-Yoga](discourses_on_jnana-yoga_contents.htm)
-/ [→](jnana-yoga_v.htm)
+
+
 
   
 
@@ -111,4 +106,4 @@ separate). The first step upwards is when we recognise ourselves as the
 children of God; the last step is when we realise ourselves as the One,
 the Atman.
 
-</div>
+

@@ -2,19 +2,14 @@
 title: LXXXIV
 
 ---
-<div>
 
-[←](083_your_highness.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Epistles – First
-Series](epistles_first_series_contents.htm) / [→](085_your_highness.htm)
+
+
 
   
 
-[«](../../volume_8/epistles_fourth_series/132_mary.htm) Chronology
-[»](../../volume_8/epistles_fourth_series/133_haripada.htm)  
-[«](../../volume_9/letters_fifth_series/126_your_highness.htm) Addressee
-[»](085_your_highness.htm)
+  
+
 
 ## LXXXIV
 
@@ -41,4 +36,4 @@ Ever yours in the Lord,
 
 VIVEKANANDA.
 
-</div>
+

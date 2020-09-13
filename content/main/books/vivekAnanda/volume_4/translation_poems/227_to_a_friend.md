@@ -2,12 +2,9 @@
 title: TO A FRIEND
 
 ---
-<div>
 
-[←](../translation_prose/our_present_social_problems.htm)
-[Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
-/ [Volume 4](../volume_4_contents.htm) / [Translations:
-Poems](translation_poems_contents.htm) / [→](the_hymn_of_creation.htm)
+
+
 
   
 
@@ -145,4 +142,4 @@ Rejecting them, where seekest thou for God?
 Who loves all beings without distinction,  
 He indeed is worshipping best his God.
 
-</div>
+

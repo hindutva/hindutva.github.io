@@ -2,20 +2,14 @@
 title: L
 
 ---
-<div>
 
-[←](049_swami_ramakrishnananda.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Epistles – Second
-Series](epistles_second_series_contents.htm)
-/ [→](051_dear_and_beloved.htm)
+
+
 
   
 
-[«](../../volume_5/epistles_first_series/021_blessed_and_beloved.htm)
-Chronology [»](../../volume_9/letters_fifth_series/042_mother.htm)  
-[«](../../volume_9/letters_fifth_series/040_mrs_bull.htm) Addressee
-[»](057_mrs_bull.htm)
+  
+
 
 ## L
 
@@ -44,4 +38,4 @@ With my eternal love and gratitude for you,
 I remain, Yours etc.,  
 VIVEKANANDA.
 
-</div>
+

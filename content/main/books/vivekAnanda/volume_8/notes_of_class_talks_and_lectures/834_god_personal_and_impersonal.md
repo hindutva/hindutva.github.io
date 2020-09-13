@@ -2,13 +2,9 @@
 title: 'GOD: PERSONAL AND IMPERSONAL'
 
 ---
-<div>
 
-[←](man_the_maker.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Notes of Class Talks and
-Lectures](notes_of_class_talks_and_lectures_contents.htm)
-/ [→](the_divine_incarnation.htm)
+
+
 
   
 
@@ -63,4 +59,4 @@ as the Governor of the universe, and the highest man sees Him as
 himself. It was the same God, and the different realisations were only
 degrees and differences of vision.
 
-</div>
+

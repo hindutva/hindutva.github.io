@@ -2,18 +2,14 @@
 title: CXI
 
 ---
-<div>
 
-[←](110_miss_s_e_waldo.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Epistles – Second
-Series](epistles_second_series_contents.htm) / [→](112_mary.htm)
+
+
 
   
 
-[«](110_miss_s_e_waldo.htm) Chronology
-[»](../../volume_5/epistles_first_series/068_alasinga.htm)  
-[«](107_mrs_bull.htm) Addressee [»](113_mrs_bull.htm)
+  
+
 
 ## CXI
 
@@ -38,4 +34,4 @@ Yours affly.,
 
 VIVEKANANDA.
 
-</div>
+

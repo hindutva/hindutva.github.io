@@ -2,13 +2,9 @@
 title: THE BENGALI LANGUAGE
 
 ---
-<div>
 
-[←](hinduism_and_shri_ramakrishna.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Writings: Prose and
-Poems](writings_prose_and_poems_contents.htm)
-/ [→](matter_for_serious_thought.htm)
+
+
 
   
 
@@ -105,4 +101,4 @@ image of the Deity will inspire devotion, every girl decked in ornaments
 will appear to be a goddess, and every house and room and furniture will
 be animated with the vibration of life.
 
-</div>
+

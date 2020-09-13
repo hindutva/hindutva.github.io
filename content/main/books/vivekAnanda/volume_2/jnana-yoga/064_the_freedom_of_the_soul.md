@@ -2,12 +2,9 @@
 title: THE FREEDOM OF THE SOUL
 
 ---
-<div>
 
-[←](unity_in_diversity.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-2](../volume_2_contents.htm) / [Jnana-Yoga](jnana-yoga_contents.htm)
-/ [→](the_macrocosm.htm)
+
+
 
   
 
@@ -431,4 +428,4 @@ Delusion will vanish as the light becomes more and more effulgent, load
 after load of ignorance will vanish, and then will come a time when all
 else has disappeared and the Sun alone shines.
 
-</div>
+

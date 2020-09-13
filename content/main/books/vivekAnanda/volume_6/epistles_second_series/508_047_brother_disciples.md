@@ -2,18 +2,14 @@
 title: XLVII
 
 ---
-<div>
 
-[←](046_mother_sara.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Epistles – Second
-Series](epistles_second_series_contents.htm) / [→](048_mrs_bull.htm)
+
+
 
   
 
-[«](../../volume_9/letters_fifth_series/036_mother.htm) Chronology
-[»](../../volume_5/epistles_first_series/016_sister.htm)  
-[«](041_shashi.htm) Addressee [»](049_swami_ramakrishnananda.htm)
+  
+
 
 ## XLVII
 
@@ -308,4 +304,4 @@ VIVEKANANDA.
     went to Brahma for Self-knowledge, but misunderstanding His teaching
     turned a materialist. (Chhândogya Upa., VIII).
 
-</div>
+

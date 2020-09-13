@@ -2,19 +2,14 @@
 title: CXXVI
 
 ---
-<div>
 
-[←](125_shuddhananda.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Epistles – Second
-Series](epistles_second_series_contents.htm) / [→](127_rakhal.htm)
+
+
 
   
 
-[«](../../volume_8/epistles_fourth_series/094_marie.htm) Chronology
-[»](127_rakhal.htm)  
-[«](../../volume_8/epistles_fourth_series/091_miss_noble.htm) Addressee
-[»](../../volume_8/epistles_fourth_series/095_miss_noble.htm)
+  
+
 
 ## CXXVI
 
@@ -53,4 +48,4 @@ books. But the Mother dispenses otherwise — yet the tendency is there.
 Yours etc.,  
 VIVEKANANDA.
 
-</div>
+

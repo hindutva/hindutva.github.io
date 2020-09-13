@@ -2,13 +2,9 @@
 title: RELIGION IS REALISATION
 
 ---
-<div>
 
-[←](religion_and_science.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Notes of Class Talks and
-Lectures](notes_of_class_talks_and_lectures_contents.htm)
-/ [→](religion_is_self-abnegation.htm)
+
+
 
   
 
@@ -28,4 +24,4 @@ who realises. "I am He", though clad in rags, is happy. Go forth into
 the Eternal and come back with eternal energy. The slave goes out to
 search for truth; he comes back free.
 
-</div>
+

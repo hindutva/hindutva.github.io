@@ -2,13 +2,9 @@
 title: DIVINITY OF MAN
 
 ---
-<div>
 
-[←](note.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-2](../volume_2_contents.htm) / [Reports in American
-Newspapers](reports_in_american_newspapers_contents.htm)
-/ [→](swami_vivekananda_on_india.htm)
+
+
 
   
 
@@ -76,4 +72,4 @@ people of the West struggle too hard; repose is a factor of
 civilization. We do not lay our infirmities to God. There is a tendency
 toward a union of religions.
 
-</div>
+

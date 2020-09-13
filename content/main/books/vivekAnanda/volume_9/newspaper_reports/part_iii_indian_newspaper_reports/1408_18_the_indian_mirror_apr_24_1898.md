@@ -2,7 +2,7 @@
 title: OUR MISSION IN AMERICA
 
 ---
-<div>
+
 
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
@@ -10,11 +10,7 @@ title: OUR MISSION IN AMERICA
 Reports](../newspaper_reports_contents.htm) / [Indian Newspaper
 Reports](indian_newspaper_contents.htm) /
 
-[←](17_the_indian_mirror_feb_24_1898.htm)
 
-## OUR MISSION IN AMERICA
-
-(*Vivekananda in Indian Newspapers*, p. 208.)
 
 \[*The Indian Mirror*, April 24, 1898\]
 
@@ -47,4 +43,4 @@ that has been similarly discovered by the Americans. (Cheers).
 
 [→](19_the_indian_mirror_feb_15_1901.htm)
 
-</div>
+

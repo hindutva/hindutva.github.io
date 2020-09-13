@@ -2,15 +2,13 @@
 title: CLXXXIV
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
 
-[←](183_christine.htm)  
-[←Chronology](../../volume_6/epistles_second_series/164_alberta.htm)  
-[←Addressee](183_christine.htm)
+
 
 ## CLXXXIV
 
@@ -51,7 +49,7 @@ VIVEKANANDA.
 [Addressee→](../../volume_8/epistles_fourth_series/195_sister_christine.htm)  
 [Chronology→](../../volume_7/epistles_third_series/53_alberta.htm)
 
-</div>
+
 
 1.  [^](#fn1_1)The magnetic healer Mrs. Melton (also known as Mrs.
     Walden) was in Brittany at that time.

@@ -4,12 +4,9 @@ title: 'RECORDED BY MISS S. E. WALDO
   (A DISCIPLE)'
 
 ---
-<div>
 
-[←](08_saturday_june_29.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Inspired
-Talks](inspired_talks_contents.htm) / [→](10_monday_july_1.htm)
+
+
 
   
 
@@ -93,4 +90,4 @@ There is only one Power, whether manifesting as evil or good. God and
 the devil are the same river with the water flowing in opposite
 directions.
 
-</div>
+

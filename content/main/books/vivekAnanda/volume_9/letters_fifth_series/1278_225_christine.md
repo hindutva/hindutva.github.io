@@ -2,28 +2,13 @@
 title: CCXXV
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
 
-[←](224_christine.htm)  
-[←Chronology](../../volume_5/epistles_first_series/123_dhira_mata.htm)  
-[←Addressee](224_christine.htm)
-
-## CCXXV
-
-*To Sister Christine*
-
-THE MATH, BELUR, DIST. HOWRAH,
-
-*14th June 1902*.
-
-MY DEAR CHRISTINE,
-
-Your letters had to wait a few days, as I was out of town in a
-village.[1](#fn1) Well, many thanks for all the information I got. Mr.
+ Well, many thanks for all the information I got. Mr.
 Okakura \[Kakuzo\] has been to the Math, but I was away. He will be in
 Calcutta a few weeks more and then goes to Bombay. He intends taking a
 house near the city to learn intimately the customs of Bengalees. I am
@@ -66,7 +51,7 @@ VIVEKANANDA.
 [Addressee→](226_christine.htm)  
 [Chronology→](226_christine.htm)
 
-</div>
+
 
 1.  [^](#fn1_1)According to Swami Brahmananda's diary, Swami Vivekananda
     left for Boro Jagulia on June 6. First he travelled by train from

@@ -2,18 +2,14 @@
 title: LXXII
 
 ---
-<div>
 
-[←](071_alasinga.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Epistles – First
-Series](epistles_first_series_contents.htm) / [→](073_madam.htm)
+
+
 
   
 
-[«](../../volume_6/epistles_second_series/113_mrs_bull.htm) Chronology
-[»](../../volume_6/epistles_second_series/114_lalaji.htm)  
-[«](071_alasinga.htm) Addressee
+  
+ Addressee
 
 ## LXXII
 
@@ -74,4 +70,4 @@ With all love and blessings,
 
 VIVEKANANDA.
 
-</div>
+

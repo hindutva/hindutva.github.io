@@ -2,17 +2,14 @@
 title: CLXXXIV
 
 ---
-<div>
 
-[←](183_sister.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Epistles – Fourth
-Series](epistles_fourth_series_contents.htm) / [→](185_joe.htm)
+
+
 
   
 
-[«](183_sister.htm) Chronology [»](185_joe.htm)  
-[«](168_haribhai.htm) Addressee [»](187_turiyananda.htm)
+  
+
 
 ## CLXXXIV
 
@@ -41,4 +38,4 @@ seen my friends? Give them my love.
 
 V.
 
-</div>
+

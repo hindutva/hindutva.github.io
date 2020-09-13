@@ -2,11 +2,9 @@
 title: unpublishedthesundayherald 06301895
 
 ---
-<div>
 
-[←](nyt_03081895.htm) [Home](../../index.htm) /
-[Complete-Works](../complete_works.htm) /
-[Unpublished](unpublished_contents.htm) / [→](nyt_12131895.htm)
+
+
 
   
 
@@ -23,4 +21,4 @@ After the close of the Parliament the Swami remained in this country
 lecturing through the West and later in the East. He is an able exponent
 of Hindoo philosophy and has attracted many to listen to his teachings.
 
-</div>
+

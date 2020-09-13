@@ -2,13 +2,9 @@
 title: AN EVENING WITH OUR HINDU COUSINS
 
 ---
-<div>
 
-[←](from_far_off_india.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-2](../volume_2_contents.htm) / [Reports in American
-Newspapers](reports_in_american_newspapers_contents.htm)
-/ [→](the_manners_and_customs_of_india.htm)
+
+
 
   
 
@@ -92,4 +88,4 @@ address made a deep impression is evinced by the report of every
 auditor, the broadest liberality of true religious sentiment and precept
 characterizing the whole trend of thought.
 
-</div>
+

@@ -2,22 +2,14 @@
 title: CXX
 
 ---
-<div>
 
-[←](119_rakhal.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Epistles – Fourth
-Series](epistles_fourth_series_contents.htm) / [→](121_rajaji.htm)
+
+
 
   
 
-[«](119_rakhal.htm) Chronology
-[»](../../volume_9/letters_fifth_series/116_sister_christine.htm)  
-[«](../../volume_9/letters_fifth_series/114_shivananda.htm) Addressee
+  
 
-## CXX
-
-(*Translated from Bengali* )
 
 *To Swami Shivananda*
 
@@ -45,4 +37,4 @@ Calcutta in a few days and will be all right.
 Yours in the Lord,  
 VIVEKANANDA.
 
-</div>
+

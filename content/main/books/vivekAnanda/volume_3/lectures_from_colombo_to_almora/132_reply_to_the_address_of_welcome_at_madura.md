@@ -2,13 +2,9 @@
 title: REPLY TO THE ADDRESS OF WELCOME AT MADURA
 
 ---
-<div>
 
-[←](reply_to_the_address_of_welcome_at_shivaganga_and_manamadura.htm)
-[Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
-/ [Volume 3](../volume_3_contents.htm) / [Lectures from Colombo to
-Almora](lectures_from_colombo_to_almora_contents.htm)
-/ [→](the_mission_of_the_vedanta.htm)
+
+
 
   
 
@@ -223,4 +219,4 @@ fighting any one in the world. May the Lord help us, each one of us
 here, to realise the Rishihood for our own salvation and for that of
 others!
 
-</div>
+

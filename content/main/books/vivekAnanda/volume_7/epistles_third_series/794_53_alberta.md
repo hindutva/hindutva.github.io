@@ -2,20 +2,14 @@
 title: LIII
 
 ---
-<div>
 
-[←](52_aunt_roxy.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Epistles – Third
-Series](epistles_third_series_contents.htm)
-/ [→](../../volume_8/lectures_and_discourses/discourses_on_jnana-yoga/jnana-yoga_i.htm)
+
+
 
   
 
-[«](../../volume_9/letters_fifth_series/184_christina.htm) Chronology
-[»](../../volume_8/epistles_fourth_series/194_mademoiselle.htm)  
-[«](../../volume_6/epistles_second_series/164_alberta.htm) Addressee
-[»](../../volume_9/letters_fifth_series/186_alberta.htm)
+  
+
 
 ## LIII
 
@@ -53,4 +47,4 @@ Besnard, Clairoix, Bres Compiegne, Oise, and oblige?
 Your well-wisher,  
 VIVEKANANDA.
 
-</div>
+

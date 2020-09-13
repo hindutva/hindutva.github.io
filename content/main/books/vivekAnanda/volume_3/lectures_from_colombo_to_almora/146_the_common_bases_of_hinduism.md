@@ -2,13 +2,9 @@
 title: THE COMMON BASES OF HINDUISM
 
 ---
-<div>
 
-[←](bhakti_1.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-3](../volume_3_contents.htm) / [Lectures from Colombo to
-Almora](lectures_from_colombo_to_almora_contents.htm)
-/ [→](bhakti_2.htm)
+
+
 
   
 
@@ -587,4 +583,4 @@ not the least desire for our own personal fame, our own personal
 prestige, our own personal advantage, enter into this great work of me
 spiritual regeneration of India!
 
-</div>
+

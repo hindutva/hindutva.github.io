@@ -2,12 +2,9 @@
 title: INDIA'S MISSION
 
 ---
-<div>
 
-[←](an_indian_yogi_in_london.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Interviews](interviews_contents.htm)
-/ [→](india_and_england.htm)
+
+
 
   
 
@@ -201,4 +198,4 @@ powers add not a little to an interesting personality. . . . His vow of
 Sannyasa implies renunciation of position, property, and name, as well
 as the persistent search for spiritual knowledge.
 
-</div>
+

@@ -2,19 +2,14 @@
 title: CIII
 
 ---
-<div>
 
-[←](102_frankincense.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Epistles – Second
-Series](epistles_second_series_contents.htm) / [→](104_mrs_bull.htm)
+
+
 
   
 
-[«](../../volume_9/letters_fifth_series/095_mother.htm) Chronology
-[»](../../volume_9/letters_fifth_series/096_sir.htm)  
-[«](../../volume_9/letters_fifth_series/094_mrs_bull.htm) Addressee
-[»](../../volume_9/letters_fifth_series/097_mrs_bull.htm)
+  
+
 
 ## CIII
 
@@ -36,4 +31,4 @@ Yours with best wishes,
 
 VIVEKANANDA.
 
-</div>
+

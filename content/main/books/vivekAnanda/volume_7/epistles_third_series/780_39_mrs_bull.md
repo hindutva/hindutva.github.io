@@ -2,19 +2,14 @@
 title: XXXIX
 
 ---
-<div>
 
-[←](38_sharat_chandra.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Epistles – Third
-Series](epistles_third_series_contents.htm) / [→](40_shuddhananda.htm)
+
+
 
   
 
-[«](../../volume_6/epistles_second_series/123_mary.htm) Chronology
-[»](../../volume_8/epistles_fourth_series/091_miss_noble.htm)  
-[«](../../volume_9/letters_fifth_series/106_mrs_bull.htm) Addressee
-[»](../../volume_9/letters_fifth_series/112_mrs_bull.htm)
+  
+
 
 ## XXXIX
 
@@ -82,4 +77,4 @@ Yours,
 
 VIVEKANANDA.
 
-</div>
+

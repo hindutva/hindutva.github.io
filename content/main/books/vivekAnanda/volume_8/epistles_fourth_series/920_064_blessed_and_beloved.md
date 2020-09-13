@@ -2,18 +2,14 @@
 title: LXIV
 
 ---
-<div>
 
-[←](063_sturdy.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Epistles – Fourth
-Series](epistles_fourth_series_contents.htm) / [→](065_sharat.htm)
+
+
 
   
 
-[«](../../volume_9/letters_fifth_series/077_sir.htm) Chronology
-[»](../../volume_5/epistles_first_series/055_alasinga.htm)  
-[«](063_sturdy.htm) Addressee [»](066_friend.htm)
+  
+
 
 ## LXIV
 
@@ -67,4 +63,4 @@ Ever yours with love and blessings,
 
 VIVEKANANDA.
 
-</div>
+

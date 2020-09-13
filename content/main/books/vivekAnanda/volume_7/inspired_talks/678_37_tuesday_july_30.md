@@ -4,12 +4,9 @@ title: 'RECORDED BY MISS S. E. WALDO
   (A DISCIPLE)'
 
 ---
-<div>
 
-[←](36_monday_july_29.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Inspired
-Talks](inspired_talks_contents.htm) / [→](38_wednesday_july_31.htm)
+
+
 
   
 
@@ -98,4 +95,4 @@ lost himself. He found all at once that there had never been two birds,
 but that he was all the time that upper bird, serene, majestic, and
 immersed in his own glory.
 
-</div>
+

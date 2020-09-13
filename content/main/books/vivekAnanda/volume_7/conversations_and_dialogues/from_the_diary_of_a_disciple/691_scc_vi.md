@@ -2,14 +2,9 @@
 title: CONVERSATIONS AND DIALOGUES
 
 ---
-<div>
 
-[←](scc_v.htm) [Home](../../../../index.htm) /
-[Complete-Works](../../../complete_works.htm) / [Volume
-7](../../volume_7_contents.htm) / [Conversations and
-Dialogues](../conversations_and_dialogues_contents.htm) / [From the
-Diary of a Disciple](from_the_diary_of_a_disciple_contents.htm)
-/ [→](scc_vii.htm)
+
+
 
   
 
@@ -190,4 +185,4 @@ Thereupon Swamiji said, "I bless you that from this day all your egoism
 of caste, colour, high birth, religious merit and demerit, and all, may
 vanish for ever!". . .
 
-</div>
+

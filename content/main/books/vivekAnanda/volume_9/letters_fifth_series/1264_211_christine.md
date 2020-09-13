@@ -2,15 +2,13 @@
 title: CCXI
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
 
-[←](210_christine.htm)  
-[←Chronology](210_christine.htm)  
-[←Addressee](210_christine.htm)
+
 
 ## CCXI
 
@@ -107,4 +105,4 @@ VIVEKANANDA.
 [Addressee→](212_christine.htm)  
 [Chronology→](212_christine.htm)
 
-</div>
+

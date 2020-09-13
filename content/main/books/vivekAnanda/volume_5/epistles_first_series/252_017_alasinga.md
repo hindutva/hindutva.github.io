@@ -2,18 +2,14 @@
 title: XVII
 
 ---
-<div>
 
-[←](016_sister.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Epistles – First
-Series](epistles_first_series_contents.htm) / [→](018_alasinga.htm)
+
+
 
   
 
-[«](../../volume_6/epistles_second_series/048_mrs_bull.htm) Chronology
-[»](../../volume_9/letters_fifth_series/037_mother.htm)  
-[«](014_alasinga.htm) Addressee [»](018_alasinga.htm)
+  
+
 
 ## XVII
 
@@ -53,4 +49,4 @@ Ever yours affectionately,
 
 VIVEKANANDA.
 
-</div>
+

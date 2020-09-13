@@ -2,19 +2,14 @@
 title: LXXXVI
 
 ---
-<div>
 
-[←](085_your_highness.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Epistles – First
-Series](epistles_first_series_contents.htm) / [→](087_your_highness.htm)
+
+
 
   
 
-[«](../../volume_9/letters_fifth_series/127_christina.htm) Chronology
-[»](../../volume_8/epistles_fourth_series/135_joe.htm)  
-[«](085_your_highness.htm) Addressee
-[»](../../volume_9/letters_fifth_series/128_your_highness.htm)
+  
+
 
 ## LXXXVI
 
@@ -39,4 +34,4 @@ Ever yours in the Lord,
 
 VIVEKANANDA.
 
-</div>
+

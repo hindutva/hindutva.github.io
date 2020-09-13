@@ -4,18 +4,14 @@ title: 'LIV
   1'
 
 ---
-<div>
 
-[←](053_govinda_sahay.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Epistles – Second
-Series](epistles_second_series_contents.htm) / [→](055_akhandananda.htm)
+
+
 
   
 
-[«](../../volume_7/epistles_third_series/24_kali.htm) Chronology
-[»](055_akhandananda.htm)  
-[«](049_swami_ramakrishnananda.htm) Addressee [»](063_shashi.htm)
+  
+
 
 ## LIV [1](#fn1)
 
@@ -199,4 +195,4 @@ VIVEKANANDA.
     Editor  
     Volume 6 Page 200
 
-</div>
+

@@ -2,7 +2,7 @@
 title: PRIEST SWAMI IN TOWN
 
 ---
-<div>
+
 
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
@@ -10,11 +10,7 @@ title: PRIEST SWAMI IN TOWN
 Reports](../newspaper_reports_contents.htm) / [American Newspaper
 Reports](american_newspaper_contents.htm) /
 
-[←](33_baltimore_american_oct_13_1894.htm)
 
-## PRIEST SWAMI IN TOWN
-
-(*New Discoveries*, Vol. 2, pp. 196-200.)
 
 \[*Baltimore News*, October 13, 1894\]
 
@@ -103,4 +99,4 @@ night.
 
 [→](35_baltimore_sunday_herald_oct_14_1894.htm)
 
-</div>
+

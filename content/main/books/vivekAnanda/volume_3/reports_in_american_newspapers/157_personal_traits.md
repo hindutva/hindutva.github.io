@@ -2,13 +2,9 @@
 title: PERSONAL TRAITS
 
 ---
-<div>
 
-[←](at_the_parliament_of_religions.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-3](../volume_3_contents.htm) / [Reports in American
-Newspapers](reports_in_american_newspapers_contents.htm)
-/ [→](reincarnation.htm)
+
+
 
   
 
@@ -61,4 +57,4 @@ Help yourself."
 
 LUCY MONROE.
 
-</div>
+

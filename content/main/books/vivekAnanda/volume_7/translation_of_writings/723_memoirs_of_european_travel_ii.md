@@ -2,12 +2,9 @@
 title: MEMOIRS OF EUROPEAN TRAVEL
 
 ---
-<div>
 
-[←](memoirs_of_european_travel_i.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Translation of
-Writings](translation_of_writings_contents.htm) / [→](addenda.htm)
+
+
 
   
 
@@ -788,4 +785,4 @@ habit of taking chillies, which we observed to begin with Hungary and
 which reached its climax in Rumania and Bulgaria etc., appeared to me to
 beat even your South Indians.
 
-</div>
+

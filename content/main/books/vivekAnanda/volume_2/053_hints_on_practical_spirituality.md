@@ -2,11 +2,9 @@
 title: HINTS ON PRACTICAL SPIRITUALITY
 
 ---
-<div>
 
-[←](the_powers_of_the_mind.htm) [Home](../../index.htm) /
-[Complete-Works](../complete_works.htm) / [Volume
-2](volume_2_contents.htm) / [→](bhakti_or_devotion.htm)
+
+
 
   
 
@@ -438,4 +436,4 @@ that the whole of this universe with all its relations, with all its
 good and all its evil, is but as a series of paintings — scenes on a
 canvas — of which I am the witness.
 
-</div>
+

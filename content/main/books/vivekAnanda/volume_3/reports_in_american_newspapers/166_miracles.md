@@ -2,13 +2,9 @@
 title: MIRACLES
 
 ---
-<div>
 
-[←](hindoo_philosophy.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-3](../volume_3_contents.htm) / [Reports in American
-Newspapers](reports_in_american_newspapers_contents.htm)
-/ [→](the_divinity_of_man.htm)
+
+
 
   
 
@@ -30,4 +26,4 @@ country performing their wonders in the market places for pay. They can
 be seen and known only by those who seek to know the truth, and not
 moved by childish curiosity."
 
-</div>
+

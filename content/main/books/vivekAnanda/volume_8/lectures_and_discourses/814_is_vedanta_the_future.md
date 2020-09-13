@@ -2,13 +2,9 @@
 title: IS VEDANTA THE FUTURE RELIGION?
 
 ---
-<div>
 
-[←](discipleship.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Lectures and
-Discourses](lectures_and_discourses_contents.htm)
-/ [→](../writings_prose/struggle_for_expansion.htm)
+
+
 
   
 
@@ -635,4 +631,4 @@ souls who get over that illusion. The hour comes when great men shall
 arise and cast off these kindergartens of religion and shall make vivid
 and powerful the true religion, the worship of the spirit by the spirit.
 
-</div>
+

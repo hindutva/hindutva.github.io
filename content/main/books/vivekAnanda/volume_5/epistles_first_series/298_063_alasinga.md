@@ -2,19 +2,14 @@
 title: LXIII
 
 ---
-<div>
 
-[←](062_dr_nanjunda_rao.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Epistles – First
-Series](epistles_first_series_contents.htm) / [→](064_alasinga.htm)
+
+
 
   
 
-[«](../../volume_9/letters_fifth_series/098_blessed_and_beloved.htm)
-Chronology [»](064_alasinga.htm)  
-[«](../../volume_7/epistles_third_series/31_alasinga.htm) Addressee
-[»](064_alasinga.htm)
+  
+
 
 ## LXIII
 
@@ -59,4 +54,4 @@ PS. Do not be afraid, money and everything will come soon.
 
 V.
 
-</div>
+

@@ -2,19 +2,14 @@
 title: CLI
 
 ---
-<div>
 
-[←](150_brahmananda.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Epistles – Fourth
-Series](epistles_fourth_series_contents.htm) / [→](152_dhira_mata.htm)
+
+
 
   
 
-[«](../../volume_9/letters_fifth_series/160_brahmananda.htm) Chronology
-[»](../../volume_6/epistles_second_series/151_margot.htm)  
-[«](../../volume_6/epistles_second_series/150_mrs_bull.htm) Addressee
-[»](152_dhira_mata.htm)
+  
+
 
 ## CLI
 
@@ -67,4 +62,4 @@ content.
 Ever your son,  
 VIVEKANANDA.
 
-</div>
+

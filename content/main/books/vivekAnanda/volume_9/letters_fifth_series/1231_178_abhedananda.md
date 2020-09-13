@@ -2,29 +2,13 @@
 title: CLXXVIII
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
 
-[←](177_mrs_hansbrough.htm)  
-[←Chronology](../../volume_8/epistles_fourth_series/186_joe.htm)  
-[←Addressee](170_abhedananda.htm)
-
-## CLXXVIII
-
-*To Swami Abhedananda*
-
-102 E. 58TH STREET,  
-NEW YORK,
-
-*24 July 1900*.
-
-DEAR ABHEDANANDA,
-
-I would have gladly remained here, but *sastây kisti mât*.[1](#fn1) Got
-a fine berth — one room all to myself — on a fine vessel.[2](#fn2) As
+ As
 soon as August comes it will be a terrible Bhida \[crowd\] as the
 companies are reducing prices.
 
@@ -42,7 +26,7 @@ VIVEKANANDA
 [→](179_christina.htm)  
 [Chronology→](../../volume_8/epistles_fourth_series/187_turiyananda.htm)
 
-</div>
+
 
 1.  [^](#fn1_1)A Bengali phrase meaning literally "Checkmate when
     cheap"; that is, "Get while the getting is good".

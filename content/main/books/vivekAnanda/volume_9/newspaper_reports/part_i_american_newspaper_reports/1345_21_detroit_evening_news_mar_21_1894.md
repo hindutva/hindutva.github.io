@@ -2,7 +2,7 @@
 title: WAYSIDE STORIES
 
 ---
-<div>
+
 
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
@@ -10,11 +10,7 @@ title: WAYSIDE STORIES
 Reports](../newspaper_reports_contents.htm) / [American Newspaper
 Reports](american_newspaper_contents.htm) /
 
-[←](20_detroit_tribune_mar_20_1894.htm)
 
-## WAYSIDE STORIES
-
-(*New Discoveries*, Vol. 1, p. 436.)
 
 \[*Detroit Evening News*, March 21, 1894\]
 
@@ -26,4 +22,4 @@ he had heard the Englishmen in India say of the "Yankee."
 
 [→](22_bay_city_times_press_mar_21_1894.htm)
 
-</div>
+

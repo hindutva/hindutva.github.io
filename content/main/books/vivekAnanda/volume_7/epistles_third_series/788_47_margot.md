@@ -2,19 +2,14 @@
 title: XLVII
 
 ---
-<div>
 
-[←](46_mother.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Epistles – Third
-Series](epistles_third_series_contents.htm) / [→](48_mother.htm)
+
+
 
   
 
-[«](../../volume_9/letters_fifth_series/157_margot.htm) Chronology
-[»](../../volume_9/letters_fifth_series/158_mother.htm)  
-[«](../../volume_9/letters_fifth_series/157_margot.htm) Addressee
-[»](../../volume_6/epistles_second_series/151_margot.htm)
+  
+
 
 ## XLVII
 
@@ -60,4 +55,4 @@ Your father,
 
 VIVEKANANDA.  
 
-</div>
+

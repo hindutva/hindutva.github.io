@@ -2,13 +2,9 @@
 title: THE PSYCHIC PRANA
 
 ---
-<div>
 
-[←](prana.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-1](../complete_works_v1_contents.htm) /
-[Raja-Yoga](raja-yoga_contents.htm)
-/ [→](the_control_of_psychic_prana.htm)
+
+
 
   
 
@@ -188,4 +184,4 @@ eternal happiness, if we but know how to approach her. And Râja-Yoga is
 the science of religion, the rationale of all worship, all prayers,
 forms, ceremonies, and miracles.
 
-</div>
+

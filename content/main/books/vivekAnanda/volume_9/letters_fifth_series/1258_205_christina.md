@@ -2,30 +2,13 @@
 title: CCV
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
 
-[←](204_christine.htm)  
-[←Chronology](204_christine.htm)  
-[←Addressee](204_christine.htm)
-
-## CCV
-
-*To Sister Christine*
-
-THE MATH, BELUR,  
-DIST. HOWRAH, BENGAL,
-
-*8th October 1901.*
-
-DEAR CHRISTINA,
-
-Yours of September 9 came to hand yesterday. I congratulate you on your
-successful visit to the Huron Lake; a few more of them (according to
-your letter) will force you to sympathize with our condition — oh, the
+ will force you to sympathize with our condition — oh, the
 gasping and the melting and the puffing and all the rest of them!
 
 However, nothing in the world like a plump, ripe fruit.
@@ -54,4 +37,4 @@ VIVEKANANDA.
 [Addressee→](206_christina.htm)  
 [Chronology→](206_christina.htm)
 
-</div>
+

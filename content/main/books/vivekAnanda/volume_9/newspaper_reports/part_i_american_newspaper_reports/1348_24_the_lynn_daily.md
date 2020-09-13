@@ -2,7 +2,7 @@
 title: THE MANNERS AND CUSTOMS OF INDIA
 
 ---
-<div>
+
 
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
@@ -10,14 +10,7 @@ title: THE MANNERS AND CUSTOMS OF INDIA
 Reports](../newspaper_reports_contents.htm) / [American Newspaper
 Reports](american_newspaper_contents.htm) /
 
-[←](23_saginaw_evening_news_mar_21_1894.htm)
-
-## THE MANNERS AND CUSTOMS OF INDIA
-
-(*The Vedanta Kesari*, 1987 Annual Issue, pp. 445-46 and *New
-Discoveries*, Vol. 2. pp. 37-39.)
-
-\[*The Lynn Daily Evening Item*, (date?)\]
+\]
 
 NORTH SHORE CLUB
 
@@ -82,4 +75,4 @@ on the shifting sand of present enjoyment.
 
 [→](25_ny_daily_tribune_apr_25_1894.htm)
 
-</div>
+

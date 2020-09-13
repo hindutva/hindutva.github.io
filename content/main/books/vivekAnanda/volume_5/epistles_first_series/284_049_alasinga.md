@@ -2,18 +2,14 @@
 title: IL
 
 ---
-<div>
 
-[←](048_friend.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Epistles – First
-Series](epistles_first_series_contents.htm) / [→](050_mrs_bull.htm)
+
+
 
   
 
-[«](../../volume_9/letters_fifth_series/071_sister_christine.htm)
-Chronology [»](050_mrs_bull.htm)  
-[«](043_alasinga.htm) Addressee [»](052_alasinga.htm)
+  
+
 
 ## IL
 
@@ -54,4 +50,4 @@ Ever yours with blessings,
 
 VIVEKANANDA.
 
-</div>
+

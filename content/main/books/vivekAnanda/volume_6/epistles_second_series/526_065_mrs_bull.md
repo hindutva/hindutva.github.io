@@ -2,18 +2,14 @@
 title: LXV
 
 ---
-<div>
 
-[←](064_mrs_bull.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Epistles – Second
-Series](epistles_second_series_contents.htm) / [→](066_mrs_bull.htm)
+
+
 
   
 
-[«](../../volume_5/epistles_first_series/039_alasinga.htm) Chronology
-[»](066_mrs_bull.htm)  
-[«](064_mrs_bull.htm) Addressee [»](066_mrs_bull.htm)
+  
+
 
 ## LXV
 
@@ -40,4 +36,4 @@ Ever gratefully your son,
 
 VIVEKANANDA.
 
-</div>
+

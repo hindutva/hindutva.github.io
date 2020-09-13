@@ -2,26 +2,14 @@
 title: CXII
 
 ---
-<div>
 
-[←](111_blessed_and_beloved.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Epistles – First
-Series](epistles_first_series_contents.htm) / [→](113_joe.htm)
+
+
 
   
 
-[«](../../volume_9/letters_fifth_series/203_christine.htm) Chronology
-[»](../../volume_6/epistles_second_series/168_nivedita.htm)  
-[«](111_blessed_and_beloved.htm) Addressee
+  
 
-## CXII
-
-THE MATH, BELUR,  
-HOWRAH DIST.,  
-*7th September, 1901*.
-
-BLESSED AND BELOVED, (Shri M. N. Banerji.)
 
 I had to consult Brahmananda and others, and they were everyone in
 Calcutta, hence the delay in replying to your last.
@@ -53,4 +41,4 @@ cows have calved.
 
 V.
 
-</div>
+

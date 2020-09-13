@@ -2,21 +2,14 @@
 title: CXVI
 
 ---
-<div>
 
-[←](115_dear.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Epistles – Second
-Series](epistles_second_series_contents.htm) / [→](117_alberta.htm)
+
+
 
   
 
-[«](115_dear.htm) Chronology [»](117_alberta.htm)  
-[«](../../volume_8/epistles_fourth_series/077_babies.htm) Both Sisters  
-[«](112_mary.htm) Mary or Harriet Hale  
-[«](108_sister.htm) Harriet Hale  
-[«](112_mary.htm) Mary Hale
-[»](../../volume_8/epistles_fourth_series/088_mary.htm)
+  
+
 
 ## CXVI
 
@@ -62,4 +55,4 @@ VIVEKANANDA,
 PS. What about Dharmapala? What is he doing? Give him my love if you
 meet him.
 
-</div>
+

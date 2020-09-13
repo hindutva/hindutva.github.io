@@ -2,7 +2,7 @@
 title: AS THE WAVE FOLLOWS WAVE
 
 ---
-<div>
+
 
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
@@ -10,20 +10,7 @@ title: AS THE WAVE FOLLOWS WAVE
 Reports](../newspaper_reports_contents.htm) / [American Newspaper
 Reports](american_newspaper_contents.htm) /
 
-[←](19_detroit_tribune_mar_11_1894.htm)
-
-## AS THE WAVE FOLLOWS WAVE
-
-(*New Discoveries*, Vol. 1, pp. 441-43.)
-
-\[*Detroit Tribune*, March 20, 1894\]
-
-SO SOUL FOLLOWS SOUL, ACCORDING TO KANANDA.
-
-Vive Kananda lectured to an audience of about 150 \[according to the
-*Journal*, 500\] at the Auditorium last night upon "Buddhism, the
-Religion of the Light of Asia." (Of which there is no verbatim report
-available.) Honorable Don M. Dickinson introduced him to the audience.
+ Honorable Don M. Dickinson introduced him to the audience.
 
 "Who shall say that this system of religion is divine and that doomed?"
 asked Mr. Dickinson in his introductory remarks. "Who shall draw the
@@ -76,4 +63,4 @@ christian religion; that the catholic church came from Buddhism.
 
 [→](21_detroit_evening_news_mar_21_1894.htm)
 
-</div>
+

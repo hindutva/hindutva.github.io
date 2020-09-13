@@ -2,13 +2,9 @@
 title: 'CONVERSATIONS AND DIALOGUE '
 
 ---
-<div>
 
-[←](tdfp_xxxiv.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Conversations and
-Dialogues](conversations_and_dialogues_contents.htm)
-/ [→](../translation_of_writings/note.htm)
+
+
 
   
 
@@ -143,4 +139,4 @@ of the question. The custom is terribly rigid. But you have no solution
 of the question, either. It is a terrible thing. It is a great wrong of
 the Western world."
 
-</div>
+

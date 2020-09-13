@@ -2,7 +2,7 @@
 title: VI
 
 ---
-<div>
+
 
 [← ](ii_v_shri_surendra_nath_sen.htm)[Home](../../../index.htm) /
 [Complete-Works](../../complete_works.htm) / [Volume
@@ -989,4 +989,4 @@ whole better than your kind!
     university education so high as to make it very expensive and hence
     almost inaccessible to boys of the middle classes.
 
-</div>
+

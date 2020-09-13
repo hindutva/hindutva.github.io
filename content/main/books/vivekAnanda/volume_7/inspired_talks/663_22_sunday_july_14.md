@@ -4,12 +4,9 @@ title: 'RECORDED BY MISS S. E. WALDO
   (A DISCIPLE)'
 
 ---
-<div>
 
-[←](21_saturday_july_13.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Inspired
-Talks](inspired_talks_contents.htm) / [→](23_monday_july_15.htm)
+
+
 
   
 
@@ -97,4 +94,4 @@ an external and fatalistic doctrine, it is horrible.
     machine is as between a worker and his instrument. Never identify
     yourself with it.
 
-</div>
+

@@ -2,13 +2,9 @@
 title: PLEA FOR TOLERANCE
 
 ---
-<div>
 
-[←](the_hindoo_monk.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-3](../volume_3_contents.htm) / [Reports in American
-Newspapers](reports_in_american_newspapers_contents.htm)
-/ [→](manners_and_customs_in_india.htm)
+
+
 
   
 
@@ -97,4 +93,4 @@ accept Christ but must also bow to Krishna and to Buddha; and when, with
 a fine picture of the cruelty of civilization, he refused to hold Christ
 responsible for the crimes of progress.
 
-</div>
+

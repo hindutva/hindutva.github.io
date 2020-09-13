@@ -2,16 +2,13 @@
 title: XXVI
 
 ---
-<div>
 
-[←](025_alasinga.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Epistles – First
-Series](epistles_first_series_contents.htm) / [→](027_alasinga.htm)
+
+
 
   
 
-[«](025_alasinga.htm) Chronology [»](027_alasinga.htm)
+
 
 ## XXVI
 
@@ -54,4 +51,4 @@ Yours ever in brotherly love,
 
 VIVEKANANDA.
 
-</div>
+

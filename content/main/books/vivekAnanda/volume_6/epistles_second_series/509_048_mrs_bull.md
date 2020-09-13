@@ -2,20 +2,14 @@
 title: XLVIII
 
 ---
-<div>
 
-[←](047_brother_disciples.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Epistles – Second
-Series](epistles_second_series_contents.htm)
-/ [→](049_swami_ramakrishnananda.htm)
+
+
 
   
 
-[«](../../volume_5/epistles_first_series/016_sister.htm) Chronology
-[»](../../volume_5/epistles_first_series/017_alasinga.htm)  
-[«](046_mother_sara.htm) Addressee
-[»](../../volume_9/letters_fifth_series/040_mrs_bull.htm)
+  
+
 
 ## XLVIII
 
@@ -36,4 +30,4 @@ comfortable.
 Yours very sincerely,  
 VIVEKANANDA.
 
-</div>
+

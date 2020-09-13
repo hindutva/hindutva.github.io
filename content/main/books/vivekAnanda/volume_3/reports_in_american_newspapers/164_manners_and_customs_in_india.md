@@ -2,13 +2,9 @@
 title: MANNERS AND CUSTOMS IN INDIA
 
 ---
-<div>
 
-[←](plea_for_tolerance.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-3](../volume_3_contents.htm) / [Reports in American
-Newspapers](reports_in_american_newspapers_contents.htm)
-/ [→](hindoo_philosophy.htm)
+
+
 
   
 
@@ -140,4 +136,4 @@ stand head and shoulders above all other nations.
     known, if a Sannyasin takes a wife he is considered by the Hindu
     society to be a fallen person and beyond the pale.
 
-</div>
+

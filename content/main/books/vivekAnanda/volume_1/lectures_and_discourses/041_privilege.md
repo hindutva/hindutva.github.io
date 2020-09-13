@@ -2,12 +2,9 @@
 title: PRIVILEGE
 
 ---
-<div>
 
-[←](vedanta_and_privilege.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-1](../complete_works_v1_contents.htm) / [Lectures and
-Discourses](lectures_and_discourses_contents.htm) / [→](krishna.htm)
+
+
 
   
 
@@ -213,4 +210,4 @@ liable to lead to quarrels. We must take the whole thing as it is, stand
 on it as our basis and work it out in every part of our lives, as
 individuals and as unit members of society.
 
-</div>
+

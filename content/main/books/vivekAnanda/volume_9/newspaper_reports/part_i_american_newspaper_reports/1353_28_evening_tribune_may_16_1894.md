@@ -2,7 +2,7 @@
 title: LECTURE BY HINDOO MONK
 
 ---
-<div>
+
 
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
@@ -10,16 +10,7 @@ title: LECTURE BY HINDOO MONK
 Reports](../newspaper_reports_contents.htm) / [American Newspaper
 Reports](american_newspaper_contents.htm) /
 
-[←](27_ny_daily_tribune_may_3_1894.htm)
 
-## LECTURE BY HINDOO MONK
-
-(*New Discoveries*, Vol. 2, pp. 65-68.)
-
-Swami Vivekananda Tells About the Religion of High Caste  
-Indians
-
-(Of which no verbatim transcript is available.)
 
 \[Lawrence, Massachusetts, *Evening Tribune*, May 16, 1894\]
 
@@ -114,7 +105,7 @@ centuries old before this republic was born.
 
 [→](29_lawrence_american_may_18_1894.htm)
 
-</div>
+
 
 1.  [^](#fn1_1)Swami Vivekananda may have been referring to the American
     Society for the Prevention of Cruelty to Animals.

@@ -2,12 +2,9 @@
 title: BHAKTI OR DEVOTION
 
 ---
-<div>
 
-[←](hints_on_practical_spirituality.htm) [Home](../../index.htm) /
-[Complete-Works](../complete_works.htm) / [Volume
-2](volume_2_contents.htm)
-/ [→](jnana-yoga/the_necessity_of_religion.htm)
+
+
 
   
 
@@ -487,4 +484,4 @@ transformed. He was approaching God, he was throwing off all vain
 desires, of which he was full before. With desires vanished selfishness,
 and, at the apex, he found that Love, Lover, and Beloved were One.
 
-</div>
+

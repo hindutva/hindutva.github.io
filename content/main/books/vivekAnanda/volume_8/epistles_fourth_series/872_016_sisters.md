@@ -2,17 +2,13 @@
 title: XVI
 
 ---
-<div>
 
-[←](015_diwanji_saheb.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Epistles – Fourth
-Series](epistles_fourth_series_contents.htm) / [→](017_babies.htm)
+
+
 
   
 
-[«](../../volume_9/letters_fifth_series/012_mother.htm) Chronology
-[»](017_babies.htm)  
+  
 Both Sisters [»](017_babies.htm)  
 Mary or Harriet Hale [»](017_babies.htm)  
 Harriet Hale [»](017_babies.htm)  
@@ -48,4 +44,4 @@ Your affectionate brother,
 
 VIVEKANANDA.
 
-</div>
+

@@ -2,13 +2,9 @@
 title: ON THE SEA'S BOSOM
 
 ---
-<div>
 
-[←](the_hymn_of_creation.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Writings: Prose and
-Poems](writings_prose_and_poems_contents.htm)
-/ [→](hinduism_and_shri_ramakrishna.htm)
+
+
 
   
 
@@ -38,4 +34,4 @@ But not grand, O India, nor ennobling:
 Thy waters, widely praised, murmur serene  
 In soothing cadence, without a harsh roar.
 
-</div>
+

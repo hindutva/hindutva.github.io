@@ -2,12 +2,9 @@
 title: STRUGGLE FOR EXPANSION
 
 ---
-<div>
 
-[←](../lectures_and_discourses/is_vedanta_the_future.htm)
-[Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
-/ [Volume 8](../volume_8_contents.htm) / [Writings:
-Prose](writings_prose_contents.htm) / [→](the_birth_of_religion.htm)
+
+
 
   
 
@@ -98,4 +95,4 @@ lowest grade of beings, who can have no such feeling, are also
 struggling for expansion; and according to many, man himself is the
 expansion of these very beings.
 
-</div>
+

@@ -2,7 +2,7 @@
 title: ON THE SWISS ALPS
 
 ---
-<div>
+
 
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
@@ -10,19 +10,7 @@ title: ON THE SWISS ALPS
 Reports](../newspaper_reports_contents.htm) / [Indian Newspaper
 Reports](indian_newspaper_contents.htm) /
 
-[←](11_the_brahmavadin_jul_18_1896.htm)
-
-## ON THE SWISS ALPS
-
-(*Vivekananda in Indian Newspapers*, p. 117.)
-
-\[*The Indian Mirror*, September 22, 1896\]
-
-Swami Vivekananda writes from Lake Luzern \[Lucerne\] Switzerland, under
-date the 23rd of August last. (Evidently an unpublished extract from one
-of the three
-([1](../../../volume_5/epistles_first_series/065_blessed_and_beloved.htm),
-[2](../../../volume_6/epistles_second_series/106_shashi.htm),
+,
 [3](../../../volume_6/epistles_second_series/107_mrs_bull.htm) ) letters
 the Swami wrote from Lucerne (Vide "Epistles", Complete Works, V and
 VI).) He has been walking over several parts of the Cis-Alpine country,
@@ -40,4 +28,4 @@ returning by the next winter. He intends to reside in the Himalayas.
 
 [→](13_maha-bodhi_society_nov_1896.htm)
 
-</div>
+

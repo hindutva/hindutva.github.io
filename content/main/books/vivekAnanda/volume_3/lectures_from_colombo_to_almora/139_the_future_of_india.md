@@ -2,13 +2,9 @@
 title: THE FUTURE OF INDIA
 
 ---
-<div>
 
-[←](the_work_before_us.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-3](../volume_3_contents.htm) / [Lectures from Colombo to
-Almora](lectures_from_colombo_to_almora_contents.htm)
-/ [→](on_charity.htm)
+
+
 
   
 
@@ -606,4 +602,4 @@ Lord, who "comes again and again for the salvation of His own people",
 to quote from our scriptures — may the great Krishna bless us and lead
 us all to the fulfilment of our aims!
 
-</div>
+

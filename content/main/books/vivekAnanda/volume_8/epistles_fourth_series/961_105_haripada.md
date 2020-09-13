@@ -2,18 +2,14 @@
 title: CV
 
 ---
-<div>
 
-[←](104_shuddhananda.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Epistles – Fourth
-Series](epistles_fourth_series_contents.htm) / [→](106_miss_macleod.htm)
+
+
 
   
 
-[«](104_shuddhananda.htm) Chronology [»](106_miss_macleod.htm)  
-[«](../../volume_5/epistles_first_series/006_haripada.htm) Addressee
-[»](133_haripada.htm)
+  
+
 
 ## CV
 
@@ -38,4 +34,4 @@ With blessings,
 
 VIVEKANANDA.
 
-</div>
+

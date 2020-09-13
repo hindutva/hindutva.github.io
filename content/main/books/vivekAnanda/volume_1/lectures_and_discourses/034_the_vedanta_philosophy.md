@@ -2,13 +2,9 @@
 title: THE VEDANTA PHILOSOPHY
 
 ---
-<div>
 
-[←](vedic_religious_ideals.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-1](../complete_works_v1_contents.htm) / [Lectures and
-Discourses](lectures_and_discourses_contents.htm)
-/ [→](reason_and_religion.htm)
+
+
 
   
 
@@ -300,4 +296,4 @@ V.](../../volume_5/questions_and_answers/discussion_at_the_graduate_philosophica
     outside. The Vedanta believes that there is the one Soul, which
     appears as many; and we build on the Sankhya's analysis.
 
-</div>
+

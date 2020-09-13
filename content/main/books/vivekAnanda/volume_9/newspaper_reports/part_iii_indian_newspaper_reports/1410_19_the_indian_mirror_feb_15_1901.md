@@ -2,7 +2,7 @@
 title: SWAMI VIVEKANANDA [ON EDUCATION] AT BELUR
 
 ---
-<div>
+
 
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
@@ -10,11 +10,7 @@ title: SWAMI VIVEKANANDA [ON EDUCATION] AT BELUR
 Reports](../newspaper_reports_contents.htm) / [Indian Newspaper
 Reports](indian_newspaper_contents.htm) /
 
-[←](18_the_indian_mirror_apr_24_1898.htm)
 
-## SWAMI VIVEKANANDA \[ON EDUCATION\] AT BELUR
-
-(*Vivekananda in Indian Newspapers*, p. 215.)
 
 \[*The Indian Mirror*, February 15, 1901\]
 
@@ -71,4 +67,4 @@ future depends.
 
 [→](20_the_indian_social_reformer_jun_16_1901.htm)
 
-</div>
+

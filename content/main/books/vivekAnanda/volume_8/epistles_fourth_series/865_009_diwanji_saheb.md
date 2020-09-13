@@ -2,18 +2,14 @@
 title: IX
 
 ---
-<div>
 
-[←](008_diwanji_saheb.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Epistles – Fourth
-Series](epistles_fourth_series_contents.htm) / [→](010_haripada.htm)
+
+
 
   
 
-[«](008_diwanji_saheb.htm) Chronology
-[»](../../volume_5/epistles_first_series/002_panditji_maharaj.htm)  
-[«](008_diwanji_saheb.htm) Addressee [»](012_diwanji_saheb.htm)
+  
+
 
 ## IX
 
@@ -76,4 +72,4 @@ from the Râkshasas in the shape of the Brahmins of the Kaliyuga.
 
 I have sent a Bengali boy to you. Hope he would be treated kindly.
 
-</div>
+

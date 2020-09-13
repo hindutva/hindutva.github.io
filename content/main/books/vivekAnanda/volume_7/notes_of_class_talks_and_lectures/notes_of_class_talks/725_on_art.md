@@ -2,14 +2,9 @@
 title: ON ART
 
 ---
-<div>
 
-[←](../../translation_of_writings/addenda.htm)
-[Home](../../../../index.htm) /
-[Complete-Works](../../../complete_works.htm) / [Volume
-7](../../volume_7_contents.htm) / [Notes of Class Talks and
-Lectures](../notes_of_class_talks_and_lectures_contents.htm) / [Notes of
-Class Talks](notes_of_class_talks_contents.htm) / [→](on_music.htm)
+
+
 
   
 
@@ -23,4 +18,4 @@ keep up the central interest is very difficult. Another difficult thing
 is stage-management, that is, combining different things in such a
 manner as to keep the central interest intact.
 
-</div>
+

@@ -2,7 +2,7 @@
 title: SAID A UNIVERSAL RELIGION IS IMPOSSIBLE
 
 ---
-<div>
+
 
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
@@ -10,17 +10,7 @@ title: SAID A UNIVERSAL RELIGION IS IMPOSSIBLE
 Reports](../newspaper_reports_contents.htm) / [American Newspaper
 Reports](american_newspaper_contents.htm) /
 
-[←](46_boston_daily_globe_mar_24_1896.htm)
-
-## SAID A UNIVERSAL RELIGION IS IMPOSSIBLE
-
-(*New Discoveries*, Vol. 4, pp.64-65.)
-
-\[*Boston Evening Transcript*, March 27, 1896\]
-
-Swami Vivekananda told the large audience that crowded the Allen
-Gymnasium to hear him speak on the "Ideal of a Universal Religion," last
-night, (Of which no verbatim transcript is available.) that the recent
+ that the recent
 Parliament of Religions at Chicago proved, to that date, that universal
 religion was impossible. "Nature," he said,
 
@@ -41,4 +31,4 @@ for truth's sake is greatest among men.
 
 [→](48_boston_evening_transcript_mar_30_1896.htm)
 
-</div>
+

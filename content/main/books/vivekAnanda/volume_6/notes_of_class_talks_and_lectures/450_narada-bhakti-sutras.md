@@ -2,13 +2,9 @@
 title: NARADA-BHAKTI-SUTRAS
 
 ---
-<div>
 
-[←](mother_worship.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Notes of Class Talks and
-Lectures](notes_of_class_talks_and_lectures_contents.htm)
-/ [→](../writings_prose_and_poems/historical_evolution_of_india.htm)
+
+
 
   
 
@@ -200,4 +196,4 @@ makes His worshippers feel Him.
 Thus following the ancient sages, we have dared to preach the doctrine
 of *Love*, without fearing the jeers of the world.
 
-</div>
+

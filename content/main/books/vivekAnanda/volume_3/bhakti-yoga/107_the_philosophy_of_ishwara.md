@@ -2,12 +2,9 @@
 title: THE PHILOSOPHY OF ISHVARA
 
 ---
-<div>
 
-[←](definition_of_bhakti.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-3](../volume_3_contents.htm) / [Bhakti-Yoga](bhakti-yoga_contents.htm)
-/ [→](spiritual_realisation_the_aim_of_bhakti-yoga.htm)
+
+
 
   
 
@@ -193,4 +190,4 @@ the universe; and after all, the word real means nothing more than what
 has now been pointed out. Such is our philosophical conception of
 Ishvara.
 
-</div>
+

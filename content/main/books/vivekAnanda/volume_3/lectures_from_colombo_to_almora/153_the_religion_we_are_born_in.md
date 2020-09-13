@@ -2,13 +2,9 @@
 title: THE RELIGION WE ARE BORN IN
 
 ---
-<div>
 
-[←](what_have_i_learnt.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-3](../volume_3_contents.htm) / [Lectures from Colombo to
-Almora](lectures_from_colombo_to_almora_contents.htm)
-/ [→](../reports_in_american_newspapers/india_her_religion_and_customs.htm)
+
+
 
   
 
@@ -258,4 +254,4 @@ helping hand, and open the gates of knowledge to one and all, and give
 the downtrodden masses once more their just and legitimate rights and
 privileges."
 
-</div>
+

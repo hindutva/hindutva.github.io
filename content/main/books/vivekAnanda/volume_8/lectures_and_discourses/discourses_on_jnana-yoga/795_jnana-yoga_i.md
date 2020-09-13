@@ -2,15 +2,9 @@
 title: JNANA YOGA - I
 
 ---
-<div>
 
-[←](../../../volume_7/epistles_third_series/53_alberta.htm)
-[Home](../../../../index.htm) /
-[Complete-Works](../../../complete_works.htm) / [Volume
-8](../../volume_8_contents.htm) / [Lectures and
-Discourses](../lectures_and_discourses_contents.htm) / [Discourses on
-Jnana-Yoga](discourses_on_jnana-yoga_contents.htm)
-/ [→](jnana-yoga_ii.htm)
+
+
 
   
 
@@ -107,4 +101,4 @@ with what we do, and to hear nothing, see nothing, talk of nothing but
 the thing in hand. We must put in our whole soul and be intense. Day and
 night tell yourself, "I am He, I am He."
 
-</div>
+

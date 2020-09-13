@@ -2,13 +2,9 @@
 title: FROM FAR OFF INDIA
 
 ---
-<div>
 
-[←](religious_harmony.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-2](../volume_2_contents.htm) / [Reports in American
-Newspapers](reports_in_american_newspapers_contents.htm)
-/ [→](an_evening_with_our_hindu_cousins.htm)
+
+
 
   
 
@@ -61,4 +57,4 @@ in hotels nor to ride in the same cars with white men, and is a being to
 whom no decent man will speak. He said that he had been in the South,
 and spoke from his knowledge and observation.
 
-</div>
+

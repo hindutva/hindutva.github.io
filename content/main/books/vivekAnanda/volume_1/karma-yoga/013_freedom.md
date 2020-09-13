@@ -2,12 +2,9 @@
 title: FREEDOM
 
 ---
-<div>
 
-[←](non-attachment.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-1](../complete_works_v1_contents.htm)
-/ [Karma-Yoga](karma-yoga_contents.htm) / [→](the_ideal.htm)
+
+
 
   
 
@@ -407,4 +404,4 @@ fruits of work; do good for its own sake; then alone will come perfect
 non-attachment. The bonds of the heart will thus break, and we shall
 reap perfect freedom. This freedom is indeed the goal of Karma-Yoga.
 
-</div>
+

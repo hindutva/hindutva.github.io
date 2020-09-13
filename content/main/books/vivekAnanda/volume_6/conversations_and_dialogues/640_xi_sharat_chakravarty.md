@@ -2,13 +2,9 @@
 title: XI
 
 ---
-<div>
 
-[←](x_sharat_chakravarty.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Conversations and
-Dialogues](conversations_and_dialogues_contents.htm)
-/ [→](xii_sharat_chakravarty.htm)
+
+
 
   
 
@@ -78,4 +74,4 @@ divine Incarnations."
 All prostrated before Shri Ramakrishna with this Mantra. In the evening
 Swamiji returned to Baghbazar.
 
-</div>
+

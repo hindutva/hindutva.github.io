@@ -2,17 +2,14 @@
 title: XXV
 
 ---
-<div>
 
-[←](024_blessed_and_beloved.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Epistles – First
-Series](epistles_first_series_contents.htm) / [→](026_dharmapala.htm)
+
+
 
   
 
-[«](024_blessed_and_beloved.htm) Chronology [»](026_dharmapala.htm)  
-[«](024_blessed_and_beloved.htm) Addressee [»](027_alasinga.htm)
+  
+
 
 ## XXV
 
@@ -99,4 +96,4 @@ With all love,
 
 VIVEKANANDA.
 
-</div>
+

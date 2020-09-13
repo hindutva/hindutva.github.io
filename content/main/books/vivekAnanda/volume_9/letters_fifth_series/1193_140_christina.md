@@ -2,15 +2,13 @@
 title: CXL
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
 
-[←](139_miss_macleod.htm)  
-[←Chronology](../../volume_8/epistles_fourth_series/137_sturdy.htm)  
-[←Addressee](138_christina.htm)
+
 
 ## CXL
 
@@ -51,4 +49,4 @@ VIVEKANANDA.
 [Addressee→](141_christina.htm)  
 [Chronology→](141_christina.htm)
 
-</div>
+

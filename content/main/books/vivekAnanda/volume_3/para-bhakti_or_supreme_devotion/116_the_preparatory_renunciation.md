@@ -2,13 +2,9 @@
 title: THE PREPARATORY RENUNCIATION
 
 ---
-<div>
 
-[←](../bhakti-yoga/the_method_and_the_means.htm)
-[Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
-/ [Volume 3](../volume_3_contents.htm) / [Para-Bhakti or Supreme
-Devotion](para-bhakti_or_supreme_devotion_contents.htm)
-/ [→](the_bhaktas_renunciation_results_from_love.htm)
+
+
 
   
 
@@ -108,4 +104,4 @@ harshness, no dryness no struggle, nor repression nor suppression. The
 Bhakta has not to suppress any single one of his emotions, he only
 strives to intensify them and direct them to God.
 
-</div>
+

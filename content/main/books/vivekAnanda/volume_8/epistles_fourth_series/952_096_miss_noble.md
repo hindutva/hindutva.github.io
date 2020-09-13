@@ -2,19 +2,14 @@
 title: XCVI
 
 ---
-<div>
 
-[←](095_miss_noble.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Epistles – Fourth
-Series](epistles_fourth_series_contents.htm) / [→](097_joe_joe.htm)
+
+
 
   
 
-[«](../../volume_5/epistles_first_series/077_sharat_chandra.htm)
-Chronology [»](../../volume_5/epistles_first_series/078_sister.htm)  
-[«](095_miss_noble.htm) Addressee
-[»](../../volume_7/epistles_third_series/41_miss_noble.htm)
+  
+
 
 ## XCVI
 
@@ -59,4 +54,4 @@ With all love, yours ever in the Truth,
 
 VIVEKANANDA.
 
-</div>
+

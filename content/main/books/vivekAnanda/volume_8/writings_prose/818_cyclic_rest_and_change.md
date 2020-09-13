@@ -2,12 +2,9 @@
 title: CYCLIC REST AND CHANGE
 
 ---
-<div>
 
-[←](four_paths_of_yoga.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Writings:
-Prose](writings_prose_contents.htm) / [→](a_preface.htm)
+
+
 
   
 
@@ -89,4 +86,4 @@ God are true in the same sense as are the attributes of nature. Yet we
 must never forget that the Personal God is the very Absolute seen
 through Maya.
 
-</div>
+

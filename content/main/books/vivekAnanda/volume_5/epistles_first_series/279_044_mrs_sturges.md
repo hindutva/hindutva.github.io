@@ -2,17 +2,13 @@
 title: XLIV
 
 ---
-<div>
 
-[←](043_alasinga.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Epistles – First
-Series](epistles_first_series_contents.htm) / [→](045_mother.htm)
+
+
 
   
 
-[«](../../volume_9/letters_fifth_series/064_mother.htm) Chronology
-[»](../../volume_9/letters_fifth_series/065_mother.htm)
+
 
 ## XLIV
 
@@ -54,4 +50,4 @@ Your son,
 
 VIVEKANANDA.
 
-</div>
+

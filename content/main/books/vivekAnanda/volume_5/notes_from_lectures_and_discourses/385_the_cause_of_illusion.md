@@ -2,13 +2,9 @@
 title: THE CAUSE OF ILLUSION
 
 ---
-<div>
 
-[←](on_jnana-yoga.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Notes from Lectures and
-Discourses](notes_from_lectures_and_discourses_contents.htm)
-/ [→](evolution.htm)
+
+
 
   
 
@@ -48,4 +44,4 @@ If I try to think I am lying dead, what have I to imagine? That I am
 standing and looking down at myself, at some dead body. So that I cannot
 objectify myself.
 
-</div>
+

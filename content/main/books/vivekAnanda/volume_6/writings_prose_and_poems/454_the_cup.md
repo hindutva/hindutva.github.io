@@ -2,12 +2,9 @@
 title: 'THE CUP '
 
 ---
-<div>
 
-[←](my_play_is_done.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Writings: Prose and
-Poems](writings_prose_and_poems_contents.htm) / [→](a_benediction.htm)
+
+
 
   
 
@@ -32,4 +29,4 @@ And in My universe hath measured place,
 Take it. I do not bid you understand.  
 I bid you close your eyes to see My face.
 
-</div>
+

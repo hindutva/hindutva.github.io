@@ -2,13 +2,9 @@
 title: ON PROFESSOR MAX MÜLLER
 
 ---
-<div>
 
-[←](on_dr_paul_deussen.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-4](..%5Cvolume_4_contents.htm) / [Writings:
-Prose](writings_prose_contents.htm)
-/ [→](sketch_of_the_life_of_pavhari_baba.htm)
+
+
 
   
 
@@ -159,4 +155,4 @@ rooted in his heart."
 His life has been a blessing to the world; and may it be many, many
 years more, before he changes the present plane of his existence!
 
-</div>
+

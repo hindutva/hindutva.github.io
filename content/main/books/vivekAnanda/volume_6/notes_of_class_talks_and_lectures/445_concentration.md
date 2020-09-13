@@ -2,13 +2,9 @@
 title: CONCENTRATION
 
 ---
-<div>
 
-[←](notes_taken_down_in_madras.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Notes of Class Talks and
-Lectures](notes_of_class_talks_and_lectures_contents.htm)
-/ [→](the_power_of_the_mind.htm)
+
+
 
   
 
@@ -61,4 +57,4 @@ appearance, unconsciousness and superconsciousness are the same; but
 they differ as a lump of clay from a lump of gold. The one whose whole
 soul is given up to God has reached the superconscious plane.
 
-</div>
+

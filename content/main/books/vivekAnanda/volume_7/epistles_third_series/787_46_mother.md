@@ -2,18 +2,14 @@
 title: XLVI
 
 ---
-<div>
 
-[←](45_mrs_leggett.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Epistles – Third
-Series](epistles_third_series_contents.htm) / [→](47_margot.htm)
+
+
 
   
 
-[«](45_mrs_leggett.htm) Chronology
-[»](../../volume_9/letters_fifth_series/155_dhira_mata.htm)  
-[«](45_mrs_leggett.htm) Addressee [»](48_mother.htm)
+  
+
 
 ## XLVI
 
@@ -36,4 +32,4 @@ Ever your son,
 
 VIVEKANANDA.
 
-</div>
+

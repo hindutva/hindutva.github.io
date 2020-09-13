@@ -2,12 +2,9 @@
 title: THE BIRTH OF RELIGION
 
 ---
-<div>
 
-[←](struggle_for_expansion.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Writings:
-Prose](writings_prose_contents.htm) / [→](four_paths_of_yoga.htm)
+
+
 
   
 
@@ -125,4 +122,4 @@ end of the Aryan life is to see God, to see the face of the Beloved,
 because without Him he cannot live. "Without Thy presence, the sun, the
 moon, and the stars lose their light."
 
-</div>
+

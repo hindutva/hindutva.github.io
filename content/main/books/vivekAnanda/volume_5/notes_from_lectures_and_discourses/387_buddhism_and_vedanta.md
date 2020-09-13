@@ -2,13 +2,9 @@
 title: BUDDHISM AND VEDANTA
 
 ---
-<div>
 
-[←](evolution.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Notes from Lectures and
-Discourses](notes_from_lectures_and_discourses_contents.htm)
-/ [→](on_the_vedanta_philosophy.htm)
+
+
 
   
 
@@ -72,4 +68,4 @@ come to this by negation. When every phenomenon has been negatived,
 whatever remains, that is It. That cannot be expressed, cannot be
 manifested, because the manifestation will be, again, will.
 
-</div>
+

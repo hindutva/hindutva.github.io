@@ -2,12 +2,9 @@
 title: KARMA IN ITS EFFECT ON CHARACTER
 
 ---
-<div>
 
-[←](../addresses_at_the_parliament/v1_c1_final_session.htm)
-[Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
-/ [Volume 1](../complete_works_v1_contents.htm)
-/ [Karma-Yoga](karma-yoga_contents.htm) / [→](each_is_great.htm)
+
+
 
   
 
@@ -260,4 +257,4 @@ become perfectly unselfish; and the moment we attain to that, all our
 powers will be concentrated, and the knowledge which is ours will be
 manifest.
 
-</div>
+

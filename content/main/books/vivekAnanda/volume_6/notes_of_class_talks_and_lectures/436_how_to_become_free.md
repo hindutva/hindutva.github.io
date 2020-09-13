@@ -2,13 +2,9 @@
 title: HOW TO BECOME FREE
 
 ---
-<div>
 
-[←](the_reality_and_shadow.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Notes of Class Talks and
-Lectures](notes_of_class_talks_and_lectures_contents.htm)
-/ [→](soul_and_god.htm)
+
+
 
   
 
@@ -63,4 +59,4 @@ blessed.
 
 Time, space, and causation we call Maya.
 
-</div>
+

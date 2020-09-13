@@ -2,18 +2,14 @@
 title: CVII
 
 ---
-<div>
 
-[←](106_shashi.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Epistles – Second
-Series](epistles_second_series_contents.htm) / [→](108_sister.htm)
+
+
 
   
 
-[«](106_shashi.htm) Chronology
-[»](../../volume_5/epistles_first_series/066_nanjunda_rao.htm)  
-[«](104_mrs_bull.htm) Addressee [»](111_mrs_bull.htm)
+  
+
 
 ## CVII
 
@@ -72,4 +68,4 @@ Boston, or any other place in the U.S., it must receive them and keep
 them and provide for them. As for me, I am as good as retired. I have
 played my part in the world.
 
-</div>
+

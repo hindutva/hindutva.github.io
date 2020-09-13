@@ -2,7 +2,7 @@
 title: RESPONSE TO WELCOME
 
 ---
-<div>
+
 
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
@@ -10,21 +10,7 @@ title: RESPONSE TO WELCOME
 Reports](../newspaper_reports_contents.htm) / [American Newspaper
 Reports](american_newspaper_contents.htm) /
 
-[←](note.htm)
 
-## RESPONSE TO WELCOME
-
-(*New Discoveries*, Vol. 1, pp. 83-84.)
-
-*\[Editorial synthesis of four Chicago newspaper reports from:*
-
-Herald, Inter Ocean, Tribune, *and* Record,
-
-*ca. September 11, 1893\]*
-
-(Cf. ["Response to Welcome", *Complete Works* I:
-3-4](../../../volume_1/addresses_at_the_parliament/v1_c1_response_to_welcome.htm)
-, for a somewhat different version.)
 
 \[Sisters and Brothers of America,\]
 
@@ -79,4 +65,4 @@ through different ways.
 
 [→](02_chicago_record_sep_11_1893.htm)
 
-</div>
+

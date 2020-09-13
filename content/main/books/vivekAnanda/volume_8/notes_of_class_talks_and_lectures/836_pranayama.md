@@ -2,13 +2,9 @@
 title: PRANAYAMA
 
 ---
-<div>
 
-[←](the_divine_incarnation.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Notes of Class Talks and
-Lectures](notes_of_class_talks_and_lectures_contents.htm)
-/ [→](women_of_the_east.htm)
+
+
 
   
 
@@ -172,4 +168,4 @@ were. New channels for thought will be made in the brain, nerves which
 have not acted in your whole life will begin to work, and a whole new
 series of changes will come in the body itself.
 
-</div>
+

@@ -2,18 +2,14 @@
 title: CLXXXVII
 
 ---
-<div>
 
-[←](186_joe.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Epistles – Fourth
-Series](epistles_fourth_series_contents.htm) / [→](188_dear.htm)
+
+
 
   
 
-[«](../../volume_9/letters_fifth_series/178_abhedananda.htm) Chronology
-[»](188_dear.htm)  
-[«](184_turiyananda.htm) Addressee [»](189_hari.htm)
+  
+
 
 ## CLXXXVII
 
@@ -47,4 +43,4 @@ With all love,
 Ever yours in the Lord,  
 VIVEKANANDA.
 
-</div>
+

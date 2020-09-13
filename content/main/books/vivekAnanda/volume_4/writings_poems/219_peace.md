@@ -2,13 +2,9 @@
 title: PEACE
 
 ---
-<div>
 
-[←](the_song_of_the_sannyasin.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-4](../volume_4_contents.htm) / [Writings:
-Poems](writings_poems_contents.htm)
-/ [→](../translation_prose/the_problem_of_modern_india.htm)
+
+
 
   
 
@@ -52,4 +48,4 @@ To spread the smiling form
 It is the Goal of Life,  
 And Peace — its only home!
 
-</div>
+

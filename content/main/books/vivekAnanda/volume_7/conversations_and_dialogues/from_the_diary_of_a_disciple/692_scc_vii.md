@@ -2,14 +2,9 @@
 title: CONVERSATIONS AND DIALOGUES
 
 ---
-<div>
 
-[←](scc_vi.htm) [Home](../../../../index.htm) /
-[Complete-Works](../../../complete_works.htm) / [Volume
-7](../../volume_7_contents.htm) / [Conversations and
-Dialogues](../conversations_and_dialogues_contents.htm) / [From the
-Diary of a Disciple](from_the_diary_of_a_disciple_contents.htm)
-/ [→](scc_viii.htm)
+
+
 
   
 
@@ -248,4 +243,4 @@ others and go round to the doors of people carrying this message of
 fearlessness "उत्तिष्ठत जाग्रत प्राप्य वरान् निबोधत — Arise, awake, and
 stop not till the goal is reached."
 
-</div>
+

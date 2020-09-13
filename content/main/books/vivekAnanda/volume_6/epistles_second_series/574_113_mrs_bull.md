@@ -2,18 +2,14 @@
 title: CXIII
 
 ---
-<div>
 
-[←](112_mary.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Epistles – Second
-Series](epistles_second_series_contents.htm) / [→](114_lalaji.htm)
+
+
 
   
 
-[«](../../volume_5/epistles_first_series/071_alasinga.htm) Chronology
-[»](../../volume_5/epistles_first_series/072_alasinga.htm)  
-[«](111_mrs_bull.htm) Addressee [»](114_lalaji.htm)
+  
+
 
 ## CXIII
 
@@ -40,4 +36,4 @@ Yours etc.,
 
 VIVEKANANDA.
 
-</div>
+

@@ -2,12 +2,9 @@
 title: PAPER ON HINDUISM
 
 ---
-<div>
 
-[←](v1_c1_why_we_disagreee.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-1](../complete_works_v1_contents.htm) / [Addresses at The Parliament of
-Religions](addresses_at_the_parliament.htm) / [→](v1_c1_crying_need.htm)
+
+
 
   
 
@@ -488,4 +485,4 @@ flag of harmony.
     Swami Vivekananda in The West — New Discoveries, Marie Louise Burke
     (Vol 1, Page 143).
 
-</div>
+

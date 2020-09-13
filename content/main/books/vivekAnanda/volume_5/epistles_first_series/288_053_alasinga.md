@@ -2,18 +2,14 @@
 title: LIII
 
 ---
-<div>
 
-[←](054_alasinga.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Epistles – First
-Series](epistles_first_series_contents.htm) / [→](054_alasinga.htm)
+
+
 
   
 
-[«](../../volume_8/epistles_fourth_series/055_joe_joe.htm) Chronology
-[»](../../volume_9/letters_fifth_series/072_mckindley.htm)  
-[«](052_alasinga.htm) Addressee [»](054_alasinga.htm)
+  
+
 
 ## LIII
 
@@ -39,4 +35,4 @@ Yours with love,
 
 VIVEKANANDA.
 
-</div>
+

@@ -2,7 +2,7 @@
 title: HINDOO MONK LECTURES
 
 ---
-<div>
+
 
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
@@ -10,11 +10,7 @@ title: HINDOO MONK LECTURES
 Reports](../newspaper_reports_contents.htm) / [American Newspaper
 Reports](american_newspaper_contents.htm) /
 
-[←](55_unity_feb_1900.htm)
 
-## HINDOO MONK LECTURES
-
-(*New Discoveries*, Vol. 5, pp. 315-16.)
 
 \[*San Francisco Chronicle*, February 24, 1900\]
 
@@ -44,4 +40,4 @@ developed.
 
 [→](57_oakland_tribune_feb_26_1900.htm)
 
-</div>
+

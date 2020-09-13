@@ -2,18 +2,14 @@
 title: XXVIII
 
 ---
-<div>
 
-[←](027_akhandananda.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Epistles – Second
-Series](epistles_second_series_contents.htm) / [→](029_sir.htm)
+
+
 
   
 
-[«](027_akhandananda.htm) Chronology
-[»](../../volume_7/epistles_third_series/06_sir.htm)  
-[«](027_akhandananda.htm) Addressee [»](055_akhandananda.htm)
+  
+
 
 ## XXVIII
 
@@ -58,4 +54,4 @@ Yours affectionately,
 
 VIVEKANANDA.
 
-</div>
+

@@ -2,15 +2,13 @@
 title: CXXIX
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
 
-[←](128_your_highness.htm)  
-[←Chronology](../../volume_5/epistles_first_series/087_your_highness.htm)  
-[←Addressee](../../volume_5/epistles_first_series/087_your_highness.htm)
+
 
 ## CXXIX
 
@@ -65,4 +63,4 @@ VIVEKANANDA
 [Addressee→](../../volume_5/epistles_first_series/088_your_highness.htm)  
 [Chronology→](../../volume_5/epistles_first_series/088_your_highness.htm)
 
-</div>
+

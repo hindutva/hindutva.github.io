@@ -2,18 +2,14 @@
 title: XXI
 
 ---
-<div>
 
-[←](20_adhyapakji.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Epistles – Third
-Series](epistles_third_series_contents.htm) / [→](22_adhyapakji.htm)
+
+
 
   
 
-[«](../../volume_5/epistles_first_series/009_sharat.htm) Chronology
-[»](../../volume_5/epistles_first_series/010_alasinga.htm)  
-[«](20_adhyapakji.htm) Addressee [»](22_adhyapakji.htm)
+  
+
 
 ## XXI
 
@@ -90,4 +86,4 @@ Yours ever affectionately,
 
 VIVEKANANDA.
 
-</div>
+

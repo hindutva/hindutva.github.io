@@ -2,13 +2,9 @@
 title: SOME CUSTOMS OF THE HINDUS
 
 ---
-<div>
 
-[←](child_widows_of_india.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-2](../volume_2_contents.htm) / [Reports in American
-Newspapers](reports_in_american_newspapers_contents.htm)
-/ [→](../../volume_3/lectures_and_discourses/unity_the_goal_of_religion.htm)
+
+
 
   
 
@@ -110,4 +106,4 @@ bushels of abuses, carloads of vituperation and shiploads of
 condemnations, let an endless stream of love go forth. Let us all be
 men"
 
-</div>
+

@@ -2,12 +2,9 @@
 title: AN INTERESTING CORRESPONDENCE
 
 ---
-<div>
 
-[←](../writings_prose/a_preface.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Writings:
-Poems](writings_poems_contents.htm) / [→](thou_blessed_dream.htm)
+
+
 
   
 
@@ -238,4 +235,4 @@ These lines to thee, Sister Mary,
 Tit for tat" — a monkey chat,  
        For monk alone can make.
 
-</div>
+

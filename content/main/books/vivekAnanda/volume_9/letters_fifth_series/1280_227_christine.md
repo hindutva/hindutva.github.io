@@ -2,15 +2,13 @@
 title: CCXXVII
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
 
-[←](226_christine.htm)  
-[←Chronology](226_christine.htm)  
-[←Addressee](226_christine.htm)
+
 
 ## CCXXVII
 
@@ -50,7 +48,7 @@ abdominal regions: "It is fearful to see!"
 
 [→](../lectures_and_discourses/lectures_and_discourses_contents.htm)
 
-</div>
+
 
 1.  [^](#fn1_1)Swami Abhayananda, one of Swami Vivekananda's Sannyasin
     disciples.

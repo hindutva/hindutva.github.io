@@ -2,14 +2,9 @@
 title: 'CONVERSATIONS AND DIALOGUES '
 
 ---
-<div>
 
-[←](scc_xxviii.htm) [Home](../../../../index.htm) /
-[Complete-Works](../../../complete_works.htm) / [Volume
-7](../../volume_7_contents.htm) / [Conversations and
-Dialogues](../conversations_and_dialogues_contents.htm) / [From the
-Diary of a Disciple](from_the_diary_of_a_disciple_contents.htm)
-/ [→](../priya_nath_sinha/pns_xxx.htm)
+
+
 
   
 
@@ -160,4 +155,4 @@ disciple had no knowledge of the impending catastrophe. Getting the news
 on the second day of Swamiji's passing away, he came to the Math, and
 therefore he had not the good fortune to see his physical form again!
 
-</div>
+

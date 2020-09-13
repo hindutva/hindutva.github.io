@@ -2,14 +2,9 @@
 title: THE SCIENCE OF YOGA
 
 ---
-<div>
 
-[←](buddhism.htm) [Home](../../../../index.htm) /
-[Complete-Works](../../../complete_works.htm) / [Volume
-7](../../volume_7_contents.htm) / [Notes of Class Talks and
-Lectures](../notes_of_class_talks_and_lectures_contents.htm) / [Notes of
-Lectures](notes_of_lectures_contents.htm)
-/ [→](../../epistles_third_series/note.htm)
+
+
 
   
 
@@ -228,4 +223,4 @@ Therefore the training begins with the body itself, \[until ultimately\]
 the spirit manifests itself. . . . The central idea in all this training
 is to attain to that power of concentration, the power of meditation.
 
-</div>
+

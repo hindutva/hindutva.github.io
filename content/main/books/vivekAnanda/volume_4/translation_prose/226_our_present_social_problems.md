@@ -2,18 +2,13 @@
 title: OUR PRESENT SOCIAL PROBLEMS
 
 ---
-<div>
 
-[←](the_education_that_india_needs.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-4](../volume_4_contents.htm) / [Translations:
-Prose](translation_prose_contents.htm)
-/ [→](../translation_poems/to_a_friend.htm)
+
+
 
   
 
-[«](../../volume_6/epistles_second_series/144_dear.htm) Chronology
-[»](../../volume_6/epistles_second_series/145_dhira_mata.htm)  
+  
    Addressee [»](../../volume_5/epistles_first_series/089_mother.htm)
 
 ## OUR PRESENT SOCIAL PROBLEMS
@@ -169,4 +164,4 @@ realisation of Brahman everywhere and in everything. Then —
 injure the Self by the self, and so goes to the Supreme Goal" (Gitâ,
 XIII. 28).
 
-</div>
+

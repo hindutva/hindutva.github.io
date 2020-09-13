@@ -2,13 +2,9 @@
 title: PRAYER
 
 ---
-<div>
 
-[←](../lectures_and_discourses/one_existence_appearing_as_many.htm)
-[Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
-/ [Volume 3](../volume_3_contents.htm)
-/ [Bhakti-Yoga](bhakti-yoga_contents.htm)
-/ [→](the_philosophy_of_ishwara.htm)
+
+
 
   
 
@@ -201,4 +197,4 @@ therefore, that Bhakti is a series or succession of mental efforts at
 religious realisation beginning with ordinary worship and ending in a
 supreme intensity of love for Ishvara.
 
-</div>
+

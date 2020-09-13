@@ -2,12 +2,9 @@
 title: THE ABROAD AND THE PROBLEMS AT HOME
 
 ---
-<div>
 
-[←](with_the_swami_vivekananda_at_madura.htm) [Home](../../../index.htm)
-/ [Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Interviews](interviews_contents.htm)
-/ [→](the_missionary_work.htm)
+
+
 
   
 
@@ -302,4 +299,4 @@ that fell from the Swami was that he was dead against all political
 entanglements of Indian and European problems. The interview then
 terminated.
 
-</div>
+

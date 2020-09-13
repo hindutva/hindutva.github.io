@@ -4,12 +4,9 @@ title: 'RECORDED BY MISS S. E. WALDO
   (A DISCIPLE)'
 
 ---
-<div>
 
-[←](16_monday_july_8.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Inspired
-Talks](inspired_talks_contents.htm) / [→](18_wednesday_july_10.htm)
+
+
 
   
 
@@ -71,4 +68,4 @@ people's hands is like no knowledge and no money at all."
 
 Shankara was regarded by many as an incarnation of Shiva.
 
-</div>
+

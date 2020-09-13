@@ -2,19 +2,14 @@
 title: LXXXIII
 
 ---
-<div>
 
-[←](082_blessed_and_beloved.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Epistles – Fourth
-Series](epistles_fourth_series_contents.htm) / [→](084_friend.htm)
+
+
 
   
 
-[«](082_blessed_and_beloved.htm) Chronology
-[»](../../volume_5/epistles_first_series/065_blessed_and_beloved.htm)  
-[«](082_blessed_and_beloved.htm) Addressee
-[»](../../volume_5/epistles_first_series/065_blessed_and_beloved.htm)
+  
+
 
 ## LXXXIII
 
@@ -52,4 +47,4 @@ With everlasting love and blessings,
 
 VIVEKANANDA.
 
-</div>
+

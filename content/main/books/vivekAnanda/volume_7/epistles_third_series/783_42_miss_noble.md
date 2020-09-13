@@ -2,19 +2,14 @@
 title: XLII
 
 ---
-<div>
 
-[←](41_miss_noble.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Epistles – Third
-Series](epistles_third_series_contents.htm) / [→](43_madam.htm)
+
+
 
   
 
-[«](../../volume_5/epistles_first_series/079_mother.htm) Chronology
-[»](../../volume_8/epistles_fourth_series/100_shashi.htm)  
-[«](41_miss_noble.htm) Addressee
-[»](../../volume_8/epistles_fourth_series/110_margo.htm)
+  
+
 
 ## XLII
 
@@ -99,4 +94,4 @@ Yours ever in the Lord,
 
 VIVEKANANDA.
 
-</div>
+

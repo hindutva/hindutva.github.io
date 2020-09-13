@@ -2,13 +2,9 @@
 title: LESSONS ON RAJA-YOGA
 
 ---
-<div>
 
-[←](the_power_of_the_mind.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Notes of Class Talks and
-Lectures](notes_of_class_talks_and_lectures_contents.htm)
-/ [→](lessons_on_bhakti-yoga.htm)
+
+
 
   
 
@@ -316,4 +312,4 @@ the science of religion is reached, and this was attained thousands of y
 ears ago. Perfect unity is reached when man says, "I and my Father are
 one".
 
-</div>
+

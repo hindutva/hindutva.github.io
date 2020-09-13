@@ -2,25 +2,17 @@
 title: XXIII
 
 ---
-<div>
 
-[←](022_mother.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Epistles – Fourth
-Series](epistles_fourth_series_contents.htm) / [→](024_babies.htm)
+
+
 
   
 
-[«](022_mother.htm) Chronology
-[»](../../volume_5/epistles_first_series/011_alasinga.htm)  
-[«](../../volume_6/epistles_second_series/043_sisters.htm) Both Sisters
-[»](024_babies.htm)  
-[«](../../volume_6/epistles_second_series/043_sisters.htm) Mary or
-Harriet Hale [»](024_babies.htm)  
-[«](../../volume_6/epistles_second_series/043_sisters.htm) Harriet Hale
-[»](024_babies.htm)  
-[«](../../volume_6/epistles_second_series/043_sisters.htm) Mary Hale
-[»](024_babies.htm)
+  
+  
+  
+  
+
 
 ## XXIII
 
@@ -53,4 +45,4 @@ Yours affectionately,
 
 VIVEKANANDA.
 
-</div>
+

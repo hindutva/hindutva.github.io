@@ -2,13 +2,9 @@
 title: WORLD-WIDE UNITY
 
 ---
-<div>
 
-[←](the_goal_and_the_methods_of_realisation.htm)
-[Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
-/ [Volume 5](../volume_5_contents.htm) / [Notes from Lectures and
-Discourses](notes_from_lectures_and_discourses_contents.htm)
-/ [→](the_aim_of_raja-yoga.htm)
+
+
 
   
 
@@ -29,4 +25,4 @@ of God. It is not the man who believes a certain something, but the man
 who does the will of the Father in heaven, who is right. On this basis —
 being right and doing right — the whole world can unite.
 
-</div>
+

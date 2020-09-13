@@ -2,18 +2,14 @@
 title: CXCI
 
 ---
-<div>
 
-[←](190_john_fox.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Epistles – Fourth
-Series](epistles_fourth_series_contents.htm) / [→](192_hari.htm)
+
+
 
   
 
-[«](../../volume_9/letters_fifth_series/181_christine.htm) Chronology
-[»](../../volume_9/letters_fifth_series/182_nivedita.htm)  
-[«](189_hari.htm) Addressee [»](192_hari.htm)
+  
+
 
 ## CXCI
 
@@ -51,4 +47,4 @@ VIVEKANANDA.
 
 PS. Convey my love to all.
 
-</div>
+

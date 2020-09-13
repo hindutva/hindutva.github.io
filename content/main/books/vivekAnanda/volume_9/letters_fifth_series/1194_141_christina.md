@@ -2,29 +2,13 @@
 title: CXLI
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
 
-[←](140_christina.htm)  
-[←Chronology](140_christina.htm)  
-[←Addressee](140_christina.htm)
-
-## CXLI
-
-*To Sister Christine*
-
-MARSEILLES,
-
-*23rd July 1899*.
-
-MY DEAR CHRISTINA,
-
-Your very, very welcome wire just came. By next Sunday[1](#fn1) we
-arrive in London, Albert Dock.[2](#fn2) We are a party of four: myself,
-another Sannyasin,[3](#fn3) a Calcutta boy[4](#fn4) going to study in
+ going to study in
 America, and Miss \[Margaret\] Noble. Miss Noble is a young lady from
 Wimbledon, near London, who has been working in India on the education
 of girls.
@@ -63,7 +47,7 @@ VIVEKANANDA.
 [Addressee→](142_sister_christine.htm)  
 [Chronology→](142_sister_christine.htm)
 
-</div>
+
 
 1.  [^](#fn1_1)Perhaps at Marseilles Swami Vivekananda received
     information that their ship, the S.S. Golconda, would reach London

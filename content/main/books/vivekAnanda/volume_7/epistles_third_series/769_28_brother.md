@@ -2,17 +2,13 @@
 title: XXVIII
 
 ---
-<div>
 
-[←](27_alasinga.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Epistles – Third
-Series](epistles_third_series_contents.htm) / [→](29_dear.htm)
+
+
 
   
 
-[«](../../volume_6/epistles_second_series/064_mrs_bull.htm) Chronology
-[»](../../volume_8/epistles_fourth_series/041_friend.htm)  
+  
 Addressee [»](37_friend.htm)
 
 ## XXVIII
@@ -41,4 +37,4 @@ I remain Yours ever truly,
 
 VIVEKANANDA.
 
-</div>
+

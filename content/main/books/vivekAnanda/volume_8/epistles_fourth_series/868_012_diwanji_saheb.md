@@ -2,19 +2,14 @@
 title: XII
 
 ---
-<div>
 
-[←](011_alasinga.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Epistles – Fourth
-Series](epistles_fourth_series_contents.htm)
-/ [→](013_diwanji_saheb.htm)
+
+
 
   
 
-[«](../../volume_6/epistles_second_series/038_doctor.htm) Chronology
-[»](013_diwanji_saheb.htm)  
-[«](009_diwanji_saheb.htm) Addressee [»](013_diwanji_saheb.htm)
+  
+
 
 ## XII
 
@@ -57,4 +52,4 @@ great Father of Mercies. Amen!
 Yours affectionately,  
 VIVEKANANDA.
 
-</div>
+

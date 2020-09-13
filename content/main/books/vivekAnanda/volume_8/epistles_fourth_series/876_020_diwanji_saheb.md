@@ -2,18 +2,14 @@
 title: XX
 
 ---
-<div>
 
-[←](019_sister.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Epistles – Fourth
-Series](epistles_fourth_series_contents.htm) / [→](021_dear.htm)
+
+
 
   
 
-[«](../../volume_7/epistles_third_series/22_adhyapakji.htm) Chronology
-[»](../../volume_4/writings_prose/our_duty_to_the_masses.htm)  
-[«](015_diwanji_saheb.htm) Addressee [»](029_diwanji_saheb.htm)
+  
+
 
 ## XX
 
@@ -155,4 +151,4 @@ Ever yours in gratitude,
 
 VIVEKANANDA.
 
-</div>
+

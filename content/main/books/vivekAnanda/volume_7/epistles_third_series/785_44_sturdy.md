@@ -2,19 +2,14 @@
 title: XLIV
 
 ---
-<div>
 
-[←](43_madam.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Epistles – Third
-Series](epistles_third_series_contents.htm) / [→](45_mrs_leggett.htm)
+
+
 
   
 
-[«](../../volume_9/letters_fifth_series/154_christina.htm) Chronology
-[»](45_mrs_leggett.htm)  
-[«](../../volume_8/epistles_fourth_series/146_sturdy.htm) Addressee
-[»](../../volume_5/epistles_first_series/095_sturdy.htm)
+  
+
 
 ## XLIV
 
@@ -160,4 +155,4 @@ Ever yours,
 
 VIVEKANANDA.
 
-</div>
+

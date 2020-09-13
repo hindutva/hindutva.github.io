@@ -2,15 +2,13 @@
 title: CCIII
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
 
-[←](202_christine.htm)  
-[←Chronology](../../volume_5/epistles_first_series/111_blessed_and_beloved.htm)  
-[←Addressee](202_christine.htm)
+
 
 ## CCIII
 
@@ -110,7 +108,7 @@ VIVEKANANDA.
 [Addressee→](204_christine.htm)  
 [Chronology→](../../volume_5/epistles_first_series/112_blessed_and_beloved.htm)
 
-</div>
+
 
 1.  [^](#fn1_1)The quotation is from a song entitled "Camptown Races" by
     the American composer Stephen Foster.

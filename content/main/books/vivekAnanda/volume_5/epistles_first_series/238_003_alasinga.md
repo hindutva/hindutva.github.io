@@ -2,19 +2,14 @@
 title: III
 
 ---
-<div>
 
-[←](002_panditji_maharaj.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Epistles – First
-Series](epistles_first_series_contents.htm) / [→](004_alasinga.htm)
+
+
 
   
 
-[«](../../volume_6/epistles_second_series/039_mother.htm) Chronology
-[»](004_alasinga.htm)  
-[«](../../volume_8/epistles_fourth_series/011_alasinga.htm) Addressee
-[»](004_alasinga.htm)
+  
+
 
 ## III
 
@@ -206,4 +201,4 @@ name-making, you must always remember.
 
 V.
 
-</div>
+

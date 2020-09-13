@@ -2,17 +2,13 @@
 title: XXXVIII
 
 ---
-<div>
 
-[←](37_friend.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Epistles – Third
-Series](epistles_third_series_contents.htm) / [→](39_mrs_bull.htm)
+
+
 
   
 
-[«](../../volume_9/letters_fifth_series/105_christina.htm) Chronology
-[»](../../volume_9/letters_fifth_series/106_mrs_bull.htm)  
+  
 Addressee
 [»](../../volume_5/epistles_first_series/077_sharat_chandra.htm)
 
@@ -88,4 +84,4 @@ Ever your well-wisher,
 
 VIVEKANANDA.
 
-</div>
+

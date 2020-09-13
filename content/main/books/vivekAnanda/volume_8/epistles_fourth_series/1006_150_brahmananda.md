@@ -2,19 +2,14 @@
 title: CL
 
 ---
-<div>
 
-[←](149_mary.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Epistles – Fourth
-Series](epistles_fourth_series_contents.htm) / [→](151_dhira_mata.htm)
+
+
 
   
 
-[«](149_mary.htm) Chronology
-[»](../../volume_9/letters_fifth_series/154_christina.htm)  
-[«](148_rakhal.htm) Addressee
-[»](../../volume_9/letters_fifth_series/160_brahmananda.htm)
+  
+
 
 ## CL
 
@@ -54,4 +49,4 @@ PS. Mrs. Bull sends her love.
 
 V.
 
-</div>
+

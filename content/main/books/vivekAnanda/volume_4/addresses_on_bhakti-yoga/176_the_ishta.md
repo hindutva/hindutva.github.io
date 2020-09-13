@@ -2,13 +2,9 @@
 title: THE ISHTA
 
 ---
-<div>
 
-[←](the_chief_symbols.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-4](../volume_4_contents.htm) / [Addresses on
-Bhakti-Yoga](addresses_on_bhakti-yoga_contents.htm)
-/ [→](../lectures_and_discourses/the_ramayana.htm)
+
+
 
   
 
@@ -294,4 +290,4 @@ Everything else is untrue; everything else should be rejected for the
 salve of the Lord. Vanity of vanities, all is vanity. Serve the Lord and
 Him alone.
 
-</div>
+

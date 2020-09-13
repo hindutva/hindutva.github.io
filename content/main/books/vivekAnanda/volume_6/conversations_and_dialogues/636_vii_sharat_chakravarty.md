@@ -2,13 +2,9 @@
 title: VII
 
 ---
-<div>
 
-[←](vi_sharat_chakravarty.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Conversations and
-Dialogues](conversations_and_dialogues_contents.htm)
-/ [→](viii_sharat_chakravarty.htm)
+
+
 
   
 
@@ -144,4 +140,4 @@ renunciation and renunciation — let this be the one motto of your lives.
 on earth are infected with fear, Vairâgya (renunciation) alone
 constitutes fearlessness" (*Vairâgya-Shatakam*).
 
-</div>
+

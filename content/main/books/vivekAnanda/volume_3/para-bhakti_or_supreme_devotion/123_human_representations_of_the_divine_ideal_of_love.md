@@ -2,13 +2,9 @@
 title: HUMAN REPRESENTATIONS OF THE DIVINE IDEAL OF LOVE
 
 ---
-<div>
 
-[←](the_god_of_love_is_his_own_proof.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-3](../volume_3_contents.htm) / [Para-Bhakti or Supreme
-Devotion](para-bhakti_or_supreme_devotion_contents.htm)
-/ [→](conclusion.htm)
+
+
 
   
 
@@ -201,4 +197,4 @@ of this world — are you sincere? "Where Râma is, there is no room for
 any desire — where desire is, there is no room for Rama; these never
 coexist — like light and darkness they are never together."
 
-</div>
+

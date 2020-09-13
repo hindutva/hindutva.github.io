@@ -2,18 +2,14 @@
 title: LXII
 
 ---
-<div>
 
-[←](061_dr_nanjunda_rao.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Epistles – First
-Series](epistles_first_series_contents.htm) / [→](063_alasinga.htm)
+
+
 
   
 
-[«](../../volume_9/letters_fifth_series/096_sir.htm) Chronology
-[»](../../volume_9/letters_fifth_series/097_mrs_bull.htm)  
-[«](061_dr_nanjunda_rao.htm) Addressee [»](066_nanjunda_rao.htm)
+  
+
 
 ## LXII
 
@@ -59,4 +55,4 @@ Yours with all blessings etc.,
 
 VIVEKANANDA.
 
-</div>
+

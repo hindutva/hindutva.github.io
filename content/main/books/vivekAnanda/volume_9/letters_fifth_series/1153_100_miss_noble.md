@@ -2,15 +2,13 @@
 title: C
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
 
-[←](099_christina.htm)  
-[←Chronology  
-](../../volume_5/epistles_first_series/070_indian_mirror.htm)[←Addressee](../../volume_7/epistles_third_series/36_miss_noble.htm)
+
 
 ## C
 
@@ -35,4 +33,4 @@ VIVEKANANDA
 [Addressee→](101_miss_noble.htm)  
 [Chronology→](../../volume_6/epistles_second_series/112_mary.htm)
 
-</div>
+

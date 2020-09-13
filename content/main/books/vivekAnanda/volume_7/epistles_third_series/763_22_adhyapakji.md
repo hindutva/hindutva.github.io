@@ -2,20 +2,14 @@
 title: XXII
 
 ---
-<div>
 
-[←](21_adhyapakji.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Epistles – Third
-Series](epistles_third_series_contents.htm)
-/ [→](23_mr_bhattacharya.htm)
+
+
 
   
 
-[«](../../volume_9/letters_fifth_series/021_mother.htm) Chronology
-[»](../../volume_8/epistles_fourth_series/020_diwanji_saheb.htm)  
-[«](21_adhyapakji.htm) Addressee
-[»](../../volume_9/letters_fifth_series/048_adhyapakji.htm)
+  
+
 
 ## XXII
 
@@ -50,4 +44,4 @@ PS. The East India stamps are for your children if they like.
     had lost faith in him, and this must surely have hurt him deeply. —
     Ed.
 
-</div>
+

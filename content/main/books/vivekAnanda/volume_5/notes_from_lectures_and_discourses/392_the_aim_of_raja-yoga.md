@@ -2,13 +2,9 @@
 title: THE AIM OF RAJA-YOGA
 
 ---
-<div>
 
-[←](world-wide_unity.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Notes from Lectures and
-Discourses](notes_from_lectures_and_discourses_contents.htm)
-/ [→](../questions_and_answers/discussion_at_the_graduate_philosophical.htm)
+
+
 
   
 
@@ -42,4 +38,4 @@ being nothing less than the realisation of our absolute oneness with the
 Divine. Surely, with this end in view, and with the knowledge that we
 can certainly succeed, no price can be too great to pay.
 
-</div>
+

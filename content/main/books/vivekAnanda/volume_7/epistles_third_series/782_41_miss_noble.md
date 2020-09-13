@@ -2,19 +2,14 @@
 title: XLI
 
 ---
-<div>
 
-[←](40_shuddhananda.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Epistles – Third
-Series](epistles_third_series_contents.htm) / [→](42_miss_noble.htm)
+
+
 
   
 
-[«](../../volume_8/epistles_fourth_series/098_rakhal.htm) Chronology
-[»](../../volume_6/epistles_second_series/131_akhandananda.htm)  
-[«](../../volume_8/epistles_fourth_series/096_miss_noble.htm) Addressee
-[»](42_miss_noble.htm)
+  
+
 
 ## XLI
 
@@ -67,4 +62,4 @@ Yours,
 
 VIVEKANANDA.
 
-</div>
+

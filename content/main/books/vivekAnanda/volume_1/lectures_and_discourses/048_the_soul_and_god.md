@@ -2,12 +2,9 @@
 title: THE SOUL AND GOD
 
 ---
-<div>
 
-[←](vilvamangala.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-1](../complete_works_v1_contents.htm) / [Lectures and
-Discourses](lectures_and_discourses_contents.htm) / [→](breathing.htm)
+
+
 
   
 
@@ -460,4 +457,4 @@ Do you call yourselves philosophers? Show it! Think of this, talk \[of\]
 this, and \[help\] each other in this path, and give up all
 superstition!
 
-</div>
+

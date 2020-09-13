@@ -2,15 +2,13 @@
 title: BHARTRIHARI'S VERSES ON RENUNCIATION1
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Writings: Prose and
 Poems](writings_prose_and_poems_contents.htm) /
 
-[←](an_unfinished_poem.htm)
 
-## BHARTRIHARI'S VERSES ON RENUNCIATION[1](#fn1)
 
 *This is Swami Vivekananda's free translation of verses from
 Bhartrihari's Sanskrit poem* Vairâgya Shatakam.
@@ -449,7 +447,7 @@ Like a lamp in an empty house.
 
 [→](../volume_9_contents.htm)
 
-</div>
+
 
 1.  [^](#fn1_1)Sister Nivedita's Unpublished Notes of Some Wanderings
     with the Swami Vivekananda (Calcutta: Bangiya Sahitya

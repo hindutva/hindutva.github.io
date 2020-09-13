@@ -2,18 +2,14 @@
 title: LII
 
 ---
-<div>
 
-[←](051_dear_and_beloved.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Epistles – Second
-Series](epistles_second_series_contents.htm)
-/ [→](053_govinda_sahay.htm)
+
+
 
   
 
-[«](051_dear_and_beloved.htm) Chronology [»](053_govinda_sahay.htm)  
-[«](037_govinda_sahay.htm) Addressee [»](053_govinda_sahay.htm)
+  
+
 
 ## LII
 
@@ -34,4 +30,4 @@ Yours with love,
 
 VIVEKANANDA.
 
-</div>
+

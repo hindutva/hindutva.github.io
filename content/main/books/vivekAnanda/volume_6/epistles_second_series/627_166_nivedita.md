@@ -2,19 +2,14 @@
 title: CLXVI
 
 ---
-<div>
 
-[←](165_joe.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Epistles – Second
-Series](epistles_second_series_contents.htm) / [→](167_joe.htm)
+
+
 
   
 
-[«](../../volume_8/epistles_fourth_series/197_mother.htm) Chronology
-[»](../../volume_5/epistles_first_series/093_shashi.htm)  
-[«](../../volume_9/letters_fifth_series/188_sister_nivedita.htm)
-Addressee [»](../../volume_9/letters_fifth_series/193_margot.htm)
+  
+
 
 ## CLXVI
 
@@ -38,4 +33,4 @@ Yours etc.,
 
 VIVEKANANDA.
 
-</div>
+

@@ -2,29 +2,13 @@
 title: XLVII
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
 
-[←](046_mother.htm)  
-[←Chronology](../../volume_6/epistles_second_series/058_sarada.htm)  
-[←Addressee](041_miss_thursby.htm)
 
-## XLVII
-
-*To Miss Emma Thursby*
-
-CHICAGO
-
-541 DEARBORN AVENUE
-
-*17 January 1895*
-
-DEAR MISS THURSBY,
-
-I am very sorry to learn about the passing on of Mr. Thorp.[1](#fn1)
 Mrs. Bull must have felt it deeply. Still he has passed on after a good
 and useful life. All is for the best.
 
@@ -62,7 +46,7 @@ VIVEKANANDA
 [Addressee→](086_miss_thursby.htm)  
 [Chronology→](../../volume_5/epistles_first_series/031_ole_bull.htm)
 
-</div>
+
 
 1.  [^](#fn1_1)Joseph G. Thorp, Mrs. Ole Bull's father.
 2.  [^](#fn2_1)Florence Adams, wife of Milward Adams, house manager of

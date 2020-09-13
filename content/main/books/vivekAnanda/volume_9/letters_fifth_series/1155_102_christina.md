@@ -2,15 +2,13 @@
 title: CII
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
 
-[←](101_miss_noble.htm)  
-[←Chronology](../../volume_8/epistles_fourth_series/088_mary.htm)  
-[←Addressee](099_christina.htm)
+
 
 ## CII
 
@@ -33,4 +31,4 @@ VIVEKANANDA.
 [Addressee→](105_christina.htm)  
 [Chronology→](103_madras_committee.htm)
 
-</div>
+

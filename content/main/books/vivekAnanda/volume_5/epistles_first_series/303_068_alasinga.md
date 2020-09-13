@@ -2,18 +2,14 @@
 title: LXVIII
 
 ---
-<div>
 
-[←](067_alasinga.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Epistles – First
-Series](epistles_first_series_contents.htm) / [→](069_alasinga.htm)
+
+
 
   
 
-[«](../../volume_6/epistles_second_series/111_mrs_bull.htm) Chronology
-[»](069_alasinga.htm)  
-[«](067_alasinga.htm) Addressee [»](069_alasinga.htm)
+  
+
 
 ## LXVIII
 
@@ -117,4 +113,4 @@ Yours ever with love,
 
 VIVEKANANDA.
 
-</div>
+

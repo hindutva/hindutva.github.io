@@ -2,12 +2,9 @@
 title: THE GITA I
 
 ---
-<div>
 
-[←](krishna.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-1](../complete_works_v1_contents.htm) / [Lectures and
-Discourses](lectures_and_discourses_contents.htm) / [→](the_gita_ii.htm)
+
+
 
   
 
@@ -389,4 +386,4 @@ think. We will become \[only\] by \[degrees\].
 You see, that was about Krishna and his time. In the next lecture we
 will know more of his book.
 
-</div>
+

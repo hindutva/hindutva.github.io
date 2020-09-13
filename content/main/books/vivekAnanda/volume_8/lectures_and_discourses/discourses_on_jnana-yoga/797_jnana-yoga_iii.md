@@ -2,14 +2,9 @@
 title: JNANA YOGA - III
 
 ---
-<div>
 
-[←](jnana-yoga_ii.htm) [Home](../../../../index.htm) /
-[Complete-Works](../../../complete_works.htm) / [Volume
-8](../../volume_8_contents.htm) / [Lectures and
-Discourses](../lectures_and_discourses_contents.htm) / [Discourses on
-Jnana-Yoga](discourses_on_jnana-yoga_contents.htm)
-/ [→](jnana-yoga_iv.htm)
+
+
 
   
 
@@ -129,4 +124,4 @@ meditation, the clearer are these flashes of realisation. This was dis
 covered 4,000 years ago, but has not yet become the property of the
 race; it is still the property of some individuals only.
 
-</div>
+

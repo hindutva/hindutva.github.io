@@ -2,15 +2,13 @@
 title: XCI
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
 
-[←](090_christina.htm)  
-[←Chronology](../../volume_8/epistles_fourth_series/075_sisters.htm)  
-[←Addressee](090_christina.htm)
+
 
 ## XCI
 
@@ -43,4 +41,4 @@ VIVEKANANDA
 [Addressee→](098_blessed_and_beloved.htm)  
 [Chronology→](../../volume_7/epistles_third_series/32_dear.htm)
 
-</div>
+

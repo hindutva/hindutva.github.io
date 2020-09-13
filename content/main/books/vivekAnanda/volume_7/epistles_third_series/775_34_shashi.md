@@ -2,19 +2,14 @@
 title: XXXIV
 
 ---
-<div>
 
-[←](33_sister.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Epistles – Third
-Series](epistles_third_series_contents.htm) / [→](35_adhyapakji.htm)
+
+
 
   
 
-[«](33_sister.htm) Chronology
-[»](../../volume_9/letters_fifth_series/092_mrs_bull.htm)  
-[«](../../volume_6/epistles_second_series/077_shashi.htm) Addressee
-[»](../../volume_6/epistles_second_series/100_shashi.htm)
+  
+
 
 ## XXXIV
 
@@ -39,4 +34,4 @@ Yours affectionately,
 
 VIVEKANANDA.
 
-</div>
+

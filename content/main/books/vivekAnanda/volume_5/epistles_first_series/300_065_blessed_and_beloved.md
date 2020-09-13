@@ -2,19 +2,14 @@
 title: LXV
 
 ---
-<div>
 
-[←](064_alasinga.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Epistles – First
-Series](epistles_first_series_contents.htm) / [→](066_nanjunda_rao.htm)
+
+
 
   
 
-[«](../../volume_8/epistles_fourth_series/083_blessed_and_beloved.htm)
-Chronology [»](../../volume_6/epistles_second_series/106_shashi.htm)  
-[«](../../volume_8/epistles_fourth_series/083_blessed_and_beloved.htm)
-Addressee [»](../../volume_8/epistles_fourth_series/084_friend.htm)
+  
+
 
 ## LXV
 
@@ -54,4 +49,4 @@ With love to all our friends,
 Yours ever,  
 VIVEKANANDA.
 
-</div>
+

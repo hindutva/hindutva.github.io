@@ -2,13 +2,9 @@
 title: THE HINDOO MONK
 
 ---
-<div>
 
-[←](the_hindoo_religion.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-3](../volume_3_contents.htm) / [Reports in American
-Newspapers](reports_in_american_newspapers_contents.htm)
-/ [→](plea_for_tolerance.htm)
+
+
 
   
 
@@ -67,4 +63,4 @@ composed of the members of the Nineteenth Century Club in the rooms of
 the club in the Randolph Building. Tonight he will be heard at the
 Auditorium on "Hindooism".
 
-</div>
+

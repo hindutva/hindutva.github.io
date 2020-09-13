@@ -2,15 +2,13 @@
 title: CCXXII
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
 
-[←](221_joe.htm)  
-[←Chronology](../../volume_5/epistles_first_series/122_joe.htm)  
-[←Addressee](219_christine.htm)
+
 
 ## CCXXII
 
@@ -40,4 +38,4 @@ VIVEKANANDA.
 [Addressee→](224_christine.htm)  
 [Chronology→](223_mademoiselle.htm)
 
-</div>
+

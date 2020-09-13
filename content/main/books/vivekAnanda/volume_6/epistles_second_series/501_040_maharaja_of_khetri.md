@@ -2,19 +2,14 @@
 title: XL
 
 ---
-<div>
 
-[←](039_mother.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Epistles – Second
-Series](epistles_second_series_contents.htm) / [→](041_shashi.htm)
+
+
 
   
 
-[«](../../volume_8/epistles_fourth_series/018_sister_mary.htm)
-Chronology [»](041_shashi.htm)  
-[«](../../unpublished/ii_your_highness.htm) Addressee
-[»](../../volume_4/writings_prose/reply_to_the_maharaja_of_khetri.htm)
+  
+
 
 ## XL
 
@@ -101,4 +96,4 @@ Yours etc.,
 
 VIVEKANANDA.
 
-</div>
+

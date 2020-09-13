@@ -2,13 +2,9 @@
 title: A HYMN TO SHIVA
 
 ---
-<div>
 
-[←](a_hymn_to_the_divine_mother.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-4](../volume_4_contents.htm) / [Translations:
-Poems](translation_poems_contents.htm)
-/ [→](a_hymn_to_the_divinity_of_shri_ramakrishna.htm)
+
+
 
   
 
@@ -103,4 +99,4 @@ Shiva)
 With the poison (The all-destructive evil) swallowed:  
 Him, we salute!
 
-</div>
+

@@ -2,13 +2,9 @@
 title: NO ONE TO BLAME
 
 ---
-<div>
 
-[←](a_hymn_to_shri_ramakrishna.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Writings:
-Poems](writings_poems_contents.htm)
-/ [→](../notes_of_class_talks_and_lectures/notes_of_class_talks.htm)
+
+
 
   
 
@@ -66,4 +62,4 @@ That *death* is curse, and so is *life*, and best when stops to be.
 Om Nama Bhagavate Sambuddhâya  
 Om, I salute the Lord, the awakened.
 
-</div>
+

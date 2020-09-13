@@ -2,15 +2,13 @@
 title: CLXXXII
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
 
-[←](181_christine.htm)  
-[←Chronology](../../volume_8/epistles_fourth_series/191_brother_hari.htm)  
-[←Addressee](../../volume_6/epistles_second_series/160_nivedita.htm)
+
 
 ## CLXXXII
 
@@ -38,4 +36,4 @@ VIVEKANANDA.
 [Addressee→](../../volume_6/epistles_second_series/161_nivedita.htm)  
 [Chronology→](183_christine.htm)
 
-</div>
+

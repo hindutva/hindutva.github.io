@@ -2,13 +2,9 @@
 title: VII
 
 ---
-<div>
 
-[←](in_answer_to_nivedita.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Questions and
-Answers](questions_and_answers_contents.htm)
-/ [→](../conversations_and_dialogues/i_shri_surendra_nath_das_gupta.htm)
+
+
 
   
 
@@ -168,4 +164,4 @@ who realises Ramakrishna as God. We sometimes feel it hazily, that is
 all. To realise Him as God and yet be attached to the world is
 inconsistent.
 
-</div>
+

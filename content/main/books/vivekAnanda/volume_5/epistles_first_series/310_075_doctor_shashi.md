@@ -2,17 +2,13 @@
 title: LXXV
 
 ---
-<div>
 
-[←](074_honoured_madam.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Epistles – First
-Series](epistles_first_series_contents.htm) / [→](076_mr_.htm)
+
+
 
   
 
-[«](../../volume_8/epistles_fourth_series/093_sudhir.htm) Chronology
-[»](../../volume_6/epistles_second_series/124_sir.htm)
+
 
 ## LXXV
 
@@ -70,4 +66,4 @@ Yours in the Lord,
 
 VIVEKANANDA.
 
-</div>
+

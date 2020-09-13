@@ -2,12 +2,9 @@
 title: POWERS
 
 ---
-<div>
 
-[←](concentration_its_practice.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-1](../complete_works_v1_contents.htm)
-/ [Raja-Yoga](raja-yoga_contents.htm) / [→](independence.htm)
+
+
 
   
 
@@ -635,4 +632,4 @@ is the Purusha.
     there is no question of suppressing, but only similar impressions
     succeed each other in a stream. — Ed.
 
-</div>
+

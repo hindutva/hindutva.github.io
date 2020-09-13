@@ -2,13 +2,9 @@
 title: THOUGHTS ON THE VEDAS AND THE UPANISHADS
 
 ---
-<div>
 
-[←](hindu_and_greek.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Notes of Class Talks and
-Lectures](notes_of_class_talks_and_lectures_contents.htm)
-/ [→](on_raja-yoga.htm)
+
+
 
   
 
@@ -101,4 +97,4 @@ the holiest of all words. He who knows the secret of this word receives
 that which he desires." Take refuge in this word. Whoso takes refuge in
 this word, to him the way opens.
 
-</div>
+

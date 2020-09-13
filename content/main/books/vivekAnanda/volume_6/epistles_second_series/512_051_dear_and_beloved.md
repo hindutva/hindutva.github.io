@@ -2,20 +2,14 @@
 title: LI
 
 ---
-<div>
 
-[←](050_mrs_bull.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Epistles – Second
-Series](epistles_second_series_contents.htm)
-/ [→](052_govinda_sahay.htm)
+
+
 
   
 
-[«](../../volume_5/epistles_first_series/023_kidi.htm) Chronology
-[»](052_govinda_sahay.htm)  
-[«](../../volume_6/epistles_second_series/038_doctor.htm) Addressee
-[»](../../volume_5/epistles_first_series/061_dr_nanjunda_rao.htm)
+  
+
 
 ## LI
 
@@ -84,4 +78,4 @@ Yours with all blessings,
 
 VIVEKANANDA.
 
-</div>
+

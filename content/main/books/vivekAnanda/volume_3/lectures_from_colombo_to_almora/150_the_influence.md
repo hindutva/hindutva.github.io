@@ -2,13 +2,9 @@
 title: THE INFLUENCE OF INDIAN SPIRITUAL THOUGHT IN ENGLAND
 
 ---
-<div>
 
-[←](vedantism_2.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-3](../volume_3_contents.htm) / [Lectures from Colombo to
-Almora](lectures_from_colombo_to_almora_contents.htm)
-/ [→](sannyasa_its_ideal_and_practice.htm)
+
+
 
   
 
@@ -189,4 +185,4 @@ that throughout the whole of India, there runs a mutual and cordial
 string of eternal faith in the perfection of humanity, and I believe in
 it myself. And let that faith be spread over the whole land.
 
-</div>
+

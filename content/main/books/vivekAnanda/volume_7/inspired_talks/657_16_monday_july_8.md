@@ -4,12 +4,9 @@ title: 'RECORDED BY MISS S. E. WALDO
   (A DISCIPLE)'
 
 ---
-<div>
 
-[←](15_sunday_july_7.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Inspired
-Talks](inspired_talks_contents.htm) / [→](17_tuesday_july_9.htm)
+
+
 
   
 
@@ -60,4 +57,4 @@ out, then the lamp must go out. All we can do is to keep the lamp clean.
 Life is a product, a compound, and as such must resolve itself into its
 elements.
 
-</div>
+

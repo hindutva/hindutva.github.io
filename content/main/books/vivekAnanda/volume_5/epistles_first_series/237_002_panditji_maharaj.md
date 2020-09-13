@@ -2,17 +2,13 @@
 title: II
 
 ---
-<div>
 
-[←](001_fakir.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Epistles – First
-Series](epistles_first_series_contents.htm) / [→](003_alasinga.htm)
+
+
 
   
 
-[«](../../volume_8/epistles_fourth_series/009_diwanji_saheb.htm)
-Chronology [»](../../volume_8/epistles_fourth_series/010_haripada.htm)  
+  
 
 ## II
 
@@ -73,4 +69,4 @@ Yours,
 
 VIVEKANANDA.
 
-</div>
+

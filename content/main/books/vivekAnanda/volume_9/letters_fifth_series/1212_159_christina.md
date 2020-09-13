@@ -2,15 +2,13 @@
 title: CLIX
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
 
-[←](158_mother.htm)  
-[←Chronology](158_mother.htm)  
-[←Addressee](154_christina.htm)
+
 
 ## CLIX
 
@@ -68,4 +66,4 @@ VIVEKANANDA.
 [Addressee→](161_christina.htm)  
 [Chronology→](../../volume_6/epistles_second_series/150_mrs_bull.htm)
 
-</div>
+

@@ -2,22 +2,14 @@
 title: CXCIII
 
 ---
-<div>
 
-[←](192_hari.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Epistles – Fourth
-Series](epistles_fourth_series_contents.htm) / [→](194_mademoiselle.htm)
+
+
 
   
 
-[«](192_hari.htm) Chronology
-[»](../../volume_6/epistles_second_series/163_mother.htm)  
-[«](192_hari.htm) Addressee
+  
 
-## CXCIII
-
-(*Translated from [Bengali](b8508e8193.pdf)* )
 
 *To Swami Turiyananda*
 
@@ -55,4 +47,4 @@ My love to you. But I have nothing more to advise as regards work.
 Yours in service,  
 VIVEKANANDA.
 
-</div>
+

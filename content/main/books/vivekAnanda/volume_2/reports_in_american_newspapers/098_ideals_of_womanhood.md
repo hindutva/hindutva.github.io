@@ -2,13 +2,9 @@
 title: IDEALS OF WOMANHOOD
 
 ---
-<div>
 
-[←](the_hindu_way_of_life.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-2](../volume_2_contents.htm) / [Reports in American
-Newspapers](reports_in_american_newspapers_contents.htm)
-/ [→](true_buddhism.htm)
+
+
 
   
 
@@ -126,4 +122,4 @@ I and every good Hindoo believe, that my mother was pure and holy, and
 hence I owe her everything that I am. That is the secret of the race —
 chastity."
 
-</div>
+

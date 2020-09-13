@@ -2,11 +2,9 @@
 title: WORK AND ITS SECRET
 
 ---
-<div>
 
-[←](../volume_1/lectures_and_discourses/practical_religion_breathing_and_meditation.htm)
-[Home](../../index.htm) / [Complete-Works](../complete_works.htm) /
-[Volume 2](volume_2_contents.htm) / [→](the_powers_of_the_mind.htm)
+
+
 
   
 
@@ -272,4 +270,4 @@ take care of itself. For the world can be good and pure, only if our
 lives are good and pure. It is an effect, and we are the means.
 Therefore, let us purify ourselves. Let us make ourselves perfect.
 
-</div>
+

@@ -2,13 +2,9 @@
 title: ON CHARITY
 
 ---
-<div>
 
-[←](the_future_of_india.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-3](../volume_3_contents.htm) / [Lectures from Colombo to
-Almora](lectures_from_colombo_to_almora_contents.htm)
-/ [→](address_of_welcome_presented_at_calcutta_and_reply.htm)
+
+
 
   
 
@@ -39,4 +35,4 @@ able to obtain food; and the discriminate charity of Western nations
 which necessitated a costly system of poor-law relief, and in the end
 succeeded only in changing mendicants into criminals.
 
-</div>
+

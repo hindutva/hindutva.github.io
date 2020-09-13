@@ -2,19 +2,14 @@
 title: XXXI
 
 ---
-<div>
 
-[←](30_rakhal.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Epistles – Third
-Series](epistles_third_series_contents.htm) / [→](32_dear.htm)
+
+
 
   
 
-[«](../../volume_5/epistles_first_series/060_alasinga.htm) Chronology
-[»](../../volume_6/epistles_second_series/095_mrs_bull.htm)  
-[«](../../volume_5/epistles_first_series/060_alasinga.htm) Addressee
-[»](../../volume_5/epistles_first_series/063_alasinga.htm)
+  
+
 
 ## XXXI
 
@@ -55,4 +50,4 @@ Yours etc.,
 
 VIVEKANANDA.
 
-</div>
+

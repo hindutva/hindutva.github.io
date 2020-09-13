@@ -2,18 +2,14 @@
 title: XIX
 
 ---
-<div>
 
-[←](18_sister.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Epistles – Third
-Series](epistles_third_series_contents.htm) / [→](20_adhyapakji.htm)
+
+
 
   
 
-[«](18_sister.htm) Chronology
-[»](../../volume_9/letters_fifth_series/017_mother.htm)  
-[«](16_professor.htm) Addressee [»](20_adhyapakji.htm)
+  
+
 
 ## XIX
 
@@ -33,4 +29,4 @@ Women's Club of Mrs. Howe.
 Yours ever truly,  
 VIVEKANANDA.
 
-</div>
+

@@ -2,19 +2,14 @@
 title: LX
 
 ---
-<div>
 
-[←](059_sanyal.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Epistles – Second
-Series](epistles_second_series_contents.htm) / [→](061_mrs_bull.htm)
+
+
 
   
 
-[«](059_sanyal.htm) Chronology
-[»](../../volume_9/letters_fifth_series/049_mother.htm)  
-[«](../../volume_5/epistles_first_series/031_ole_bull.htm) Addressee
-[»](061_mrs_bull.htm)
+  
+
 
 ## LX
 
@@ -75,4 +70,4 @@ Your devoted son,
 
 VIVEKANANDA.
 
-</div>
+

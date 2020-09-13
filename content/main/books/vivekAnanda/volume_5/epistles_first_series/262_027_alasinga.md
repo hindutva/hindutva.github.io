@@ -2,18 +2,14 @@
 title: XXVII
 
 ---
-<div>
 
-[←](026_dharmapala.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Epistles – First
-Series](epistles_first_series_contents.htm) / [→](028_mrs_bull.htm)
+
+
 
   
 
-[«](026_dharmapala.htm) Chronology
-[»](../../volume_6/epistles_second_series/057_mrs_bull.htm)  
-[«](025_alasinga.htm) Addressee [»](030_alasinga.htm)
+  
+
 
 ## XXVII
 
@@ -106,4 +102,4 @@ Yours etc.,
 
 VIVEKANANDA.
 
-</div>
+

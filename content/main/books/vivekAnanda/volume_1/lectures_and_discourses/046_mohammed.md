@@ -2,13 +2,9 @@
 title: MOHAMMED
 
 ---
-<div>
 
-[←](the_gita_iii.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-1](../complete_works_v1_contents.htm) / [Lectures and
-Discourses](lectures_and_discourses_contents.htm)
-/ [→](vilvamangala.htm)
+
+
 
   
 
@@ -129,4 +125,4 @@ the wicked, for the establishment of spirituality." (Gita, IV. 7-8.)
 \[Such\] are the great messengers of light. They are our great teachers,
 our elder brothers. But we must go our own way!
 
-</div>
+

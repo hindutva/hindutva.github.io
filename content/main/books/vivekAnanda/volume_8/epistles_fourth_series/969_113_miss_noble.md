@@ -2,19 +2,14 @@
 title: CXIII
 
 ---
-<div>
 
-[←](112_rakhal.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Epistles – Fourth
-Series](epistles_fourth_series_contents.htm) / [→](114_rakhal.htm)
+
+
 
   
 
-[«](../../volume_6/epistles_second_series/138_m.htm) Chronology
-[»](114_rakhal.htm)  
-[«](110_margo.htm) Addressee
-[»](../../volume_9/letters_fifth_series/117_miss_noble.htm)
+  
+
 
 ## CXIII
 
@@ -42,4 +37,4 @@ With everlasting love,
 Yours,  
 VIVEKANANDA.
 
-</div>
+

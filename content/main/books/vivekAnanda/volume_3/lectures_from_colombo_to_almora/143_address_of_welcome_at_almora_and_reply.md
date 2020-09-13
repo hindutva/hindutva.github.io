@@ -2,13 +2,9 @@
 title: ADDRESS OF WELCOME AT ALMORA AND REPLY
 
 ---
-<div>
 
-[←](the_vedanta_in_all_its_phases.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-3](../volume_3_contents.htm) / [Lectures from Colombo to
-Almora](lectures_from_colombo_to_almora_contents.htm)
-/ [→](vedic_teaching_in_theory_and_practice.htm)
+
+
 
   
 
@@ -166,4 +162,4 @@ our religion. May it never leave our hearts! May we always remain as
 pure as we are at the present moment, and as enthusiastic for
 spirituality as we are just now!
 
-</div>
+

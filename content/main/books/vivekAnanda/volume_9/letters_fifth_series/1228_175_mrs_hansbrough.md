@@ -2,18 +2,13 @@
 title: CLXXV
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
 
-[←](174_christina.htm)  
-[←Chronology](174_christina.htm)
-
-## CLXXV
-
-*To Mrs. Alice (Shanti) Hansbrough*
+ Hansbrough*
 
 THE VEDANTA SOCIETY,  
 102 EAST 58TH STREET, NEW YORK, N.Y.  
@@ -55,4 +50,4 @@ V.
 [Addressee→](177_mrs_hansbrough.htm)  
 [Chronology→](../../volume_6/epistles_second_series/160_nivedita.htm)
 
-</div>
+

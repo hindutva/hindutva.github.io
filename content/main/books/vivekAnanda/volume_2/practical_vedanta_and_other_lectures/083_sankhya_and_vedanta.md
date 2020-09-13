@@ -2,13 +2,9 @@
 title: SANKHYA AND VEDANTA
 
 ---
-<div>
 
-[←](a_study_of_the_sankhya_philosophy.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-2](../volume_2_contents.htm) / [Practical Vedanta and other
-lectures](practical_vedanta_and_other_lectures_contents.htm)
-/ [→](the_goal.htm)
+
+
 
   
 
@@ -276,4 +272,4 @@ bound; you make your own bondage. If you know that you are free, you are
 free this moment. This is knowledge, knowledge of freedom. Freedom is
 the goal of all nature.
 
-</div>
+

@@ -2,17 +2,14 @@
 title: CLXVIII
 
 ---
-<div>
 
-[←](167_joe.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Epistles – Fourth
-Series](epistles_fourth_series_contents.htm) / [→](169_joe.htm)
+
+
 
   
 
-[«](167_joe.htm) Chronology [»](169_joe.htm)  
-[«](166_haribhai.htm) Addressee [»](184_turiyananda.htm)
+  
+
 
 ## CLXVIII
 
@@ -41,4 +38,4 @@ All well here. Hope this finds you and all others well.
 Yours affectionately,  
 VIVEKANANDA.
 
-</div>
+

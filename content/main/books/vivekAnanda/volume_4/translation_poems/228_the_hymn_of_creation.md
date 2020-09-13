@@ -2,12 +2,9 @@
 title: THE HYMN OF CREATION
 
 ---
-<div>
 
-[←](to_a_friend.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-4](../volume_4_contents.htm) / [Translations:
-Poems](translation_poems_contents.htm) / [→](the_hymn_of_samadhi.htm)
+
+
 
   
 
@@ -46,4 +43,4 @@ Nay, the Sun is He, and He is the ray.
 1.  [^](#txt1)"Neti, Neti", "Not this, not this." Brahman cannot be
     described in any positive way.
 
-</div>
+

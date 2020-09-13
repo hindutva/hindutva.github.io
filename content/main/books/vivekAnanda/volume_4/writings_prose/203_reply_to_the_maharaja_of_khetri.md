@@ -2,20 +2,14 @@
 title: REPLY TO THE ADDRESS OF THE MAHARAJA OF KHETRI
 
 ---
-<div>
 
-[←](stray_remarks_on_theosophy.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-4](../volume_4_contents.htm) / [Writings:
-Prose](writings_prose_contents.htm)
-/ [→](reply_to_the_madras_address.htm)
+
+
 
   
 
-[«](../../volume_9/letters_fifth_series/053_mother.htm) Chronology [»  
-](../../volume_7/epistles_third_series/29_dear.htm)[«](../../volume_6/epistles_second_series/040_maharaja_of_khetri.htm)
-Addressee
-[»](../../volume_5/epistles_first_series/047_maharaja_of_khetri.htm)
+ Chronology [»  
+](../../volume_7/epistles_third_series/29_dear.htm)
 
 ## REPLY TO THE ADDRESS OF THE MAHARAJA OF KHETRI
 
@@ -378,4 +372,4 @@ truth is the constant prayer of —
 
 VIVEKANANDA.
 
-</div>
+

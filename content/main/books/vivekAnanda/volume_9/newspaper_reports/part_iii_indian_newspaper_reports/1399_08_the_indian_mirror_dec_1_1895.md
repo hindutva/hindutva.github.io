@@ -2,7 +2,7 @@
 title: INDIAN PHILOSOPHY AND WESTERN SOCIETY
 
 ---
-<div>
+
 
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
@@ -10,16 +10,7 @@ title: INDIAN PHILOSOPHY AND WESTERN SOCIETY
 Reports](../newspaper_reports_contents.htm) / [Indian Newspaper
 Reports](indian_newspaper_contents.htm) /
 
-[←](07_the_indian_mirror_jun_29_1895.htm)
-
-## INDIAN PHILOSOPHY AND WESTERN SOCIETY
-
-(*Vivekananda in Indian Newspapers*, pp. 85-86.)
-
-\[*The Indian Mirror*, December 1, 1895\]
-
-At the weekly meeting of the Balloon Society, an address on "Man and
-Society in the Light of Vedanta"[1](#fn1) was given by Swami
+ was given by Swami
 Vivekananda. The Swami who wore the red robe of his sect, spoke with
 great fluency and in perfect English for more than an hour without the
 help of a single note. He said that religion was the most wonderful
@@ -40,7 +31,7 @@ followed.
 
 [→](09_the_indian_mirror_mar_25_1896.htm)
 
-</div>
+
 
 1.  [^](#fn1_1)According to Swami Vivekananda, the topic was "Indian
     Philosophy and Western Society", of which there is no verbatim

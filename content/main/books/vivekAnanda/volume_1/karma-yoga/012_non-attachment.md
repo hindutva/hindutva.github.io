@@ -2,12 +2,9 @@
 title: NON-ATTACHMENT IS COMPLETE SELF-ABNEGATION
 
 ---
-<div>
 
-[←](we_help_ourselves.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-1](../complete_works_v1_contents.htm)
-/ [Karma-Yoga](karma-yoga_contents.htm) /[→](freedom.htm)
+
+
 
   
 
@@ -395,4 +392,4 @@ say that work and philosophy are different, not the learned.” The
 learned know that, though apparently different from each other, they at
 last lead to the same goal of human perfection.
 
-</div>
+

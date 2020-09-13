@@ -2,13 +2,9 @@
 title: UNIVERSAL LOVE AND HOW IT LEADS TO SELF-SURRENDER
 
 ---
-<div>
 
-[←](the_forms_of_love-manifestation.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-3](../volume_3_contents.htm) / [Para-Bhakti or Supreme
-Devotion](para-bhakti_or_supreme_devotion_contents.htm)
-/ [→](the_higher_knowledge.htm)
+
+
 
   
 
@@ -135,4 +131,4 @@ one all-absorbing love to Him in whom all things live and move and have
 their being. This attachment of love to God is indeed one that does not
 bind the soul but effectively breaks all its bondages.
 
-</div>
+

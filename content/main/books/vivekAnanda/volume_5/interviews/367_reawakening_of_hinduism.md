@@ -2,12 +2,9 @@
 title: REAWAKENING OF HINDUISM ON A NATIONAL BASIS
 
 ---
-<div>
 
-[←](the_missionary_work.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Interviews](interviews_contents.htm)
-/ [→](on_indian_women.htm)
+
+
 
   
 
@@ -106,4 +103,4 @@ RENUNCIATION and SERVICE. Intensify her in those channels, and the rest
 will take carte of itself. The banner of the spiritual cannot be raised
 too high in this country. In it alone is salvation.
 
-</div>
+

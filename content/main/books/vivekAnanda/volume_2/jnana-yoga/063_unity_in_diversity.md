@@ -2,12 +2,9 @@
 title: UNITY IN DIVERSITY
 
 ---
-<div>
 
-[←](realisation.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-2](../volume_2_contents.htm) / [Jnana-Yoga](jnana-yoga_contents.htm)
-/ [→](the_freedom_of_the_soul.htm)
+
+
 
   
 
@@ -414,4 +411,4 @@ flowing towards the ocean carrying us all along with it; and though like
 straws and scraps of paper we may at times float aimlessly about, in the
 long run we are sure to join the Ocean of Life and Bliss.
 
-</div>
+

@@ -2,13 +2,9 @@
 title: THE MAHABHARATA
 
 ---
-<div>
 
-[←](the_ramayana.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-4](../volume_4_contents.htm) / [Lectures and
-Discourses](lectures_and_discourses_contents.htm)
-/ [→](thoughts_on_the_gita.htm)
+
+
 
   
 
@@ -728,4 +724,4 @@ moral and ethical ideas. In fact, the Ramayana and the Mahabharata are
 the two encyclopaedias of the ancient Aryan life and wisdom, portraying
 an ideal civilisation which humanity has yet to aspire after.
 
-</div>
+

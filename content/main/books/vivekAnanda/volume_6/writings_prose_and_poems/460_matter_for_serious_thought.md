@@ -2,12 +2,9 @@
 title: MATTER FOR SERIOUS THOUGHT
 
 ---
-<div>
 
-[←](the_bengali_language.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Writings: Prose and
-Poems](writings_prose_and_poems_contents.htm) / [→](shivas_demon.htm)
+
+
 
   
 
@@ -198,4 +195,4 @@ obtuseness of the mind of a thousand years was not to pass away at a
 moment's notice. And is it not for this that the Krishnavyal class are
 held in repute? "Bravo, Habit! Thou hast thrashed them so well", etc.
 
-</div>
+

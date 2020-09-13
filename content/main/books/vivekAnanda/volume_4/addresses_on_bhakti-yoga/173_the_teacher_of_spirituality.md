@@ -2,13 +2,9 @@
 title: THE TEACHER OF SPIRITUALITY
 
 ---
-<div>
 
-[←](the_first_steps.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-4](../volume_4_contents.htm) / [Addresses on
-Bhakti-Yoga](addresses_on_bhakti-yoga_contents.htm)
-/ [→](the_need_of_symbols.htm)
+
+
 
   
 
@@ -383,4 +379,4 @@ miraculous display, but the wonderful powers of the Spirit, which make
 man free, give him control over the whole of nature, take from him the
 badge of slavery, and show God unto him.
 
-</div>
+

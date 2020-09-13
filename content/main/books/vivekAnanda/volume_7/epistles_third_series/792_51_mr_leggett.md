@@ -2,18 +2,14 @@
 title: LI
 
 ---
-<div>
 
-[←](50_mother.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Epistles – Third
-Series](epistles_third_series_contents.htm) / [→](52_aunt_roxy.htm)
+
+
 
   
 
-[«](../../volume_8/epistles_fourth_series/175_american_friend.htm)
-Chronology [»](../../volume_6/epistles_second_series/158_joe.htm)  
-[«](../../volume_6/epistles_second_series/119_frankincense.htm)
+  
+
 Addressee
 
 ## LI
@@ -51,4 +47,4 @@ PS. I am so glad to learn that Mrs. Leggett has already recovered.
 
 V.
 
-</div>
+

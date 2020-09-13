@@ -2,12 +2,9 @@
 title: THE FIRST STEPS
 
 ---
-<div>
 
-[←](introductory.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-1](../complete_works_v1_contents.htm) /
-[Raja-Yoga](raja-yoga_contents.htm) / [→](prana.htm)
+
+
 
   
 
@@ -296,4 +293,4 @@ never to be reached by the weak. Throw away all weakness. Tell your body
 that it is strong, tell your mind that it is strong, and have unbounded
 faith and hope in yourself.
 
-</div>
+

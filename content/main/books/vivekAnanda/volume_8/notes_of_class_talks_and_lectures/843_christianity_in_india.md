@@ -2,13 +2,9 @@
 title: CHRISTIANITY IN INDIA
 
 ---
-<div>
 
-[←](hindus_and_christians.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Notes of Class Talks and
-Lectures](notes_of_class_talks_and_lectures_contents.htm)
-/ [→](the_religion_of_love.htm)
+
+
 
   
 
@@ -189,4 +185,4 @@ other. Let us love each other. A beautiful prayer of the Buddhist is: I
 bow down to all the saints; I bow down to all the prophets; I bow down
 to all the holy men and women all over the world!
 
-</div>
+

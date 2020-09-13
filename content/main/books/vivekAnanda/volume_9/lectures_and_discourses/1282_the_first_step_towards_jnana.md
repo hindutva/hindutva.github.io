@@ -2,15 +2,13 @@
 title: THE FIRST STEP TOWARDS JNANA1
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Lectures and
 Discourses](lectures_and_discourses_contents.htm) /
 
-[←](the_women_of_india.htm)
 
-## THE FIRST STEP TOWARDS JNANA[1](#fn1)
 
   
 
@@ -569,7 +567,7 @@ have made the first step towards Jnana.
 
 [→](bhakti-yoga.htm)
 
-</div>
+
 
 1.  [^](#fn1_1)The Vedanta Society of Northern California archives. Vide
     New Discoveries, Vol. 3, pp. 358-63. The title of this class has

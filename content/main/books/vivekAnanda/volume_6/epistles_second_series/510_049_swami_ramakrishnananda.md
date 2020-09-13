@@ -2,19 +2,14 @@
 title: IL
 
 ---
-<div>
 
-[←](048_mrs_bull.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Epistles – Second
-Series](epistles_second_series_contents.htm) / [→](050_mrs_bull.htm)
+
+
 
   
 
-[«](../../volume_9/letters_fifth_series/040_mrs_bull.htm) Chronology
-[»](../../volume_5/epistles_first_series/019_vehemia.htm)  
-[«](047_brother_disciples.htm) Addressee
-[»](054_swami_ramakrishnananda.htm)
+  
+
 
 ## IL
 
@@ -58,4 +53,4 @@ Yours affectionately,
 
 VIVEKANANDA.
 
-</div>
+

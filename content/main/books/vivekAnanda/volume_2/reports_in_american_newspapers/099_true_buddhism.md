@@ -2,13 +2,9 @@
 title: TRUE BUDDHISM
 
 ---
-<div>
 
-[←](ideals_of_womanhood.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-2](../volume_2_contents.htm) / [Reports in American
-Newspapers](reports_in_american_newspapers_contents.htm)
-/ [→](indias_gift_to_the_world.htm)
+
+
 
   
 
@@ -105,4 +101,4 @@ been universally accepted in India, he accepted the invitation of a
 despised Pariah, who dined him on swine's flesh, from the effects of
 which he died.
 
-</div>
+

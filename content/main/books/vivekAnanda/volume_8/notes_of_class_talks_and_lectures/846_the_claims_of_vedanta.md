@@ -2,13 +2,9 @@
 title: THE CLAIMS OF VEDANTA ON THE MODERN WORLD
 
 ---
-<div>
 
-[←](jnana_and_karma.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Notes of Class Talks and
-Lectures](notes_of_class_talks_and_lectures_contents.htm)
-/ [→](the_laws_of_life_and_death.htm)
+
+
 
   
 
@@ -138,4 +134,4 @@ am Existence, Knowledge, and Truth." No man can do any good in the world
 by crying out, "I am one of its evils." The more perfect, the less
 imperfections you see.
 
-</div>
+

@@ -2,19 +2,14 @@
 title: LVII
 
 ---
-<div>
 
-[←](056_sister.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Epistles – First
-Series](epistles_first_series_contents.htm) / [→](058_alasinga.htm)
+
+
 
   
 
-[«](056_sister.htm) Chronology [»](058_alasinga.htm)  
-[«](../../volume_8/epistles_fourth_series/068_blessed_and_beloved.htm)
-Addressee
-[»](../../volume_8/epistles_fourth_series/070_blessed_and_beloved.htm)
+  
+
 
 ## LVII
 
@@ -127,4 +122,4 @@ Yours etc.,
 
 VIVEKANANDA.
 
-</div>
+

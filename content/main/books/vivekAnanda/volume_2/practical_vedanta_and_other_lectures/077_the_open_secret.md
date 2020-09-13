@@ -2,13 +2,9 @@
 title: THE OPEN SECRET
 
 ---
-<div>
 
-[←](the_ideal_of_a_universal_religion.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-2](../volume_2_contents.htm) / [Practical Vedanta and other
-lectures](practical_vedanta_and_other_lectures_contents.htm)
-/ [→](the_way_to_blessedness.htm)
+
+
 
   
 
@@ -269,4 +265,4 @@ and; flesh of your flesh, until all the hideous dreams of littleness, of
 weakness, of misery, and of evil, have entirely vanished, and no more
 then can the Truth be hidden from you even for a moment.
 
-</div>
+

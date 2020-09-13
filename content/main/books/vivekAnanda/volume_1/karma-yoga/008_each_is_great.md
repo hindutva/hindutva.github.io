@@ -4,12 +4,9 @@ title: 'EACH
   IS GREAT IN HIS OWN PLACE'
 
 ---
-<div>
 
-[←](effect_on_character.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-1](../complete_works_v1_contents.htm)
-/ [Karma-Yoga](karma-yoga_contents.htm) / [→](secret_of_work.htm)
+
+
 
   
 
@@ -508,4 +505,4 @@ if you choose the life of renunciation, do not even look at beauty and
 money and power. Each is great in his own place, but the duty of the one
 is not the duty of the other.
 
-</div>
+

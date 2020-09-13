@@ -4,15 +4,13 @@ title: 'ONE CIRCLE MORE1
   '
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Writings: Prose and
 Poems](writings_prose_and_poems_contents.htm) /
 
-[←](the_plague_manifesto.htm)
 
-## ONE CIRCLE MORE[1](#fn1)
 
 *\[A fragmentary poem composed at Ridgely Manor, in 1899\]*
 
@@ -41,7 +39,7 @@ And time — the good, the pure, the true.
 
 [→](facsimile.htm)
 
-</div>
+
 
 1.  [^](#tx1)Vedanta Society of Southern California archives.   Mrs.
     Frances Leggett found this document on Ridgely Manor stationary and

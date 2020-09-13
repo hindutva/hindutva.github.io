@@ -4,12 +4,9 @@ title: 'RECORDED BY MISS S. E. WALDO
   (A DISCIPLE)'
 
 ---
-<div>
 
-[←](27_friday_july_19.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Inspired
-Talks](inspired_talks_contents.htm) / [→](29_sunday_july_21.htm)
+
+
 
   
 
@@ -81,4 +78,4 @@ bondage. Feel the wonderful atmosphere of freedom. You are free, free,
 free! Oh, blessed am I! Freedom am I! I am the Infinite! In my soul I
 can find no beginning and no end. All is my Self. Say this unceasingly.
 
-</div>
+

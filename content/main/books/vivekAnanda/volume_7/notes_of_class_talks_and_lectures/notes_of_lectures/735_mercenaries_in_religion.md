@@ -2,14 +2,9 @@
 title: MERCINARIES IN RELIGION
 
 ---
-<div>
 
-[←](../notes_of_class_talks/shri_ramakrishna_the_nations.htm)
-[Home](../../../../index.htm) /
-[Complete-Works](../../../complete_works.htm) / [Volume
-7](../../volume_7_contents.htm) / [Notes of Class Talks and
-Lectures](../notes_of_class_talks_and_lectures_contents.htm) / [Notes of
-Lectures](notes_of_lectures_contents.htm) / [→](the_destiny_of_man.htm)
+
+
 
   
 
@@ -122,4 +117,4 @@ be welcome in India, because the missionaries would then come to them
 with God, not with the idea that India knows not God, but with love in
 their hearts and not dogma.
 
-</div>
+

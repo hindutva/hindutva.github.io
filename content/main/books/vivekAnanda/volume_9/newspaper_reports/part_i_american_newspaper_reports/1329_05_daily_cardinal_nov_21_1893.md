@@ -2,7 +2,7 @@
 title: RELIGIONS OF INDIA
 
 ---
-<div>
+
 
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
@@ -10,17 +10,7 @@ title: RELIGIONS OF INDIA
 Reports](../newspaper_reports_contents.htm) / [American Newspaper
 Reports](american_newspaper_contents.htm) /
 
-[←](04_ny_critic_nov_11_1893.htm)
 
-## RELIGIONS OF INDIA
-
-(*New Discoveries*, Vol. 1, p. 191.)
-
-Viva Kananda, the Hindoo Orator Delivers an Interesting Lecture
-
-(Of which there is no verbatim transcript available. Cf. *[Complete
-Works](../../../volume_3/reports_in_american_newspapers/an_interesting_lecture.htm)*,
-III: 481 for a less comprehensive report of the same lecture.)
 
 \[*Daily Cardinal*, University of Wisconsin at Madison,
 
@@ -57,4 +47,4 @@ rivets your attention at the start.
 
 [→](06_daily_iowa_capitol_nov_28_1893.htm)
 
-</div>
+

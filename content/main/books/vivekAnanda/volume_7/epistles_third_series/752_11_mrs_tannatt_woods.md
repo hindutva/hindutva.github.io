@@ -2,16 +2,13 @@
 title: XI
 
 ---
-<div>
 
-[←](10_adhyapakji.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Epistles – Third
-Series](epistles_third_series_contents.htm) / [→](12_adhyapakji.htm)
+
+
 
   
 
-[«](10_adhyapakji.htm) Chronology [»](12_adhyapakji.htm)  
+  
 Addressee [»](13_mrs_woods.htm)
 
 ## XI
@@ -35,4 +32,4 @@ Yours truly,
 
 VIVEKANANDA.
 
-</div>
+

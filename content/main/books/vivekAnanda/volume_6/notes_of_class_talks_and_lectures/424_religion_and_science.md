@@ -2,13 +2,9 @@
 title: RELIGION AND SCIENCE
 
 ---
-<div>
 
-[←](../lectures_and_discourses/divine_love.htm)
-[Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
-/ [Volume 6](../volume_6_contents.htm) / [Notes of Class Talks and
-Lectures](notes_of_class_talks_and_lectures_contents.htm)
-/ [→](religion_is_realisation.htm)
+
+
 
   
 
@@ -59,4 +55,4 @@ take it to God. The end and aim of all religions is to realise God. The
 greatest of all training is to worship God alone. If each man chose his
 own ideal and stuck to it, all religious controversy would vanish.
 
-</div>
+

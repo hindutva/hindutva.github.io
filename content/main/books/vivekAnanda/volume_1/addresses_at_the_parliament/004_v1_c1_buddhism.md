@@ -2,13 +2,9 @@
 title: BUDDHISM, THE FULFILMENT OF HINDUISM
 
 ---
-<div>
 
-[←](v1_c1_crying_need.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-1](../complete_works_v1_contents.htm) / [Addresses at The Parliament of
-Religions](addresses_at_the_parliament.htm) /
-[→](v1_c1_final_session.htm)
+
+
 
   
 
@@ -94,4 +90,4 @@ years. Let us then join the wonderful intellect of the Brahmins with the
 heart, the noble soul, the wonderful humanising power of the Great
 Master.
 
-</div>
+

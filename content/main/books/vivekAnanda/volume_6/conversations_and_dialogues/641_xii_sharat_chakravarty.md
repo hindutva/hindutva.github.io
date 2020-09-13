@@ -2,13 +2,9 @@
 title: XII
 
 ---
-<div>
 
-[←](xi_sharat_chakravarty.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Conversations and
-Dialogues](conversations_and_dialogues_contents.htm)
-/ [→](../../volume_7/inspired_talks/01_wednesday_june_19.htm)
+
+
 
   
 
@@ -216,4 +212,4 @@ Swamiji: So good night now, it is getting very late.
 
  
 
-</div>
+

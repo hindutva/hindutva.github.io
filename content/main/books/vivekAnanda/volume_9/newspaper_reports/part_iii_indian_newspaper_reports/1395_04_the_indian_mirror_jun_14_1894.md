@@ -2,7 +2,7 @@
 title: ON CHRISTIAN CONVERSION
 
 ---
-<div>
+
 
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
@@ -10,11 +10,7 @@ title: ON CHRISTIAN CONVERSION
 Reports](../newspaper_reports_contents.htm) / [Indian Newspaper
 Reports](indian_newspaper_contents.htm) /
 
-[←](03_the_indian_mirror_dec_7_1893.htm)
 
-## ON CHRISTIAN CONVERSION
-
-(*Vivekananda in Indian Newspapers*, p. 25.)
 
 \[*The Indian Mirror*, June 14, 1894\]
 
@@ -46,4 +42,4 @@ dare call me the same in India?
 
 [→](05_the_indian_mirror_jul_20_1894.htm)
 
-</div>
+

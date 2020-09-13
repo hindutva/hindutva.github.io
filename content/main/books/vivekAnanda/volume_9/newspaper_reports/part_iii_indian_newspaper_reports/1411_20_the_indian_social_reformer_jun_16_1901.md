@@ -2,7 +2,7 @@
 title: HINDU WIDOWS
 
 ---
-<div>
+
 
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
@@ -10,11 +10,7 @@ title: HINDU WIDOWS
 Reports](../newspaper_reports_contents.htm) / [Indian Newspaper
 Reports](indian_newspaper_contents.htm) /
 
-[←](19_the_indian_mirror_feb_15_1901.htm)
 
-## HINDU WIDOWS
-
-(*Vivekananda in Indian Newspapers*, p. 458.)
 
 \[*The Indian Social Reformer*, June 16, 1901\]
 
@@ -44,4 +40,4 @@ duly acknowledged."
 
 [→](../../../unpublished/unpublished_contents.htm)
 
-</div>
+

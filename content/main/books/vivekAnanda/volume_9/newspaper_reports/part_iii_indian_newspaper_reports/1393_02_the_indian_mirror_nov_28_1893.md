@@ -2,7 +2,7 @@
 title: THE PARLIAMENT OF RELIGIONS
 
 ---
-<div>
+
 
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
@@ -10,15 +10,7 @@ title: THE PARLIAMENT OF RELIGIONS
 Reports](../newspaper_reports_contents.htm) / [Indian Newspaper
 Reports](indian_newspaper_contents.htm) /
 
-[←](01_madura_mail_jan_28_1893.htm)
-
-## THE PARLIAMENT OF RELIGIONS
-
-(*Vivekananda in Indian Newspapers*, p. 4.)
-
-BY H. R. HAWEIS
-
-\[*The* *Indian Mirror* (from *The Daily Chronicle*),
+,
 
 November 28, 1893\]
 
@@ -45,4 +37,4 @@ receive him and listen to him, and as we have done our own inspired
 
 [→](03_the_indian_mirror_dec_7_1893.htm)
 
-</div>
+

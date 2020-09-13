@@ -2,19 +2,14 @@
 title: LXVIII
 
 ---
-<div>
 
-[←](067_sister.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Epistles – Fourth
-Series](epistles_fourth_series_contents.htm) / [→](069_alasinga.htm)
+
+
 
   
 
-[«](../../volume_9/letters_fifth_series/083_mrs_bull.htm) Chronology
-[»](069_alasinga.htm)  
-[«](066_friend.htm) Addressee
-[»](../../volume_5/epistles_first_series/057_blessed_and_beloved.htm)
+  
+
 
 ## LXVIII
 
@@ -72,4 +67,4 @@ Ever yours with love and blessings,
 
 VIVEKANANDA.
 
-</div>
+

@@ -2,19 +2,13 @@
 title: CXCVIII
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
 
-[←](197_mother.htm)  
-[←Chronology](../../volume_5/epistles_first_series/104_shashi.htm)  
-[←Addressee](177_mrs_hansbrough.htm)
-
-## CXCVIII
-
-*To Mrs. Alice (Shanti) Hansbrough*
+ Hansbrough*
 
 THE MATH  
 HOWRAH DIST.,  
@@ -53,4 +47,4 @@ VIVEKANANDA
 [Addressee→](217_mrs_hansbrough.htm)  
 [Chronology→](../../volume_5/epistles_first_series/105_joe.htm)
 
-</div>
+

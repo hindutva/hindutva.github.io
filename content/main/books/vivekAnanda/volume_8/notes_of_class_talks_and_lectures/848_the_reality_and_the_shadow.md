@@ -2,13 +2,9 @@
 title: THE REALITY AND THE SHADOW
 
 ---
-<div>
 
-[←](the_laws_of_life_and_death.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Notes of Class Talks and
-Lectures](notes_of_class_talks_and_lectures_contents.htm)
-/ [→](way_to_salvation.htm)
+
+
 
   
 
@@ -78,4 +74,4 @@ Itself."
 After the discourse an opportunity was afforded for asking questions of
 the speaker, who devoted half an hour to answering them.
 
-</div>
+

@@ -2,20 +2,14 @@
 title: LXX
 
 ---
-<div>
 
-[←](069_alasinga.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Epistles – Fourth
-Series](epistles_fourth_series_contents.htm)
-/ [→](071_blessed_and_beloved.htm)
+
+
 
   
 
-[«](../../volume_9/letters_fifth_series/086_miss_thursby.htm) Chronology
-[»](../../volume_6/epistles_second_series/094_sarada.htm)  
-[«](../../volume_5/epistles_first_series/057_blessed_and_beloved.htm)
-Addressee [»](071_blessed_and_beloved.htm)
+  
+
 
 ## LXX
 
@@ -59,4 +53,4 @@ Yours with all blessings,
 
 VIVEKANANDA.
 
-</div>
+

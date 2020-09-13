@@ -2,19 +2,14 @@
 title: XIV
 
 ---
-<div>
 
-[←](013_diwanji_saheb.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Epistles – Fourth
-Series](epistles_fourth_series_contents.htm)
-/ [→](015_diwanji_saheb.htm)
+
+
 
   
 
-[«](013_diwanji_saheb.htm) Chronology
-[»](../../unpublished/ii_your_highness.htm)  
-[«](013_diwanji_saheb.htm) Addressee [»](015_diwanji_saheb.htm)
+  
+
 
 ## XIV
 
@@ -58,4 +53,4 @@ lost in Him and Him alone. Amen!
 Yours affectionately,  
 VIVEKANANDA.
 
-</div>
+

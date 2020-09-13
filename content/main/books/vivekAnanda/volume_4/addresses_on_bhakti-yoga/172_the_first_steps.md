@@ -2,13 +2,9 @@
 title: THE FIRST STEPS
 
 ---
-<div>
 
-[←](the_preparation.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-4](../volume_4_contents.htm) / [Addresses on
-Bhakti-Yoga](addresses_on_bhakti-yoga_contents.htm)
-/ [→](the_teacher_of_spirituality.htm)
+
+
 
   
 
@@ -290,4 +286,4 @@ we must make it our highest ideal, make our senses aim at the highest.
 If we cannot get to the end, we shall at least come nearer to it. We
 have slowly to work through the world and the senses to reach God.
 
-</div>
+

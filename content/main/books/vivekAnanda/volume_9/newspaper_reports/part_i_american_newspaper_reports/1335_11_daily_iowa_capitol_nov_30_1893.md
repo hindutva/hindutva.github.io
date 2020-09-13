@@ -2,7 +2,7 @@
 title: ON AMERICAN WOMEN
 
 ---
-<div>
+
 
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
@@ -10,11 +10,7 @@ title: ON AMERICAN WOMEN
 Reports](../newspaper_reports_contents.htm) / [American Newspaper
 Reports](american_newspaper_contents.htm) /
 
-[←](10_des_moines_daily_news_nov_30_1893.htm)
 
-## ON AMERICAN WOMEN
-
-(*New Discoveries*, Vol. 1, p. 208.)
 
 \[*Daily Iowa Capitol*, November 30, 1893\]
 
@@ -26,4 +22,4 @@ women are lovely, but American men are entirely too practical.
 
 [→](12_iowa_state_register_dec_1_1893.htm)
 
-</div>
+

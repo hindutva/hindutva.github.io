@@ -2,7 +2,7 @@
 title: CULTURE AT HOME
 
 ---
-<div>
+
 
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
@@ -10,11 +10,7 @@ title: CULTURE AT HOME
 Reports](../newspaper_reports_contents.htm) / [American Newspaper
 Reports](american_newspaper_contents.htm) /
 
-[←](17_detroit_journal_feb_23_1894.htm)
 
-## CULTURE AT HOME
-
-(*New Discoveries*, Vol. 1, p. 365.)
 
 \[*Detroit Evening News*, February 25, 1894\]
 
@@ -50,4 +46,4 @@ smiled at him ironically and said:
 
 [→](19_detroit_tribune_mar_11_1894.htm)
 
-</div>
+

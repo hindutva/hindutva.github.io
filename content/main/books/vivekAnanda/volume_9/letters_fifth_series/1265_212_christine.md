@@ -2,15 +2,13 @@
 title: CCXII
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
 
-[←](211_christine.htm)  
-[←Chronology](211_christine.htm)  
-[←Addressee](211_christine.htm)
+
 
 ## CCXII
 
@@ -78,7 +76,7 @@ VIVEKANANDA
 [Addressee→](213_christine.htm)  
 [Chronology→](213_christine.htm)
 
-</div>
+
 
 1.  [^](#fn1_1)Probably the Swami placed this phrase in quotation marks
     because it is the title of a poem in Walt Whitman's Leaves of Grass.

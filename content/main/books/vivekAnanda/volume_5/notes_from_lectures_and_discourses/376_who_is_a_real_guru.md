@@ -2,13 +2,9 @@
 title: WHO IS A REAL GURU?
 
 ---
-<div>
 
-[←](the_cosmos_and_the_self.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Notes from Lectures and
-Discourses](notes_from_lectures_and_discourses_contents.htm)
-/ [→](on_art.htm)
+
+
 
   
 
@@ -38,4 +34,4 @@ will remain the faintest shadow of Ahamkâra (egotism). All of you should
 try to root out this devil from your heart. Complete self-surrender is
 the only way to spiritual illumination.
 
-</div>
+

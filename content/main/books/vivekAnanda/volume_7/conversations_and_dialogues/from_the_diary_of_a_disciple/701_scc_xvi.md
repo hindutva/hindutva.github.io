@@ -2,14 +2,9 @@
 title: 'CONVERSATIONS AND DIALOGUES '
 
 ---
-<div>
 
-[←](scc_xv.htm) [Home](../../../../index.htm) /
-[Complete-Works](../../../complete_works.htm) / [Volume
-7](../../volume_7_contents.htm) / [Conversations and
-Dialogues](../conversations_and_dialogues_contents.htm) / [From the
-Diary of a Disciple](from_the_diary_of_a_disciple_contents.htm)
-/ [→](scc_xvii.htm)
+
+
 
   
 
@@ -202,4 +197,4 @@ the disciple in company and read the article on Art in the
 to make fun with the disciple, caricaturing the words and accents of
 East Bengal.
 
-</div>
+

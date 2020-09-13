@@ -2,13 +2,9 @@
 title: HISTORICAL EVOLUTION OF INDIA
 
 ---
-<div>
 
-[←](../notes_of_class_talks_and_lectures/narada-bhakti-sutras.htm)
-[Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
-/ [Volume 6](../volume_6_contents.htm) / [Writings: Prose and
-Poems](writings_prose_and_poems_contents.htm)
-/ [→](the_story_of_boy_gopala.htm)
+
+
 
   
 
@@ -357,4 +353,4 @@ jubilation of the people when they die.
 
 But possibly, for some time yet, it cannot be otherwise.
 
-</div>
+

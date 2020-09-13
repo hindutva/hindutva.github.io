@@ -2,15 +2,13 @@
 title: CXLVIII
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
 
-[←](147_mother.htm)  
-[←Chronology](147_mother.htm)  
-[←Addressee](145_christina.htm)
+
 
 ## CXLVIII
 
@@ -39,4 +37,4 @@ VIVEKANANDA.
 [Addressee→](149_christina.htm)  
 [Chronology→](../../volume_8/epistles_fourth_series/145_optimist.htm)
 
-</div>
+

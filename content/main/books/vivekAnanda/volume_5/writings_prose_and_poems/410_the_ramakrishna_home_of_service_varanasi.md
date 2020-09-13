@@ -4,13 +4,9 @@ title: 'THE RAMAKRISHNA HOME OF SERVICE
   VARANASI: AN APPEAL'
 
 ---
-<div>
 
-[←](the_advaita_ashrama_himalayas.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Writings: Prose and
-Poems](writings_prose_and_poems_contents.htm)
-/ [→](who_knows_how_mother_plays.htm)
+
+
 
   
 
@@ -88,4 +84,4 @@ Ever yours in the Lord of the universe,
 
 VIVEKANANDA.
 
-</div>
+

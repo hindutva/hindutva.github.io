@@ -2,19 +2,14 @@
 title: CXIX
 
 ---
-<div>
 
-[←](118_mrs_bull.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Epistles – Second
-Series](epistles_second_series_contents.htm) / [→](120_alberta.htm)
+
+
 
   
 
-[«](../../volume_5/epistles_first_series/073_madam.htm) Chronology
-[»](120_alberta.htm)  
-[«](../../volume_9/letters_fifth_series/093_sir.htm) Addressee
-[»](../../volume_7/epistles_third_series/51_mr_leggett.htm)
+  
+
 
 ## CXIX
 
@@ -41,4 +36,4 @@ VIVEKANANDA.
 1.  [^](#txt1)Lit. Child Krishna. The Swami refers to the birth of a
     girl in place of an expected son.
 
-</div>
+

@@ -2,14 +2,9 @@
 title: CONVERSATIONS AND DIALOGUES
 
 ---
-<div>
 
-[←](scc_xxv.htm) [Home](../../../../index.htm) /
-[Complete-Works](../../../complete_works.htm) / [Volume
-7](../../volume_7_contents.htm) / [Conversations and
-Dialogues](../conversations_and_dialogues_contents.htm) / [From the
-Diary of a Disciple](from_the_diary_of_a_disciple_contents.htm)
-/ [→](scc_xxvii.htm)
+
+
 
   
 
@@ -146,4 +141,4 @@ well, you can tell the world at large about the scriptural truths you
 have studied so long. There is no higher gift than this, for the gift of
 knowledge is the highest gift in the world."
 
-</div>
+

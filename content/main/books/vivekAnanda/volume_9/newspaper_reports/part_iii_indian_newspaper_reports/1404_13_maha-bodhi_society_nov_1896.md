@@ -2,7 +2,7 @@
 title: '"THE IDEAL OF UNIVERSAL RELIGION"'
 
 ---
-<div>
+
 
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
@@ -10,11 +10,7 @@ title: '"THE IDEAL OF UNIVERSAL RELIGION"'
 Reports](../newspaper_reports_contents.htm) / [Indian Newspaper
 Reports](indian_newspaper_contents.htm) /
 
-[←](12_the_indian_mirror_sep_22_1896.htm)
 
-## "THE IDEAL OF UNIVERSAL RELIGION"
-
-(*Vivekananda in Indian Newspapers*, pp. 331-33.)
 
 \[*The Journal of the Maha-Bodhi Society*, November 1896\]
 
@@ -83,4 +79,4 @@ Madras.
 
 [→](14_the_indian_mirror_dec_16_1896.htm)
 
-</div>
+

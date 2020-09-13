@@ -2,17 +2,13 @@
 title: LXXIV
 
 ---
-<div>
 
-[←](073_madam.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Epistles – First
-Series](epistles_first_series_contents.htm) / [→](075_doctor_shashi.htm)
+
+
 
   
 
-[«](../../volume_9/letters_fifth_series/108_miss_noble.htm) Chronology
-[»](../../volume_9/letters_fifth_series/109_lalajee.htm)  
+  
 Addressee
 [»](../../volume_4/translation_prose/the_education_that_india_needs.htm)
 
@@ -97,4 +93,4 @@ Ever grateful and ever praying to the Lord for your welfare,
 
 VIVEKANANDA.
 
-</div>
+

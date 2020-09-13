@@ -4,13 +4,9 @@ title: 'RAJA YOGA
   FOURTH LESSON'
 
 ---
-<div>
 
-[←](raja-yoga_iii.htm) [Home](../../../../index.htm) /
-[Complete-Works](../../../complete_works.htm) / [Volume
-8](../../volume_8_contents.htm) / [Lectures and
-Discourses](../lectures_and_discourses_contents.htm) / [Six Lessons on
-Raja-Yoga](six_lessons_on_raja-yoga_contents.htm) / [→](raja-yoga_v.htm)
+
+
 
   
 
@@ -85,4 +81,4 @@ reason and is the only light that takes us everywhere.
 Inspiration is from within and we have to inspire ourselves by our own
 higher faculties.
 
-</div>
+

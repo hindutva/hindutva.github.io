@@ -2,14 +2,9 @@
 title: 'CONVERSATIONS AND DIALOGUES '
 
 ---
-<div>
 
-[←](scc_ix.htm) [Home](../../../../index.htm) /
-[Complete-Works](../../../complete_works.htm) / [Volume
-7](../../volume_7_contents.htm) / [Conversations and
-Dialogues](../conversations_and_dialogues_contents.htm) / [From the
-Diary of a Disciple](from_the_diary_of_a_disciple_contents.htm)
-/ [→](scc_xi.htm)
+
+
 
   
 
@@ -174,4 +169,4 @@ physique is brought home to people, they will exert themselves of their
 own accord. It is to make them feel this need that education is
 necessary at the present moment.
 
-</div>
+

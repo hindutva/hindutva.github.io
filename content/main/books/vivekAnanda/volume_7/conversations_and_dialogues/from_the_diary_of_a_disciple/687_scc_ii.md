@@ -2,14 +2,9 @@
 title: CONVERSATIONS AND DIALOGUES
 
 ---
-<div>
 
-[←](scc_i.htm) [Home](../../../../index.htm) /
-[Complete-Works](../../../complete_works.htm) / [Volume
-7](../../volume_7_contents.htm) / [Conversations and
-Dialogues](../conversations_and_dialogues_contents.htm) / [From the
-Diary of a Disciple](from_the_diary_of_a_disciple_contents.htm)
-/ [→](scc_iii.htm)
+
+
 
   
 
@@ -287,4 +282,4 @@ the disciple.
 1.  [^](#txt1)Uncle of the Pândava brothers, and a most saintly
     character, considered to be an incarnation of Dharma.
 
-</div>
+

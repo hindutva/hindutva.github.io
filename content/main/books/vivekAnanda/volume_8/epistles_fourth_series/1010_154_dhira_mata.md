@@ -2,18 +2,14 @@
 title: CLIV
 
 ---
-<div>
 
-[←](153_mary.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Epistles – Fourth
-Series](epistles_fourth_series_contents.htm) / [→](155_dhira_mata.htm)
+
+
 
   
 
-[«](../../volume_9/letters_fifth_series/161_christina.htm) Chronology
-[»](../../volume_6/epistles_second_series/152_margot.htm)  
-[«](152_dhira_mata.htm) Addressee [»](155_dhira_mata.htm)
+  
+
 
 ## CLIV
 
@@ -89,4 +85,4 @@ to India, won't you? Mother will make you do it. I am sure.
 Ever your son,  
 VIVEKANANDA.
 
-</div>
+

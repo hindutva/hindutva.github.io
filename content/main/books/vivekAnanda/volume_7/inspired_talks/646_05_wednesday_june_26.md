@@ -4,12 +4,9 @@ title: 'RECORDED BY MISS S. E. WALDO
   (A DISCIPLE)'
 
 ---
-<div>
 
-[←](04_tuesday_june_25.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Inspired
-Talks](inspired_talks_contents.htm) / [→](06_thursday_june_27.htm)
+
+
 
   
 
@@ -96,4 +93,4 @@ away, ambition non-existent. They are all principle, no personality.
     iron plate is heated under her feet and it becomes unbearable, she
     throws down the baby and stands on it to save herself.
 
-</div>
+

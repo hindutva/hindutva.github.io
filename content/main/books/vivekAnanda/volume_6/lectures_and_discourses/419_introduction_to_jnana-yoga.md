@@ -2,13 +2,9 @@
 title: INTRODUCTION TO JNANA-YOGA
 
 ---
-<div>
 
-[←](concentration_and_breathing.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Lectures and
-Discourses](lectures_and_discourses_contents.htm)
-/ [→](the_vedanta_philosophy_and_christianity.htm)
+
+
 
   
 
@@ -159,4 +155,4 @@ or a veil were between us and some other object. The object becomes
 clear as the screen is gradually withdrawn. The question is simply one
 of manifestation of the higher Self.
 
-</div>
+

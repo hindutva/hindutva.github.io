@@ -4,15 +4,13 @@ title: 'THE PLAGUE MANIFESTO1
   '
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Writings: Prose and
 Poems](writings_prose_and_poems_contents.htm) /
 
-[←](footnotes.htm)
 
-## THE PLAGUE MANIFESTO[1](#fn1)
 
 *Om Salutations to Bhagavan Shri Ramakrishna*
 
@@ -86,7 +84,7 @@ locality.
 
 [→](one_circle_more.htm)
 
-</div>
+
 
 1.  [^](#tx1)Udbodhan, Chaitra 1329, Vol. 25, Number 3, p. 169 (March
     1926). In May 1898, when a plague epidemic broke out in Calcutta and

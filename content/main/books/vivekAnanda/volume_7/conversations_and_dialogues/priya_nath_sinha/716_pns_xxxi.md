@@ -2,14 +2,9 @@
 title: CONVERSATIONS AND DIALOGUES
 
 ---
-<div>
 
-[←](pns_xxx.htm) [Home](../../../../index.htm) /
-[Complete-Works](../../../complete_works.htm) / [Volume
-7](../../volume_7_contents.htm) / [Conversations and
-Dialogues](../conversations_and_dialogues_contents.htm) / [Shri Priya
-Nath Sinha](priya_nath_sinha_contents.htm)
-/ [→](../mrs_wright_xxxii.htm)
+
+
 
   
 
@@ -233,4 +228,4 @@ But, also, I have not been destined to enjoy physically — and lying on
 the mattress only aggravates my illness. I feel suffocated, as it were.
 I have to come down and lie on the floor for relief!
 
-</div>
+

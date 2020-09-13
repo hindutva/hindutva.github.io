@@ -2,18 +2,14 @@
 title: XXXVI
 
 ---
-<div>
 
-[←](035_govinda_sahay.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Epistles – Second
-Series](epistles_second_series_contents.htm)
-/ [→](037_govinda_sahay.htm)
+
+
 
   
 
-[«](035_govinda_sahay.htm) Chronology [»](037_govinda_sahay.htm)  
-[«](035_govinda_sahay.htm) Addressee [»](037_govinda_sahay.htm)
+  
+
 
 ## XXXVI
 
@@ -43,4 +39,4 @@ V.
 PS. Don't be ruffled if now and then you get a brush from the world; it
 will be over in no time, and everything will be all right.
 
-</div>
+

@@ -2,13 +2,9 @@
 title: ALL RELIGIONS ARE GOOD
 
 ---
-<div>
 
-[←](the_religion_of_buddha.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-2](../volume_2_contents.htm) / [Reports in American
-Newspapers](reports_in_american_newspapers_contents.htm)
-/ [→](the_hindu_way_of_life.htm)
+
+
 
   
 
@@ -85,4 +81,4 @@ attainments of the lamas. "There is a great lack of trained, scientific,
 and unprejudiced observers in all accounts of these phenomena," said he,
 "so that it is hard to select the false from the true."
 
-</div>
+

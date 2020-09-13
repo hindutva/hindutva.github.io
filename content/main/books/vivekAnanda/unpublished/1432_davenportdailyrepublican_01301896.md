@@ -2,11 +2,9 @@
 title: AN ORIENTAL GOD IN NEW YORK
 
 ---
-<div>
 
-[←](nyt_12131895.htm) [Home](../../index.htm) /
-[Complete-Works](../complete_works.htm) /
-[Unpublished](unpublished_contents.htm) / [→](nyt_03201896.htm)
+
+
 
   
 
@@ -46,4 +44,4 @@ him day and evening, two-thirds women, and for the moment Swami
 Vivikananda reigns. But I am sure he does not look like -- not even like
 an oriental god.
 
-</div>
+

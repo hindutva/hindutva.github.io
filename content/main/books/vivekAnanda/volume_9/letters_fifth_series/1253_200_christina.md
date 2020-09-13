@@ -2,15 +2,13 @@
 title: CC
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
 
-[←](199_friend.htm)  
-[←Chronology](199_friend.htm)  
-[←Addressee](196_christina.htm)
+
 
 ## CC
 
@@ -62,4 +60,4 @@ VIVEKANANDA.
 [Addressee→](../../volume_5/epistles_first_series/109_christine.htm)  
 [Chronology→](../../volume_5/epistles_first_series/107_joe.htm)
 
-</div>
+

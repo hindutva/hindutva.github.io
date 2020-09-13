@@ -2,13 +2,9 @@
 title: REPLY TO THE ADDRESS OF WELCOME AT SHIVAGANGA AND MANAMADURA
 
 ---
-<div>
 
-[←](reply_to_the_address_of_welcome_at_paramakudi.htm)
-[Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
-/ [Volume 3](../volume_3_contents.htm) / [Lectures from Colombo to
-Almora](lectures_from_colombo_to_almora_contents.htm)
-/ [→](reply_to_the_address_of_welcome_at_madura.htm)
+
+
 
   
 
@@ -189,4 +185,4 @@ is the only value that life has. This is the great work to be done in
 India. I welcome the present religious revival; and I should be foolish
 if I lost the opportunity of striking the iron while it is hot.
 
-</div>
+

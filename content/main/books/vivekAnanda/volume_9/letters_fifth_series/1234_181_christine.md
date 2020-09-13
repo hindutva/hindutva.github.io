@@ -2,15 +2,13 @@
 title: CLXXXI
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
 
-[←](180_mrs_leggett.htm)  
-[←Chronology](../../volume_8/epistles_fourth_series/190_john_fox.htm)  
-[←Addressee](179_christina.htm)
+
 
 ## CLXXXI
 
@@ -44,4 +42,4 @@ VIVEKANANDA
 [Addressee→](183_christine.htm)  
 [Chronology→](../../volume_8/epistles_fourth_series/191_brother_hari.htm)
 
-</div>
+

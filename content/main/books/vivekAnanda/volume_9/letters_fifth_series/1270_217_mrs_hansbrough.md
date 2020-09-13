@@ -2,19 +2,13 @@
 title: CCXVII
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
 
-[←](216_joe.htm)  
-[←Chronology](216_joe.htm)  
-[←Addressee](198_mrs_hansbrough.htm)
-
-## CCXVII
-
-*To Mrs. Alice (Shanti) Hansbrough*
+ Hansbrough*
 
 BENARAS
 
@@ -51,4 +45,4 @@ till I reach Japan or America.
 [→](218_margo.htm)  
 [Chronology→](../../volume_5/epistles_first_series/118_rakhal.htm)
 
-</div>
+

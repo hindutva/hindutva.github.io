@@ -2,15 +2,13 @@
 title: CXXXI
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
 
-[←](130_margot.htm)  
-[←Chronology](130_margot.htm)  
-[←Addressee](130_margot.htm)
+
 
 ## CXXXI
 
@@ -35,4 +33,4 @@ VIVEKANANDA
 [Addressee→](135_margot.htm)  
 [Chronology→](../../volume_5/epistles_first_series/089_mother.htm)
 
-</div>
+

@@ -2,19 +2,14 @@
 title: TO MY BRAVE BOYS
 
 ---
-<div>
 
-[←](reply_to_the_calcutta_address.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-4](../volume_4_contents.htm) / [Writings:
-Prose](writings_prose_contents.htm) / [→](a_plan_of_work_for_india.htm)
+
+
 
   
 
-[«](../../volume_9/letters_fifth_series/044_mother.htm) Chronology
-[»](../../volume_5/epistles_first_series/022_alasinga.htm)  
-[«](../../volume_5/epistles_first_series/021_blessed_and_beloved.htm)
-Addressee [»](../../volume_5/epistles_first_series/022_alasinga.htm)
+  
+
 
 ## TO MY BRAVE BOYS
 
@@ -127,4 +122,4 @@ not blame them.
 
 Blessings to you all!
 
-</div>
+

@@ -2,15 +2,13 @@
 title: CXC
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
 
-[←](189_sister_christine.htm)  
-[←Chronology](../../volume_8/epistles_fourth_series/196_joe.htm)  
-[←Addressee](../../volume_5/epistles_first_series/091_friend.htm)
+
 
 ## CXC
 
@@ -43,4 +41,4 @@ VIVEKANANDA
 [→](191_mother.htm)  
 [Chronology→](../../volume_6/epistles_second_series/165_joe.htm)
 
-</div>
+

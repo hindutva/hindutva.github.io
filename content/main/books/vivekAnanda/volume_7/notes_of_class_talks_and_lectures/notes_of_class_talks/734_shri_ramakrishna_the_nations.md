@@ -2,14 +2,9 @@
 title: 'SHRI RAMAKRISHNA: THE NATION''S IDEAL'
 
 ---
-<div>
 
-[←](on_shri_ramakrishna.htm) [Home](../../../../index.htm) /
-[Complete-Works](../../../complete_works.htm) / [Volume
-7](../../volume_7_contents.htm) / [Notes of Class Talks and
-Lectures](../notes_of_class_talks_and_lectures_contents.htm) / [Notes of
-Class Talks](notes_of_class_talks_contents.htm)
-/ [→](../notes_of_lectures/mercenaries_in_religion.htm)
+
+
 
   
 
@@ -32,4 +27,4 @@ it. I sometimes imagine that different nations have different
 Ishta-Devatas, and these are each trying for supremacy. Sometimes I
 fancy, such an Ishta-Devata becomes powerless to do service to a nation.
 
-</div>
+

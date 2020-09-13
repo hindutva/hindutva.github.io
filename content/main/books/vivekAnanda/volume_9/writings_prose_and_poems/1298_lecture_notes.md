@@ -2,17 +2,13 @@
 title: LECTURE NOTES
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Writings: Prose and
 Poems](writings_prose_and_poems_contents.htm) /
 
-[←](notes.htm)
 
-## LECTURE NOTES
-
-(*New Discoveries*, Vol. 4, pp. 213-14.)
 
 *Probably at the turn of the century, Miss Ellen Waldo gave these
 undated notes in Swami Vivekananda's handwriting to her friend Sister
@@ -52,4 +48,4 @@ Philosophy — must not be only dry intellectuality
 
 [→](macrocosm_and_microcosm.htm)
 
-</div>
+

@@ -2,18 +2,14 @@
 title: XIII
 
 ---
-<div>
 
-[←](12_adhyapakji.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Epistles – Third
-Series](epistles_third_series_contents.htm) / [→](14_sister.htm)
+
+
 
   
 
-[«](../../volume_5/epistles_first_series/005_alasinga.htm) Chronology
-[»](../../volume_9/letters_fifth_series/007_mother.htm)  
-[«](11_mrs_tannatt_woods.htm) Addressee
+  
+ Addressee
 
 ## XIII
 
@@ -53,4 +49,4 @@ Yours truly,
 
 VIVEKANANDA.
 
-</div>
+

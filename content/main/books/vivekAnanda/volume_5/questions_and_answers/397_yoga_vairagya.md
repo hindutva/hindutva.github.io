@@ -2,13 +2,9 @@
 title: V
 
 ---
-<div>
 
-[←](selections_from_the_math_diary.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Questions and
-Answers](questions_and_answers_contents.htm)
-/ [→](in_answer_to_nivedita.htm)
+
+
 
   
 
@@ -55,4 +51,4 @@ respect to the person loved, is assuredly inferior to the expression of
 divine majesty. If it were not so, all lovers of the flesh would have
 obtained freedom.
 
-</div>
+

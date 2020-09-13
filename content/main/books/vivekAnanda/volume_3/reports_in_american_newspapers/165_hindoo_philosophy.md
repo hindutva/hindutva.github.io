@@ -2,13 +2,9 @@
 title: HINDOO PHILOSOPHY
 
 ---
-<div>
 
-[←](manners_and_customs_in_india.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-3](../volume_3_contents.htm) / [Reports in American
-Newspapers](reports_in_american_newspapers_contents.htm)
-/ [→](miracles.htm)
+
+
 
   
 
@@ -105,4 +101,4 @@ Hindus, with all their faults and superstitions, never persecute. The
 speaker wanted to know how it was the Christians allowed such iniquities
 as are everywhere present in Christian countries.
 
-</div>
+

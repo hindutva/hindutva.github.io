@@ -2,28 +2,13 @@
 title: CCXIII
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
 
-[←](212_christine.htm)  
-[←Chronology](212_christine.htm)  
-[←Addressee](212_christine.htm)
-
-## CCXIII
-
-*To Sister Christine*
-
-THE MATH, BELUR,  
-DIST. HOWRAH, BENGAL, INDIA,
-
-*25th December 1901*.
-
-A Merry Christmas and Happy New Year is the usual congratulation. Alas!
-The stars brought you a tremendous blow. (Sister Christine's mother had
-passed away.) Blessed be the name of the Lord. After all, it is only
+ Blessed be the name of the Lord. After all, it is only
 "Thy will be done" — our only refuge. I will not insult you by offering
 you consolation — you know it all already. Only this line to remind you
 of one who is in entire sympathy with you and who knows that all your
@@ -45,4 +30,4 @@ VIVEKANANDA.
 [Addressee→](214_christine.htm)  
 [Chronology→](214_christine.htm)
 
-</div>
+
