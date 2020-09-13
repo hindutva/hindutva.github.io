@@ -1,5 +1,5 @@
 +++
-title = "25 REPLIES TO QUESTIONNAIRE [Note. - Three hundred and eighty-five replies to the Committee’s questionnaire were received, out of which 55 were from Christian individuals or organisations and 330 from non-Christians.xa0 However, only 13 replies from Christians and 5 replies from non-Christians have been incorporated in this volume] Replies submitted by Shri J. Lakra INTRODUCTORY"
+title = "25 REPLIES TO QUESTIONNAIRE [Note. - Three hundred and eighty-five replies to the Committee’s questionnaire were received, out of which 55 were from Christian individuals or organisations and 330 from non-Christians. However, only 13 replies from Christians and 5 replies from non-Christians have been incorporated in this volume] Replies submitted by Shri J. Lakra INTRODUCTORY"
 
 +++
 **REPLIES TO QUESTIONNAIRE**

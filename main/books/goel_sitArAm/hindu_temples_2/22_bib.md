@@ -383,6 +383,4 @@ Zwemer, S.M., *The Influence of Animism in Islam*, New York, 1920.
 
 ------------------------------------------------------------------------
 
-**[Back to Contents Page](index.htm)   [Back to VOI
-Books](http://voiceofdharma.org/books)   [Back to
-Home](http://voiceofdharma.org)**
+

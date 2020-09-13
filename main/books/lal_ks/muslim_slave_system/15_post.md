@@ -99,6 +99,4 @@ in the *Middle East* by Davis in the New York Review, October 11, 1990.
 
 ------------------------------------------------------------------------
 
-**[Back to Contents Page](index.htm)   [Back to VOI
-Books](http://voiceofdharma.org/books)   [Back to
-Home](http://voiceofdharma.org)**
+

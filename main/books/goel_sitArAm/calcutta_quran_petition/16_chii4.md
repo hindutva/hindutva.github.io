@@ -1,5 +1,5 @@
 +++
-title = "16 (4) THE WRIT APPLICATION xa0 xa0 MATTER NO. 227 OF 1985 IN THE HIGH COURT AT CALCUTTA. Constitution Writ Jurisdiction. (ORIGINAL SIDE)"
+title = "16 (4) THE WRIT APPLICATION   MATTER NO. 227 OF 1985 IN THE HIGH COURT AT CALCUTTA. Constitution Writ Jurisdiction. (ORIGINAL SIDE)"
 
 +++
 **(4)**
@@ -493,6 +493,4 @@ Sd/- Sital Singh
 
 ------------------------------------------------------------------------
 
-**[Back to Contents Page](index.htm)   [Back to VOI
-Books](http://voiceofdharma.org/books)   [Back to
-Home](http://voiceofdharma.org)**
+

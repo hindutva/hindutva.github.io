@@ -1,5 +1,5 @@
 +++
-title = "24 xa0"
+title = "24 "
 
 +++
 <div class="Section1">

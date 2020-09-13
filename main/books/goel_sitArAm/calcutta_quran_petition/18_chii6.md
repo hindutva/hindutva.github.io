@@ -1,5 +1,5 @@
 +++
-title = "18 (6) THE JUDGEMENT BIMAL CHANDRA BASAK May 17xa0xa0xa0xa0xa0xa0xa0xa0xa0 85. Chandmal Chopra & Anr. Versus State of West Bengal"
+title = "18 (6) THE JUDGEMENT BIMAL CHANDRA BASAK May 17 85. Chandmal Chopra & Anr. Versus State of West Bengal"
 
 +++
 **(6)**
@@ -491,6 +491,4 @@ Sd/-
 
 ------------------------------------------------------------------------
 
-**[Back to Contents Page](index.htm)   [Back to VOI
-Books](http://voiceofdharma.org/books)   [Back to
-Home](http://voiceofdharma.org)**
+
