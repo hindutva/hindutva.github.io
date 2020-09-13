@@ -1141,25 +1141,29 @@ secured. Let that, however, pass. As I will have to touch upon this topic later 
 upon it further in this place. In short, we did not at all like the wordy warfare that went on between
 the two parties.
 
-### WE STRUCK TWO REFORMERS
-We two brothers, therefore, thought that the chastisement of fome prominent individual from
-amongst the reformers would be conducive to the furtherance (of the cause of the orthodox party).
-From the very first, we entertained a violent grudge against the Sudharak newspaper, but as we
-were not able to put our thoughts into execution while Agarkar edited that paper, that sinner
-escaped (chastisement) at our hands. Being, however, inspired with a strong desire to do something
+### WE STRUCK TW REFORMERS
+We two brothers, therefore, thought that the chastisement of some prominent individua from
+amongst the reformers would be conducive to the furtherance (of the cause of the orthodox part).
+From the very first, we entertained a violent grudge against the Sudharak newspaper, but a we
+were not able to put our thoughts into execution while Agarkar edited that paper, tha sinner
+escaped (chastisement) at our hands. Being, however, inspired with a strong desire to d something
 on this occasion, we determined to pounce upon either of the two editors of that paper whom we
-might be able to catch, and with that object in view we watched for an ipportunity. This newspaper
-always speaks ill of the orthodox party and their way. Its articles have a tendency to produce
-misapprehension in the minds of the people respecting the Dharma Shastras by placing different
+might be able to catch, and with that object in view we watched for an ipportunity. Thi newspaper
+always speaks ill of the orthodox party and their way. Its articles have a tendency t produce
+misapprehension in the minds of the people respecting the Dharma Shastras by placin different
 interpretations on the precepts contained in them. Being backed by Englishmen, it makes use of
-such violent language as would wound the feelings of all true lovers of religion. It is impossible for
+such violent language as would wound the feelings of all true lovers of religin 
+
+It is impossibl for
 me to describe the state of our minds when we read this paper. On some occasions our wrath was
-so uncontrollable that we burnt the issues of that paper. But as that mode of punishment was. not
+so uncontrollable that we burnt the issues of that paper. But as that mode of punishment was not
 calculated to pacify our feelings, we began to think of inflicting corporal chastisement. As the
 reflection that the editors were our castemen used to generate compassion in our minds, we
 resolved that instead of capital punishment they should receive some ordinary chastisement. Then a
 letter of warning was to be sent to them. If they took that warning, well and good. If not, no pity was
-to be shown to them. We, accordingly, marked their houses and watched (their movement). One
+to be shown to them. We, accordingly, marked their houses and watched (their movement). 
+
+One
 day we were informed that there was to be a Sanskrit performance at the Anandobhava Theatre,
 and we thought that both the editors would be present there on the occasion. But that day things did
 not take the turn we wished. We next learnt that the students of the Bhave School were to give a
@@ -1170,12 +1174,12 @@ who were inside. I, therefore, somehow procured four annas (to purchase a ticket
 inside the theatre. There I saw two persons whom I identified, one of them being Patwardhan, the
 editor of Sudharak, and the other Kulkarni, a teacher in the New Marathi School. I then came out
 and informed my brother of this, when
-979he went in and saw them. We then waited for the termination of the performance. It soon came to an
+he went in and saw them. We then waited for the termination of the performance. It soon came to an
 end. Kulkarni was the first to leave the theatre, and I dealt him a blow, which was not heavy, near
 the entrance to the lane opposit Hamjekjan's gymnasium. It must have struck him lightly on the back
 and part of the head. Two or three persons were walking with him at the time. Having dealt the blow
 I hurried away. Patwardhan, who left (the theatre) after (Kulkarni), was closely followed by my
-brother, whom 1 joined in the Budhwar (Peth). While we were thus following him, we reached a
+brother, whom I joined in the Budhwar (Peth). While we were thus following him, we reached a
 place just below, the dilapidated tower in the Shalukar lane, when my brother, stepping forward,
 gave a blow to Patwardhan with a piece of iron piping. That blow must have struck him on the head
 near the ear. About three or four persons must have been walking with him at this time. After
@@ -1187,9 +1191,10 @@ of warning. Although we two alone (had punished them) it was necessary to make t
 that we had a following, so that they might be overawed and thus prevented from traducing (the
 orthodox) faith. With this object in view we penned a letter. We did not keep a copy of it, but in
 substance it was as follows.
-" A WARNING TO THE REFORMERS "
+
+" A WARNING TO THE REFORMERS "  
 " Like your association for removing the obstacles in the way of widow-remarriage (we
-also) have formed a society for removing the obstacles in the way of the Aryan! religion, that
+also) have formed a society for removing the obstacles in the way of the Aryan religion, that
 is to say, a league, prepared to lay down their lives as well as to take the lives of others for
 the sake of that religion. This society does not want the beggarly Congress, much less the
 Social Conference. We like all the Hindu customs, whatever they may be including even the
@@ -1201,15 +1206,16 @@ themselves with great caution hearafter, as, otherwise, it would be our sad and 
 put them to the sword. You should, therefore, take note of this warning and conduct yourself
 with caution. Remember your forefathers and do not incur the hostility of the whole
 community by interference with religion. If you disregard this, Nemesis (will overtake you)."
+
 ### OUR COMPOSITION OF POEMS
 This letter was sent to the address of Devdhar (one of) the editors of the Sudharak at the New
 English School. He gave a substance of it in the issue of the Sudharak dated 25th November 1895.
-Afterwards;, a meeting against the Social Conference was held at Thakurdwar in Bombay. On that
+Afterwards, a meeting against the Social Conference was held at Thakurdwar in Bombay. On that
 occasion, we stepped forward and recited two shloks composed by my brother. We can compose
 poetry fairly suited to any occasion, though we are not poets. Being, however, actuated by a desire
 to do everything that was necessary for popularizing our favourite subject, and thinking that as
 metrical composition commended themselves to the popular taste it
-980would be better to lay our views before the public in that form, we studiously devoted ourselves to
+would be better to lay our views before the public in that form, we studiously devoted ourselves to
 the art of versification. I, in particular, had a great predilection for versification and composed many
 verses on patriotism. Although my brother had not the same predilection, still he could compose
 excellent verses whenever he was in a mood to do so. As the habit of indulging in loquacity in public
