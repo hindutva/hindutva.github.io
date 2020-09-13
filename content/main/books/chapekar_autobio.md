@@ -1225,23 +1225,28 @@ Conference and the other is about Daji Abaji Khare, High Court Pleader. It was a
 that this vilest of Brahmins had eaten beef while dining, with Badruddin Tyabji. When we heard of
 this we could not restrain our feelings, and having composed" a shlok about him we recited it at the
 meeting. I give below the abovementioned two shloks :—
-" 1. Listen ! Should the Social Conference be held in the National (Congress) pandal,
-the Aryans must certainly withhold their help from that lustreless institution. We shall never
-tolerate any revilement of our religion in the (Social) Conference ; we shall first, with a rod in
-our hand, strike down the army of reformers.
-" 2. That religion-destroyer Khare, having invited Mienchas and others to dine with him,
+
+1. Listen ! Should the Social Conference be held in the National (Congress) pandal,  
+the Aryans must certainly withhold their help from that lustreless institution.  
+We shall never tolerate any revilement of our religion in the (Social) Conference ;  
+we shall first, with a rod in our hand, strike down the army of reformers.
+
+2. That religion-destroyer Khare, having invited Mlenchas and others to dine with him,
 partook, in defiance of the precepts of his religion, of biscuits, loaves, flesh and spirits in their
-company. He should for ever be looked down upon as a Chandal. How is it that the reformers
-are not ashamed ! Let us strike him with shoes."
+company. He should for ever be looked down upon as a Chandal.  
+How is it that the reformers are not ashamed ! Let us strike him with shoes."
+
 ### OUR DESIRE TO BURN THE CONFERENCE PANDAL
 As I have already said above that we are not good poets, my readers will kindly overlook the
 many blemishes that may be found in the above verses if tested by the rules of prosody and only
 appreciate our meaning. These verses were received with cheers by many in the audience. The
 reformers, however, appeared to be stung by them, and left the meeting. These people having
 received a thrashing at our hands, were well kept in check. Every one of them engaged Purbhayas
-for his personal protection and none dared to go out of his house except in carriage They saw from
+for his personal protection and none dared to go out of his house except in carriage. They saw from
 the signs that a riot would certainly take place if the Social Conference were held in the National
-Congress pavilion and so decided to hold its sitting in a different place. The people were much
+Congress pavilion and so decided to hold its sitting in a different place. 
+
+The people were much
 gratified at this, and we ourselves felt particularly joyful for what we had done. Still we persisted in
 our efforts to burn down the Social Conference mandap. Two or three times did we go to the hill
 near the Fergusson College at 2 O'clock at night, taking with us materials for setting fire to it, but as
@@ -1251,23 +1256,27 @@ gain admittance into that assembly (by that channel). We, therefore, asked some 
 to start a reform club to enable us to obtain tickets of admission to the Conference. Being thus
 pressed by us, they got up a Young men's Reform Club and applied for tickets of admission to the
 Conference in its name. Thereupon Mahadev Govind Ranade asked that the Secretary (of the club)
-should be sent to see him with the papers of the club. Our educated friends, however got frightened
+should be sent to see him with the papers of the club. 
+
+Our educated friends, however got frightened
 at this invitation and none of them would go to him, I, therefore, prepared some bogus papers, and
 styling myself the Secretary of the club took them to Mr. Ranade's house at about 8 O'clock in the
 evening. This oldest leader of the reformers was sitting in a swinging seat at this time, chatting with
 a stranger. I was given a chair near
-981them. They continued chatting for a pretty long time, but as the conversation was carried on in a
+them. They continued chatting for a pretty long time, but as the conversation was carried on in a
 jargon, half English and half Marathi, I was not able to understand the whole of it. The assault on
 Patwardhan was mentioned in the course of their conversation, but they were not aware that the
 prime mover in that incident was then sitting by their side. When he finished the conversation Mr.
 Ranade turned to me, and having inquired about myself asked a man to examine my papers. He
-examined those bogus papers, and enquired of me as to why i had rot brought the originals. I
+examined those bogus papers, and enquired of me as to why i had not brought the originals. I
 replied that we never took the original papers outside our club. Thereupon Mr. Ranade said that I
 would be provided with tickets if I produced a recommendatory note from some respectable
 gentleman. I said in reply, " I am a respectable gentleman myself, and therefore do not stand in
 need of any introduction from others. If you believe me, give me the tickets : if not, I do not want
 them." I then left the place. Subsequently, a man came from him to pay me a visit, but I refused to
-see him. By and by, the day fixed for the Congress approached. The city became thronged with
+see him.
+
+By and by, the day fixed for the Congress approached. The city became thronged with
 people arriving from outside. The delight of our educated men knew no bounds. All were in a hurry
 and bustle. This put us in mind of the, little girls in our houses. The doings of these self-styled
 educated men can only be compared with the play of these girls when they celebrate the marriage
@@ -1281,6 +1290,7 @@ the real nature of the Congress without entering (its pavilion), we began to try
 admission. In the meanwhile seeing a Madrasi gentleman taking a stroll on a hill behind the
 Fergusson College, we entered into conversation with him, and being convinced that he was a
 reformer in his opinions we snatched away his ticket from him and ran away.
+
 ### CONGRESS WAS NO USE
 With that ticket we gained admission into the pavilion by turns and saw the fun. We came to
 know many things on these, occasions. These self-styled educated men find fault with Bajirao the
@@ -1289,7 +1299,9 @@ conduct of these people is such as will throw his acts into the shade. I ask the
 must have perused their historical books over and over again, if they have any instance in history
 wherein empty talk and indulgence in eating and drinking has accomplished the good of one's
 country. Has even one of the men famous in history ever tried to unite the world by holding National
-Congresses or by delivering speeches ? The answer must be in the negative. It is a matter for deep
+Congresses or by delivering speeches ? The answer must be in the negative. 
+
+It is a matter for deep
 regret that our educated men of the present day should not have sense enough to understand that
 the good of one's country is accomplished only when crores of meritorious men, reckless of their
 lives for the sake of their country, encounter death at the edge of the sword on a battlefield, and by
@@ -1297,13 +1309,14 @@ no other means. Where is the use of simply learning history by rote when at scho
 nothing to be gained by learning by-heart the dates of the birth and death of Shivaji. The object of
 studying his life is to know what he did in his lifetime : whether he started a National Congress,
 collected money from the poor and squandered it on pleasure in the company of false patriots like
-982himself gathered together once a year under the pretext of promoting the good of his country ; or
+himself gathered together once a year under the pretext of promoting the good of his country ; or
 whether he, with a view to the execution of some serious design, suffered privations all his life,
 along with his similarly inspired friends, in his attempt to achieve the good of his country. If the
 lessons contained (in the lives of such men) are not followed, where is the use of learning history ?
 A perusal of the proceedings of the Congress which appeared every year in the newspapers had
-convinced me that it was all a sham. It is necessary that I should give here the conclusions at which
+convinced me that it was all a sham.+++(4)+++ It is necessary that I should give here the conclusions at which
 I have arrived after a full consideration of the matter.
+
 ### HUME AND BRADLAUGH, AGENTS OF THE BRITISH
 The first thought struck me was how far the originators of the Congress, viz., Hume,
 Bradlaugh and others, being Europeans, could be trusted. It was inexplicable to us how those very
@@ -1315,8 +1328,10 @@ tolerate. I, therefore, began to consider how, in the face of the above facts, t
 came to the conclusion that all this was a sham and nothing more. I was convinced that those
 people were acting under the instigation of our wily administrators and had come forward to deceive
 the Hindus and to give a harmless turn to their activities with a view never to allow their thoughts to
-turn towards deeds of cruelty. Had the case been otherwise, they would long before this have
-suffered death at the hands of their countrymen. This is one of the modes of deceiving the public.
+turn towards deeds of cruelty.+++(4)+++ Had the case been otherwise, they would long before this have
+suffered death at the hands of their countrymen. 
+
+This is one of the modes of deceiving the public.
 Whenever an Englishman has a craving for popularity among the Hindus, he knows how to espouse
 the cause of India when an Indian question crops up in Parliament. The moment he does so, our
 educated people begin to dance with joy and dub him as the defender of the cause of India. If he
@@ -1329,6 +1344,7 @@ carry away to their country the prize of great glory. The only difference is tha
 Dwarka recognized in the disguised sanyasi the cunning Arjun after Subhadra had been taken
 away, our educated classes fail, to understand the true character (of these men). Otherwise, none
 of them would have had a blind regard for the English. Let that pass.
+
 ### THE POONA CONGRESS
 The National Congress having been held this year in Poona itself, we had an opportunity of
 personally witnessing the great efforts of our educated classes in the interests of our country. An
@@ -1336,18 +1352,20 @@ influential gentleman from Madras by the name of Manmohan Ghosh, or some such ot
 which I do not remember (had come down to Poona) and was working heart, and soul in the cause
 of Congress. He is a great devotee of the Congress. It is his special characteristic that, though a
 Hindu by religion he dresses like
-983a European from top to toe, and shaves his moustache like a eunuch. Had he been a fair-looking
+a European from top to toe, and shaves his moustache like a eunuch. Had he been a fair-looking
 man this European dress might have looked graceful, but being of dark complexion and having no
 moustache, he presented a very-queer appearance in that attire. He looked just as if he were a
 pervert. He had a European to drive his carriage, and had to pay him a salary of Rs. 500 a month. In
-this particular, above ail others, is his love of his country seen to the greatest advantage. (The
+this particular, above all others, is his love of his country seen to the greatest advantage. (The
 reason) is simple. While engaged in promoting the welfare of the country innumerable obstacles are
 sure to arise in one's way and consequently charioteering skill of no common order is requisit for
 surmounting them. As, however, such skilful men are not to be found in India they must needs be
 imported from England. Here, however, a doubt crosses our mind. How can a country whch cannot
 furnish a skilful charioteer produce a warrior fitted to sit on a chariot ? The status of the latter is
 considerable higher than that of the former. When I first saw this man driving in his carriage, I
-mistook the driver for Ghose and Ghose himself for the lackey. Let that, however, pass. This
+mistook the driver for Ghose and Ghose himself for the lackey. Let that, however, pass. 
+
+This
 incarnation of patriotism had come (to Poona) in advance (of the Congress) to assist the Poonaites
 in their preparations. All the Brahmins in our city, both young and old, including the school-boys,
 were also heartily exerting themselves (in the Congress movement). I must, however, explain here
@@ -1367,19 +1385,25 @@ not know whether women too were provided there, but every article of food and dr
 hand. There was plenty of every kind of prohibited food and drink. Warm-water shower-baths were
 also there, and after our patriots had seated themselves on beautiful square slabs in the bath-
 rooms, warm-water showers poured down on their heads. And so they proceeded to bring about the
-country's good. At night electric lamps were lit, and in their moon-like refulgence these patriots
+country's good. 
+
+At night electric lamps were lit, and in their moon-like refulgence these patriots
 wandered about and thus advanced the good of the country. Their national darbar was held during
 the day, and on that occasion the veteran patriots were lustily cheered when they entered the
 pavilion. Tilak was cheered, Ranade was cheered, and Surendranath Banarji was cheered, for
 hours together, because, forsooth, he was the Indra, the chief of all the gods, and was, therefore
 escorted by the toy regiment referred to above. After these, the best heroes had assembled, the war
-of words began. But, singularly enough, their opponent, viz., the Englishman, was conspicuous by
+of words began. 
+
+But, singularly enough, their opponent, viz., the Englishman, was conspicuous by
 his absence. He was represented there by some solitary black-coat. (Even) this sight was sufficient
-to confound these men. who were bold only in speech. If asked by some Government official or
+to confound these men who were bold only in speech. If asked by some Government official or
 placed before a court of justice, they would protest against (an unfavourable) interpretation being
 placed upon their speeches, and would engage a pleader at some expense to defend themselves.
+
 Alas!
-984MY COUNTRYMEN, BEWARE OF THE CONGRESS
+
+### MY COUNTRYMEN, BEWARE OF THE CONGRESS
 Oh my countrymen, how have you been reduced to such a helpless condition ! How is it that
 your intellect is incapable of thinking aright ! When Shivaji, Bajirao, Nana Phadnavis and other
 ancestors of yours determined to advance the good of their country, were they ever required to take
@@ -1387,18 +1411,24 @@ the advice of either Hume or Bradlaugh ? When those worthy personages made deter
 to get their rights from the Yavanas, did they achieve their end by gathering together Banias and
 traders, and seths and bankers, from all parts of the country in a national pavilion, illuminated with
 electric lights and erected on the plain of Chaturshingi, and by indulging in loquacity by day and
-lounging upon sofas by night ? How you ever read that such was the case ? If you contend that it
+lounging upon sofas by night ? How you ever read that such was the case ? 
+
+If you contend that it
 was the National Congress that has done good to America, I have already traversed that argument
 on the last page. Though I can neither speak nor read English, the information I have collected on
 the subject is reliable, and I can write very extensively on this topic. I, however, stated here in short
 what I have to say : " My friends, be mindful of the old adage, ' Wisdom is powerless before
 authority.' You should, therefore, adapt yourselves (to the ways of your rulers) and thus accomplish
 whatever good you can. Even if they imposed taxes upon you, submit to them with the thought that
-they are foreigners after all. Tall talk and writing articles in newspapers will be of no avail against
+they are foreigners after all. 
+
+Tall talk and writing articles in newspapers will be of no avail against
 them. If you are unable to bear the oppression of these foreigners, then give up all hope of your life,
 wealth, relations, friends and acquaintances, sons and wives, and make a demand for your rights
 and support it with physical force. I, however, do not think that you are capable of achieving that.
-Because had you possessed that ability, you would have long before this understood the matter. Do
+Because had you possessed that ability, you would have long before this understood the matter. 
+
+Do
 not render yourselves liable to punishment with hard labour by indulging in vain talk and by using
 your pens against Englishmen. Do not glory in so doing. If you shower flowers on one who has been
 sentenced for simply indulging in tall talk, what will you do to discharge your obligations to a warrior
@@ -1408,24 +1438,30 @@ insignificant persons as Surendranath Sanarji, Dadabhai Navroji, Hume and others
 Shivaji was not honoured during his time. Do you think nothing remains to be done for the good of
 the country beyond this ? You are mistaken. A little consideration will teach you the lesson
 conveyed by the adage 'A thunder-cloud produces no rain, a talkative man will not act.' I ask you to
-consider this adage and proceed with my narrative." The sight of this national festival grieved us
+consider this adage and proceed with my narrative. 
+
+The sight of this national festival grieved us
 very much. We had even planned to burn down its pavilion. But considering (that the institution had
 gained) popular favour, we thought it would not be right to do so. Had the Social Conference been
 held in that pavilion, we would certainly have made an attempt to set it on fire, but our initial
 experiment having compelled the Conference to wind up its belongings, we spent our days only in
 observing carefully the inconsistent proceedings (of the Congress).
+
 ### WE TURNED TO MISSIONARIES
 After its puerile game was over, all the patriots left for their respective places. Then we began
 to harass the missionaries. While we were at Bombay, we used to annoy in various ways the
 European missionaries who were to be seen (preaching) at the Back Bay. We pelted them with
-stones (and) created an uproar. Once we snatched away a hand-bag from a European ledy who
+stones (and) created an uproar. 
+
+Once we snatched away a hand-bag from a European lady who
 was there. We found in it some English books, some visiting cards bearing her name, a bunch of
 keys and a beautiful purse. The last was a very convenient article, but we found in it (only) one pice
 and a postal stamp
-985worth two annas and a half. We went and saw the bungalow of this lady who resides at Grant Road.
+worth two annas and a half. We went and saw the bungalow of this lady who resides at Grant Road.
+
 Once we took away the sign-board of the Church Mission Hall on the Palva Road and burnt it. After
 coming down to Poona, we determined to harass the European missionaries at this place. On
-inquiry we learnt that they used tn preach in the upper storey of a building occupied by Messrs.
+inquiry we learnt that they used to preach in the upper storey of a building occupied by Messrs.
 Philips and Company. There, in the first instance, I advised my Aryan brethren not to go upstairs.
 and several of my friends accordingly desisted from going there. When their time of preaching
 arrived, there was not a soul present at the place and so the missionaries were in a fix. The men
@@ -1436,13 +1472,16 @@ doing an unlawful act and that they would prosecute me. After this they had a co
 Police and it appeared as if they were going to carry out their intentions. I, therefore, slipped away
 from the place, and considering that such attempts were futile, resolved to make a desperate effort
 (to gain our object).
+
 ### MY EFFORT TO BURN THE BUILDING
 With a view to prevent all persons from giving any place to these (missionaries) we began to
 devise plans to set the said building on fire. The staircase leading to the storey opens on the main
 Budhwar Road. It has got one door at its foot and another at the top. The missionaries, when
 leaving the place, used to lock the latter door, while they merely chained the former. We, therefore,
 determined to open the door at the foot of the staircase and to slip away after having set fire to the
-upper one. Lest what was going on inside might be clearly observed through a latticed window
+upper one. 
+
+Lest what was going on inside might be clearly observed through a latticed window
 above the lower door by the people outside, we hit upon the following plan by which the flames were
 to blaze up inside after we had left the place. We took a big uparna and having saturated it with
 kerosene oil firmly attached it to the upper door. To this uparna we tied a long strip of cloth similarly
@@ -1464,18 +1503,21 @@ proceeded far when we heard a fire bugle. Just as we reached home, we also caugh
 the bugle of the fire-engine located near our house, but after a short while, a telephonic message
 was received announcing that the fire had been extinguished. We were much disheartened at this
 news, because our attempt had not proved as successful as we had wished. On inquiry we
-986learnt that as the padlock which had been attached to the lower door was a worthless one, Dagdu
+learnt that as the padlock which had been attached to the lower door was a worthless one, Dagdu
 confectioner, a gymnast of our city, forced it open by breaking the lock. How long could a padlock
 worth only one anna hold out ? This weak point in our plans was due to our inability to spend more
 upon the padlock. After this, we sent a warning to the owner of the house to evict the missionaries,
-as otherwise the attempt (at incendiarism) v/as sure to be repeated some other day. As we were
+as otherwise the attempt (at incendiarism) was sure to be repeated some other day. As we were
 fired with an ambition to follow a military career we were unceasingly exerting ourselves (to gain our
 object).
-THE NON-BRAHMIN MOVEMENT SPONSORED BY GOVERNMENT
+
+### THE NON-BRAHMIN MOVEMENT SPONSORED BY GOVERNMENT
 We went to the old market every Sunday and Wednesday and accosted the native soldiers
 visiting that place, with a view to elicit information from them on this subject of special interest to us.
-I had given up conversing with the Mavathas among them, as Englishmen have fairly imbued their
-minds with the idea that the Brahmins were the cause of their ruin. My intelligent readers are
+I had given up conversing with the Marathas among them, as Englishmen have fairly imbued their
+minds with the idea that the Brahmins were the cause of their ruin.+++(5)+++ 
+
+My intelligent readers are
 doubtless aware of the existence at Poona and Bombay of a large anti-Brahmin association founded
 by one Jotiba Fule. The sole aim of this association is to stir up hatred against the Brahmins among
 all other castes. Its members are always moving about the country, delivering lectures to create a
@@ -1485,13 +1527,16 @@ death of Jotiba Fule, one Lokhande took up the lead in the matter This Lokhande,
 perfect numskull, has been honoured with the distinction of a Justice of the Peace by Englishmen
 for the simple reason that he has undertaken this important task of creating dissensions among his
 own countrymen. Careful observers will see that most English people assist these men in the above
-manner. But the Deccan Brahmins alone are so (spitefully) dealt with. It will upon inquiry be found
+manner. 
+
+But the Deccan Brahmins alone are so (spitefully) dealt with. It will upon inquiry be found
 that no people in India are so greatly devoted to politics and are so persistent in applying their
 intelligence and ardour in that direction as the Deccan Brahmins are. The foreigners, therefore,
 deeming it to be inadvisable that the public should view with favour these scheming men, have by
 conferring honours upon such ignorant people made them adopt this attitude (of hostility to
 Brahmins). There is no doubt about this. This suicidal policy of theirs has been, is, and will be the
 cause of great detriment to us and will greatly benefit the foreigners.
+
 ### BRAHMINS WRONGLY CHARGED
 On this occasion I deem it necessary to controvert their opinions in this place. It is the stock
 argument of these ignorant men that the Brahmins lost the (Maratha) kingdom and that they are
@@ -1501,22 +1546,28 @@ Bajirao the Second. It must be within the memory of students of history that thi
 foreigners to swallow up (his kingdom) by feasting Brahmins and by indulging in vicious habits. This
 Bajirao had never earned, and will never earn hereafter, a good name among Brahmins. There is no
 difference of opinion as to the fact that his acts were highly reprehensible and ruinous to the
-interests of the country. But I ask these Brahmin-haters (the following questions) : Were the Maratha
+interests of the country. 
+
+But I ask these Brahmin-haters (the following questions) : Were the Maratha
 Sardars, such as Scindia, Holkar, Gaikwad, Bhosle, Satarkar and Kolhapurkar, dead and gone at
 the time Bajirao lost his kingdom ? Or, being alive were they, with bangles on their hands and sadis
-round their bodies, shamefaeedly hiding themselves in their harems ? Or, had they become
+round their bodies, shame-facedly hiding themselves in their harems ? Or, had they become
 eunuchs by divesting themselves of their moustaches ? What was the matter with
-987them ? The Maratha States cover nearly the whole of India, and yet how was it that they were not
+them ? The Maratha States cover nearly the whole of India, and yet how was it that they were not
 ashamed, on that occasion, to throw down their swords, shake hands with Englishmen, and declare
 themselves to be their friends ? If Bajirao was really loose in his morals, why did they not protest
 (against his conduct), throw him into prison and install a capable ruler on the throne ? On the
 contrary, while the far-seeing Nana Phadnavis was repeatedly advising them not to ruin the country
 by placing this dastardly Bajirao on the throne, it was the Scindia of Gwalior who espoused his
-cause and installed him. This explains who it was ihat lost the kingdom. Although all of them were
+cause and installed him. 
+
+This explains who it was that lost the kingdom. Although all of them were
 the Sardars of the Peshwa, they treacherously sided with the English and thus kept their State
 intact. How will they answer for this ingratitude ? All the Native States that are at present to be seen
 in India owe their existence to their disloyalty to their sovereign as well as to their treachery in siding
-with the English. Otherwise, the English would have swallowed them up long ago. Perhaps some
+with the English. Otherwise, the English would have swallowed them up long ago. 
+
+Perhaps some
 might say that they fell off from Bajirao because he was not a good sovereign. To such people I ask
 the question as to what they would have said of Moropant Peshwa, had he gone over to the side of
 Aurangzeb because of Sambhaji's misconduct. If the history of the calamities which befell the
@@ -1524,21 +1575,25 @@ country in the reign of Sambhaji, and after his death be read, it would convince
 were a hundredfold more troublous than the times of Bajirao. It is but proper to eulogize those who
 with perservance strenuously exerted themselves as for the welfare of their country during those
 times.
+
 ### THE LESSON OF 1857 RISING
 If Scindia and Holkar, who styled themselves the Sardars of the Peshwa, had exerted
 themselves as strenuously then, they would not have been reduced to their present plight and
-exposed themselves to censure. Is there a single descendant of the Peshwas, who ware the real
+exposed themselves to censure. Is there a single descendant of the Peshwas, who were the real
 sovereigns of the country, now living in ignominy under a foreign yoke ? Bajirao handed over the
 kingdom to the English, and having retired to Brahmavarta passed his life there in devotion ; but his
 adopted son, Dhondopant Nana, as if with a view to wipe off the stigma cast on his father's name,
 distinguished himself on the battlefield and departed to the other world along with his friends Bala
-Saheb, Rao Saheb, Tatya Tope and Lakshmibai of Jhansi. Had Scindia and Holkar not resorted to
+Saheb, Rao Saheb, Tatya Tope and Lakshmibai of Jhansi. 
+
+Had Scindia and Holkar not resorted to
 treachery on that occasion they as well as ourselves (Brahmins) would not have been reduced to
 this plight. Even a Brahmin lady fought at that time, while men with beards and moustaches, whose
 ancestors served their masters with true whole-heartedness, fell off from their master's son and
 went over to the English, the enemy of their sovereign, of their religion, and of their country. Could
 the meanness of the Marathas go further ? Think over this and do net needlessly raise a hue and
 cry against Brahmins.
+
 ### THERE ARE BLACK SHEEP IN ALL CASTES
 I do not mean to say that Brahmins have no black sheep amongst them. Like other castes
 they too have their black sheep. Are there no Marathas among you of the type of the Brahmin Natus
@@ -1546,18 +1601,23 @@ who having gone over to the English are now enjoying a life of pleasure ? How ma
 you want ? As a rule, all those who are at present eating the crumbs of ease under the cool shadow
 of the English did at one time turn ungrateful to the Peshwa and were thus guilty of treason. They
 come from all classes and castes—Brahmins, Marathas and Mussalmans. There is no reason for
-one of them to laugh at the others. Was not the ruler of Hyderabad independent at that time ? Why
+one of them to laugh at the others. 
+
+Was not the ruler of Hyderabad independent at that time ? Why
 then did he remain indifferent ? Was it because of the Brahmin Bajirao ? Is there any Brahmin
 agency at work in Manipur, Burma and similar other States which are now being swallowed up by
 the English ?
-988You revile the Brahmins without any reason. I for my part find fault with our evil stars.
+You revile the Brahmins without any reason. I for my part find fault with our evil stars.
 Infatuation precedes all (evil) things. Accordingly, divergent counsels having prevailed among the
 different Native States of India. The English could easily do what they liked.
+
 ### THE REVOLUTIONARIES ARE BRAHMINS
 Who should blame whom in this matter ? I, for my part, blame one and all. They, and they
 alone, who laid down their lives on the battlefield in measuring their swords with the English are free
 from any blame. Such worthy men are to be found only among the Brahmins. Even if you look to the
-present times, you will be convinced of what I say. In 1857, Nana Saheb, (showed himself to be a
+present times, you will be convinced of what I say. 
+
+In 1857, Nana Saheb, (showed himself to be a
 Brahmin of this type), then Wasudev Balwant, and after that we two brothers, Damodar and
 Balkrishna Hari Chapekar. Excepting these, has any Maratha or Muhammadan become a martyr for
 his religion and his country ? According to the adage " The master is reduced to distress while
@@ -1565,33 +1625,46 @@ thieves roll in plenty," the Peshwas have passed away, while these ingrates are 
 enjoying the jaghirs conferred upon them by the Peshwas. What sort of hell might have been
 created for (the punishment) of such men ? I do not wish to say anything further about these
 ungrateful wretches; for, my blood boils whenever I think of their treacherous deeds, and I much
-regret that we could not wreak our vengeance upon them. We were burning with rage at Dinkarrao
+regret that we could not wreak our vengeance upon them. 
+
+We were burning with rage at Dinkarrao
 Rajwade, the late Diwan of Scindia. But we were disappointed when a few days ago we heard that
 he was dead. Now of course the execution of all our designs must be deferred to our next existence.
-May Heaven fulfil our desires in our future lives ! The second charge remains yet to be refuted, but I
+May Heaven fulfil our desires in our future lives ! 
+
+The second charge remains yet to be refuted, but I
 do not wish to enlarge upon that insignificant point here. In connection with this matter, I
 recommend my readers to peruse the criticism of the late Vishnu Shastri Chiplunkar on the "
-Lokahitavadi." Therein he has ably dealt with the subject. In short, this anti-Brahmin spirit has
+Lokahitavadi." Therein he has ably dealt with the subject. 
+
+In short, this anti-Brahmin spirit has
 spread amongst people of all castes. From my personal experience I know that this feeling is very
 strong among the Deccan Marathas employed in the regiments.
+
+## Quest for Military entry
 ### I MEET A MARATHA SUBEDAR
 I was well acquainted with Kashinath Baneh, the Subhedar Major of the 4th (Infantry)
-Regiment. At my first visit to him he asked me what I had come lor. I said to him, "I am very fond of
+Regiment. At my first visit to him he asked me what I had come for. I said to him, "I am very fond of
 a military carrer. Can I be enrolled (in your regiment)". Thereupon that man knit his brows, and
 giving an emphatic nasal twang to his voice said to me in the Konkani dialect, " Bhatji Bova, what
 you say is true, but how will you be able to observe the customs of your caste in the regiment ? A
 regiment is not a place for eating sweetmeat balls. Look at my feet, and see how very bronzed they
 have become. This is the way we are required to move about (from place to place) ; we alone can
-do that." He philosophied much in this fashion, but as I had no desire to argue with him I quietly
+do that." 
+
+He philosophied much in this fashion, but as I had no desire to argue with him I quietly
 heard what he said. I tickled him with the following words : " Subhedar Saheb, what a brave man
 you are !, Certainly you are the men to fight battles. Your bronzed feet strike me with wonder. What
 toil you must have undergone !" I tickled him in this manner, but at the same time taunted him as
 follows : " Did the Peshwas observe the customs of their caste when they crossed the Attock ? Was
-it by tasting sweetmeat balls that they confounded the Persians ? " At this the Subhedar softened
+it by tasting sweetmeat balls that they confounded the Persians ? " 
+
+At this the Subhedar softened
 his tone and said, " I do not mean that; I only wanted to say that it is not possible to observe the
 caste customs in a regiment." I thus made various attempts to get myself enlisted in the army. But
 as the Deccan Maratha sepoys used to deride and jeer at us, I refused to see them any more.
-989EFFORT TO ENLIST IN THE ARMY
+
+### EFFORT TO ENLIST IN THE ARMY
 We sought information about regimental matters by making friends with native soldiers (of
 other castes). None of them, however, encouraged us in our desire to enlist in the army. They used
 to tell us that it was through their ill-luck that they got themselves enlisted in the army. We did not
@@ -1602,11 +1675,14 @@ Hyderabad, Sangli, &c. and expressed to them our desire to serve in a cavalry re
 one of them declined to do anything for us. Then we applied to the Portuguese Government at Goa,
 but were not favoured with a reply. Afterwards some one explained to us the futility of applying to
 subordinate European officers, and advised us to address the Commander-in-Chief at Simla, where
-our request would be favourably considered. Four times did I address the Commander-in-Chief in
+our request would be favourably considered. 
+
+Four times did I address the Commander-in-Chief in
 the matter and received replies to my petitions, but they were all to no purpose. In other words, all
 the replies were of a negative character. I have handed over copies of them to my friends, Brewin
 and Kennedy. I have also got (a copy of) the application which I sent to the Chief of Sangli. I desire
 that all these should be printed hereafter.
+
 ### DESIRE TO GO TO NEPAL
 On receiving such a sour reply from Simla, we thought that it would be far better to settle in a
 foreign country than to remain in one where liberty did not exist even in so small a measure.
@@ -1615,26 +1691,30 @@ We were under the impression that our parents would not allow us to go to such a
 as hitherto we had never left them to follow our own inclinations. But now we thought we would be
 wasting away the very prime of our lives if we were to remain inactive. We also thought it
 undesirable to delay our plans as it was necessary that the art of war which we aspired to learn
-should be studied while one possessed a strong physique. But another difficulty as to how to
+should be studied while one possessed a strong physique.
+
+But another difficulty as to how to
 arrange for our parents in our absence presented itself. Being conscious that it was our duty not to
 forsake them, we decided that I should remain at home and my brother should proceed to Nepal for
 the achievement of our purpose. There he was to arrange everything for both of us and then inform
-me of his having done so. We then fixed an auspicious day for (his) departure. All the members of
+me of his having done so. We then fixed an auspicious day for (his) departure. 
+
+All the members of
 our family were quite happy at this time. Readers ! my father's profession of kirtan enabled him to
 earn plenty of money. He was liberal in his expenditure, and so every holiday was well enjoyed. As
 my father was very hospitable to his guests, there was scarcely a day on which we did not partake
 of sweetmeats with our guests and friends. Our family having increased by the grace of God, our
 happiness also increased in the same proportion. It is a fact to be particularly remembered that our
 family possessed in a full measure that affection (for one another) which is the source of all
-domestic happiness. I have seen a good many families, but have never come across a single one
+domestic happiness.+++(5)+++ I have seen a good many families, but have never come across a single one
 which is free from domestic quarrels. Fire seize their other comforts ! There are many who possess
 wealth, and are also blessed with large families, but no two members of the family live in harmony.
 Such, however, was not the case with our family. All those who were younger than myself were
 obedient to me, and they never showed any disrespect to me. I do not know how I can requite them
 for all this. May Heaven bless them ! My family thus consisted of my loving brothers and sisters, my
-father and
-990mother, and my wife and son ; but the actions of our former existence having given a peculiar turn to
+father and mother, and my wife and son ; but the actions of our former existence having given a peculiar turn to
 our predilections, our minds deviated from all domestic concerns and took a different direction.
+
 ### BALKRISHNA STARTS BUT HAS TO RETURN
 An auspicious day having been fixed for my brother's departure to Nepal, he took with him
 Rs. 40 for his travelling expenses. This amount had been accumulated by us laying aside small
@@ -1647,7 +1727,9 @@ seperation. As the members of our family had never before seperated from each ot
 (seperation) was found by us to be extremely unbearable. Besides, the affection mutually felt by us
 was not like that felt by other brothers for each other. My brother saluted me, made a mental (sic)
 obeisance to our parents, uttered the name of Gajanan and stepped out of the house. Having gone
-as far as Budhwar (Peth) to see him off, I returned, My mind, however, was filled with sadness, and
+as far as Budhwar (Peth) to see him off, I returned. 
+
+My mind, however, was filled with sadness, and
 it having occurred to me that contrary to the rules laid down in the Shastras he had set out on a
 journey without taking any companion with him, I prayed that God might keep him happy. I then
 came home. At 10 O'clock in the morning, as my brother was not present at dinner-time, my father
@@ -1655,40 +1737,52 @@ suspected that he must have gone to some (distant) place. My father being very a
 once divine (the motive of) our conduct. Our mother was indeed of an unsuspecting nature, but our
 father gave her to understand that Balkrishna had left home for some (unknown) place. Thereupon
 she persisted in saying that I knew his whereabouts and refused to eat anything unless I brought
-him back by writing to him. I told her that he had not apprised me of his departure. But would she
+him back by writing to him. I told her that he had not apprised me of his departure. 
+
+But would she
 believe it? How could our parents, who knew our daily mode of life, believe what I told them ? Then I
 thought that I had not acted properly in remaining behind. I could not bear to hear my mother's
 lamentations. But what could I do ? Wishing to get out of the difficulty any how, I assured her that he
 had gone to Baroda, and made her take her meal. My mother importuned me daily (to give
-information about my brother), but every day I basely deluded her with some fresh explanation. Our
+information about my brother), but every day I basely deluded her with some fresh explanation. 
+
+Our
 parents led a moral life and I was heartily grieved to have abandoned them and caused them
 trouble. Every one in the town would ask me where my brother had gone, and I would reply that he
 had gone to Baroda, in search of employment. In this manner about fifteen days elapsed, but I
 received no letter giving any account of his health, &c. This circumstance caused me great anxiety.
+
 One day, however, I unexpectedly received a telegram, requesting me to remit Rs. 25 to him by a
 telegraphic money-order. The perusal thereof removed my anxiety, as I learnt from it that my brother
 was in good health. I then began to guess why he wanted money. That, however, was no proper
 time for (idle) conjectures, and so I began to consider how I might procure the requisite amount.
+
 Though a perusal of our lives would lead the reader to suppose that we were expert thieves, we
 never unjustly took a single chhadam from any one. On the contrary, in money matters we obliged
 others, but never incurred any debt ourselves. Not being addicted to any vice we never wanted
 money. If we at all wanted money, it was for the good of the country. As we thus lived a life of
 probity, we had considerable credit with the people. I was sure that my request for money would not
 be refused by any one (of our friends). Accordingly, when I asked for the said amount of one of our
-991friends he at once paid it. I heartily thanked him for this and at once remitted the amount by a
+friends he at once paid it. 
+
+I heartily thanked him for this and at once remitted the amount by a
 telegraphic money-order to my brother's address at the Allahabad Post Office according to his
-instructions. From my brother's (continued) absence my father concluded that I, his" eldest son,
-would also follow him, and even sent letter to that effect., to his friends and acquaintances. Not
+instructions. From my brother's (continued) absence my father concluded that I, his eldest son,
+would also follow him, and even sent letter to that effect, to his friends and acquaintances. Not
 having received any letters from my brother for fifteen days after I had remitted the said amount to
 him, I became anxious, when one day, as I awoke at dawn, I heard my dear brother's voice, to my
-great delight. First of all I devoutly thanked God on seeing my brother in sound health. I was
+great delight. 
+
+First of all I devoutly thanked God on seeing my brother in sound health. I was
 especially delighted at the thought that my mother would rejoice (at my brother's return).
 Accordingly, when she saw Balkrishna that morning her face plainly indicated the joy felt by her.
 Then on the second or third day after my brother's return, I asked him to give an account of what
 had occurred at the place to which he had gone. This he did in detail. I think that the high hopes
 which we had entertained about Nepal were wholly destroyed. I wish that my brother should himself
 write an account of the perilous position in which he had found himself. I, therefore, omit it from this
-narrative. After this, we determined to accomplish our object by remaining in our country, regardless
+narrative. 
+
+After this, we determined to accomplish our object by remaining in our country, regardless
 of consequences. We also determined never to abandon our parents. Having pondered over what
 we should do next, I said to my brother that we might make one more application (to Government),
 stating. " Since you decline to appoint to suitable posts men like ourselves, who are fond of the art
@@ -1697,6 +1791,8 @@ an application would be tantamount to open hostility, we decided that since the 
 implacable enemies and the cause of our subjection, we should commit as many hostile acts
 against them as we could. This was the first and the most potent cause of the enmity between the
 English and ourselves.
+
+## Surveying the landscape
 ### THE SHIVAJI CELEBRATION
 Just at this time, the first occasion on which the anniversary of Shivaji's birth was to be
 celebrated with festivities approached. My brother and myself do not at all like this festival. Such
@@ -1705,30 +1801,42 @@ festival held in honour of Shivaji are so extravagant that he himself would not 
 first place, he would not at all have approved of the custom of celebrating the anniversary of his
 birth as it was tentamount to placing him on en equal footing with God. For though he was a most
 ambitious man, and this was natural, since he who would expose his life to such dangers would do
-so only for glory, he would not have insisted on being worshipped like God. Even his preceptor, Shri
+so only for glory, he would not have insisted on being worshipped like God. 
+
+Even his preceptor, Shri
 Samarth Ramdas, was not considered worthy of being ranked with God. How could then Shivaji, his
 disciple, at once attain such rank ? No jayanti is celebrated in honour of Ramdas. Only his punyatith
 is celebrated. A jayanti is celebrated only in commemoration of the incarnation assumed by God at
 various times. It cannot be celebrated in connection with any other event. If the custom of
 celebrating jayantis of men be once introduced, any one will be able to celebrate a jayanti in honour
-cf any one he likes. It will be possible to celebrate a jayanti in honour of even Tilak and Agarkar.
+of any one he likes. It will be possible to celebrate a jayanti in honour of even Tilak and Agarkar.
+
 We, therefore, do not at all like that these wiseacres should, by holding a festival in honour of
 Shivaji, raise him to the rank of God. The first of such festivals was celebrated- in Natus' Garden in
 Sadashiv Peth. We attended the festivities, but were much grieved to see the childishness of our
 people. We could not endure that all people, old and young, should behave in a puerile manner
 instead of taking such a lesson from Shivaji's
-992life as they ought to have. My brother, therefore, composed two shloks, which are excellent. We
+life as they ought to have. My brother, therefore, composed two shloks, which are excellent. We
 learnt them by heart at the opportune moment and recited them at a meeting at which a vehement
 discussion took place between Jinsiwale and the reformer Bhau. These shloks also referred to
-loqacious men like Jinsiwale and Bhau. The shloks recited at the gathering held in honour of Shivaji
+loqacious men like Jinsiwale and Bhau. 
+
+The shloks recited at the gathering held in honour of Shivaji
 are as follows :—
-"No one has ever heard of the lofty trees of lipbravery bearing good fruit; kissing a
-woman's lips in a dream never produced offspring; you may speak, but do not thunder like
-clouds which give no showers; a woman's counsel, being unaccompanied by prowess, is
-ridiculed by the world; merely reciting Shivaji's story like a bard does not secure—
-independence ; it is necessary to be prompt in engaging in desperate enter prises like Shivaji
-and Baji ; knowing this you goad people take up swords and shields at all events now. Rap
+"No one has ever heard of the lofty trees of lip-bravery bearing good fruit; 
+kissing a
+woman's lips in a dream never produced offspring; 
+you may speak, but do not thunder like
+clouds which give no showers;  
+a woman's counsel, being unaccompanied by prowess, is
+ridiculed by the world;  
+merely reciting Shivaji's story like a bard does not secure—
+independence ;  
+it is necessary to be prompt in engaging in desperate enter prises like Shivaji
+and Baji ;  
+knowing this you goad people take up swords and shields at all events now. Rap
 your upper arms (like wrestlers) and we shall cutof countless heads of enemies."
+
 On reading the above shloks some one may ask. " You find fault with others, but what have
 you yourselves done ? " Many persons privately asked us the above question. Considering that if
 we were asked it in a full assembly it would be incumbent upon us to make our vow known to the
@@ -1737,39 +1845,51 @@ public, my brother composed the following shlok anent our vow :—
 our utterances in the presence of many people as a mere farce. We shall assuredly shed
 upon the earth the life-blood of the enemies who destroy (our) religion. We shall die after
 killing only. While you yourselves will hear the story like women ? "
+
 ### RECITATIONS IN GANAPATI FESTIVAL
 The recitation of the above shloks during the Shivaji festival was followed by loud cheers (a).
 After this I also composed some shloks intended to be recited during the Ganpati festival at
 Bombay. I have already stated that after our hopes of getting enlisted in some regiment where
-completely destroyed, we became implacable enemies of the English. The drift of all our shloks will
-be found to be simply this : "Do not talk that idly, (but) do something." In the Ganpati festival we two
+completely destroyed, we became implacable enemies of the English.+++(4)+++ The drift of all our shloks will
+be found to be simply this : "Do not talk that idly, (but) do something." 
+
+In the Ganpati festival we two
 brothers put on masculine attire and accompanied our recitations with such gestures as were
 calculated to properly impress the drift of our shloks upon the minds of the assembled people. The
 shloks referred to are as follows :—
-" Fools, what is the use of your being men ? Of what use are your big moustaches ?
-Alas. You are not ashamed to remain in servitude; try, therefore, to commit suicide. Alas. Like
+
+" Fools, what is the use of your being men ? Of what use are your big moustaches ?  
+Alas. You are not ashamed to remain in servitude; try, therefore, to commit suicide.  
+Alas. Like
 butchers the wicked in their monstrous atrocity kill calves and kine. Free her (the cow) from
-her trouble, die (but) kill the English. Do not remain idle and (thereby) burden the earth. This
-is called Hindustan (land of the Hindus). How is it that the English rule here ? It is a great
+her trouble, die (but) kill the English.  
+Do not remain idle and (thereby) burden the earth. This
+is called Hindustan (land of the Hindus).  
+How is it that the English rule here ? It is a great
 shame. Do not forget (your) name. Dearly cherish patriotism in your minds) Rise, rap your
 upper arms, encounter (the enemies). May you succeed in slaughtering the wicked. How
 valiant were our forefathers on the battlefield. They died after winning glory in the defence of
 their country. We who have sprung from them are like Saturn whom the Sun has produced.
 We are not ashamed though our kingdom has been wrested (from us)."
-993MY ESTIMATE OF TILAK AND KHARE
+
+### MY ESTIMATE OF TILAK AND KHARE
 Whenever we recited the above shloks we were cheered. Some people warned us that
 though what we recited was true, we should be cautious as there were detective policemen among
 the assembled people. Though we recited the above shloks only at four or five places in Bombay,
 that was sufficient to make us the subject of popular talk for a long time(b). We then returned to
-Poona. One day I went alone to the A'nandodbhava Theatre to hear a lecture annually delivered
-there. Tilak graced the presidential chair. Seeing Daji Abaji Khare rise to deliver a speech about
+Poona. One day I went alone to the Anandodbhava Theatre to hear a lecture annually delivered
+there. Tilak graced the presidential chair.
+
+Seeing Daji Abaji Khare rise to deliver a speech about
 Shivaji, the cow protector, I flew into a rage. I consider it a disgrace that a vile cow-eater, who ate
 beef in company with Muhammadans, should deliver a speech about Shivaji the cow-protector, and
-that the audience should quietly listen to him. Accordingly I said to some mischiefmakers who were
+that the audience should quietly listen to him. Accordingly I said to some mischief-makers who were
 sure to reduce a new speaker to a miserable plight : " Friends, mischief-making is reprehensible.
 But if you indulge in it on an exceptional occasion like the present one, it would reflect credit on the
 Hindu community to which you belong." Though I made the above request in various ways, none of
-the blockheads would accede to it. Thereupon I resolved to insult Khare, whom I considered to be a
+the blockheads would accede to it. 
+
+Thereupon I resolved to insult Khare, whom I considered to be a
 disgrace to our religion, by reciting a shlok which I had composed about him. Accordingly, I
 approached the speaker's platform, where sat the leading reformers and non-reformers. Some one
 having told me that if I intended to speak I should first obtain the manager's permission to do so, I
@@ -1778,7 +1898,9 @@ refusal, I advanced with the intention of reciting the shlok. A serious altercat
 between the manager and myself, and at last some Brahmin wrestler was sent to drive me out.
 Readers, I had till then neither put up with the slightest insult nor gone to any place where I did not
 expect to be treated with consideration. I, therefore, leave it to you to imagine how intolerable must
-have been this insult offered in full assembly to me, who am so jealous of my honour. I was so
+have been this insult offered in full assembly to me, who am so jealous of my honour. 
+
+I was so
 greatly incensed that I longed to make the educated brutes at once feel what dishonour is and at the
 same time to let them know how men of honour act. These professors of law have a notion that
 every case is to disposed of by a court of justice. They do not know for whom laws are made. I
@@ -1786,7 +1908,9 @@ wished to make these modern scholars knew that he who can secured all his rights
 of his arm has no occasion to resort to a court of justice. I wished to deal the wrestler, who had
 come to seize me by the arm and drive me out, a blow on the head with the stick in my hand so as
 to let him understand that his artful twists would not prove serviceable to him on every occasion,
-and then to punish Tilak, the president of the meeting, who had sent him (to drive me out). Many of
+and then to punish Tilak, the president of the meeting, who had sent him (to drive me out). 
+
+Many of
 my readers will, on reading this, feel indignant and say that I am not a patriot but an enemy of my
 country. Poor fellows. Let them say it. I know that many people have a good opinion of Tilak, but
 they must be devoid of reason. In my opinion, according to the saying, " Alas (he is) neither a Hindu
@@ -1797,14 +1921,19 @@ individual is the dear friend of the beef-eater Daji Abaji Khare (donkey), to wh
 occasionally and with whom he takes meals without any hesitation. This worthy individual was
 ashamed to undergo expiration for eating biscuits, but was not ashamed to take tea. Had he
 consented to have his moustache shaved off in deference to popular opinion, would forty
-generations (of his ancestors) have been consigned to hell ? He tried to place himself on a footing
+generations (of his ancestors) have been consigned to hell ? 
+
+He tried to place himself on a footing
 of equality with the authors of the Smritis by introducing certain innovations in the marriage ritual. I
 do not think that any one had ever seen him performing such pious acts as hearing a kirtan or
-994puran or visiting a temple. He did many other similar acts which would be disgraceful to any man
+puran or visiting a temple. He did many other similar acts which would be disgraceful to any man
 calling himself religious. I have mentioned (only) some of them. Owing to these acts we have no
-good opinion of him. We, however, consider him to be a far better man than a reformer. Latterly, he
+good opinion of him. 
+
+We, however, consider him to be a far better man than a reformer. Latterly, he
 had adapted his manners to the opinions of his community and this had considerably checked his
 irregular conduct. We hoped that after some time he would be much improved.
+
 ### I DECIDE NEVER TO ATTEND ANY PUBLIC MEETING
 In short, we Chapekars are the slaves of those who are sincerely devoted to their religion, but
 the implacable enemies of those who are not so. Besides, it was natural that an insult offered in a
@@ -1813,12 +1942,15 @@ me. When the above thought occured to me, I closed my eyes for a little while an
 who resides in my heart, "Oh God, how should I act in my present condition ?" He inspired me as
 follows : " You, who are desirous of cleaving your enemies ' hearts, have become ready to strike
 men of your own caste. (But) take heed. You will not succeed in this. It was through ignorance that
-they insulted you. They do not know you." On learning the will of God' to the above effect, I at once
+they insulted you. They do not know you." 
+
+On learning the will of God to the above effect, I at once
 left the meeting before the wrestler could seize my hand. I was much dejected for the next two or
 four days. After my brother and myself had held a consultation, we vowed never to go from that day
 to any meeting held in connection with any question of public interest. This vow proved of great use
 to us. As we were not seen taking part in any wild scheme affecting the public we ceased to be
 reckoned among the well-wishers of the country- a result which was very beneficial to us.
+
 ### MY POEMS ATTACHED BY POLICE
 Afterwards, according to our practice every year, we went to Bombay for spending the four
 monsoon months there. As we were often badly in want of money, it occurred to me, after some
@@ -1828,7 +1960,9 @@ Press for being printed. As might have been expected from our temperament, the t
 was rather severe. Before it was printed the proprietor of the Press altered it in some places. As it
 attracted the notice of the Bombay Police, they attached all the copies of the book found in the
 Suvarna Printing Press and ordered me to be present in the Police (Commissioner's) Office the next
-day. Some copies of the (said) book had (already) been sold. In the evening a detective policeman
+day. Some copies of the (said) book had (already) been sold. 
+
+In the evening a detective policeman
 came to my residence in Vithalvadi under the pretext of buying (some) books, (but really) to
 ascertain whether I had got any more copies of it. But in accordance with the saying " Set a thief to
 catch a thief" we recognised him and prevented him from obtaining any material information. Next
@@ -1836,15 +1970,18 @@ day I had to appear before Vincent in the Police office. As the Police are disco
 avoid being insulted by them, most humbly prayed to God to preserve my honour, and then went
 with the proprietor of the said press (to the Police Commissioner's Office). The Police directly took
 us before Vincent. Inspector Roshan Ali and Jamadar Lakshman, of the Dectective Police, were
-present there. The proprietor of the said press was first examined and Mr. Vincent made many
+present there. 
+
+The proprietor of the said press was first examined and Mr. Vincent made many
 cutting remarks about him. Hearing this, I became apprehensive that he might abuse me in the
 same manner and that a serious altercation might take place between us. But I am very glad to
 state that owing to the miraculous power of God, he questioned me very calmly and with a smiling
 face As I answered his questions with much adroitness he was pleased with
-995me, and told me that my books had been temporarily attached and that I might take them back after
+me, and told me that my books had been temporarily attached and that I might take them back after
 the Ganpati festival was over. This gave me much relief. This case taught us the lesson that we
 should never do anything likely to attract the notice of the Police. I had sent another poem (to the
 press) for being printed,but in view of the fate of my first book I revoked the the order for printing it.
+
 ### WE BEAT PROF. VELANKAR FOR HIS CONVERSION
 We then became anxious as to what we should do in order to acquire greater boldness, when
 we heard that only recently an educated Hindu, who had risen to a professorship, had, as it was to
@@ -1858,7 +1995,9 @@ family, (the time of) his going out and returning, and other more or less useful
 further arrangements should be made afterwards. After careful consideration we decided that our
 dear friend, Bhuskute who knew English well enough for practical purposes, should see the
 professor and express a desire as stated above. Accordingly, we gave him elaborate instructions as
-to how he was to act and sent him there. After his entrance into the bungalow we used to wait
+to how he was to act and sent him there. 
+
+After his entrance into the bungalow we used to wait
 somewhere on the outside. After learning on his return what had occurred at the interview, we used
 to tutor him for the next day's visit. He had assumed the name of Kirtane. He discovered from the
 expression of Velankar's face that the latter was greatly delighted to hear of Bhuskute's intention of
@@ -1873,7 +2012,9 @@ outside. As my brother found no favourable opportunity he abandoned his design o
 Velankar on that day. My brother told (Velankar) that his (sur) name was Sathe. We now feel deep
 regret for the serious mistake committed by my brother in assuming the above name. Had he
 assumed any other name instead of the above one, the present calamity would perhaps have not
-befallen us. When my brother went to see Velankar, the latter had left the bungalow which he had
+befallen us. 
+
+When my brother went to see Velankar, the latter had left the bungalow which he had
 rented and was living in one which he himself had built. In this manner even my brother paid two or
 three fruitless visits to Velankar. He treated them with much more respect than they deserved and
 manifested great affection for them. The cause of all this was that the rascally missionary, believing
@@ -1882,8 +2023,10 @@ always used to tell them " my friend Dr. Mackichan was greatly delighted to hear
 embracing Christianity and he is very eager to see you. We shall, therefore, once go to see him."
 My brother, however, wishing to execute his design without letting his own face be seen by
 Velankar's friends, used to put off his compliance with the said proposal by promising to go (to Dr.
-Mackichan) on some future day. As the matter was thus
-996progressing we fixed a day, viz., Gokul Ashtami, for executing our design without failure. On that
+Mackichan) on some future day. 
+
+As the matter was thus
+progressing we fixed a day, viz., Gokul Ashtami, for executing our design without failure. On that
 day we were to make Velankar undergo a slight expiation for his act (of becoming a convert). He
 had given us two books for reading, viz., copies of " An Indian Youth" and the New Testament. It
 was decided that the third man (i.e. myself) should also go to Velankar's house on the Gokul
@@ -1894,14 +2037,17 @@ fixed Bhuskute told Velankar that Sathe's brother-in-law by name Bhide (i.e. mys
 take him away, that Sathe would bring him with himself two days after by the 10 p.m. train and that
 the three persons would come to his (Velankar's) house at about 11 o'clock on that night; and he,
 therefore, requested him not to retire till that time. When that auspicious day came we devoutly
-prayed to God as follows : Oh God, this day thou didst become incarnate as Krishna in order to
+prayed to God as follows :  
+Oh God, this day thou didst become incarnate as Krishna in order to
 destroy the wicked, and didst slay Kamsa and Chanur. As thou hatest the wicked very much, do
-thou give success to us who too have girded up our lions to destroy the wicked." Having offered this
+thou give success to us who too have girded up our lions to destroy the wicked." 
+
+Having offered this
 prayer, we started from our residence at about half past 8 and went to the Grant Road Station,
 where we anxiously waited for the desired opportunity. When it was just close upon half past 10 we
 uttered God's name and went to Velankar's house. He was talking with some one on the upper
 story. Being informed of our arrival, he after some time came downstairs with a candle-light and
-entered a shed outside his bungalow. there we three entered into conversation with him. Being
+entered a shed outside his bungalow. There we three entered into conversation with him. Being
 introduced to him, I said, " My friend Sathe having left his family has been living here for many days.
 I hear that he has now some improper idea in his head. As he has full confidence in you, you
 should, by giving him proper advice, induce him to go back to and live with his family."' Hearing this
@@ -1910,10 +2056,12 @@ religion and it is a great sin to throw obstacles in his way. In my case also, w
 conversion became known to all, all my relatives, friends and acquaintances advised me in many
 ways (to give up my intention). I, however, without earring for their advice carried out my intention.
 You should not, therefore, make me act sinfully in this matter." At this I pretended to be silenced.
+
 We then talked upon other subjects, and at last upon the story of Krishna. When Velankar, who had
 disgraced his family, began to find fault with the eternal Krishna, we could not put up with it, and
 Sathe struck a very severe blow with his steel-bound stick on Velankar's head and a moderately
 sever one on the back. We then returned home and expressed our gratitude to God.
+
 ### WE CHEATED THE POLICE
 On the next day news of the above occurence spread in all parts of Bombay, and all Hindus
 and Muhammandans appeared to be greatly rejoiced at it. The Police also began to make very
@@ -1924,25 +2072,31 @@ living there. On our telling them that neither of them lived there, they went aw
 the two books in our possession (which we had received from Velankar) might serve as evidence
 (against us) we burnt them. The Times (of India), the Bombay Gazette and the other English and
 Marathi newspapers then began to write about this Velankar affair with vehemence. In
-997these articles the Police were blamed for their inability to detect such a (serious) offence. Thereupon
-the Police feeling rather ashamed began to arrest persons indiscriminately, take them to "Velankar
-for identification, and release them on his failing to identify them. Apprehensive of falling into the
+these articles the Police were blamed for their inability to detect such a (serious) offence. Thereupon
+the Police feeling rather ashamed began to arrest persons indiscriminately, take them to Velankar
+for identification, and release them on his failing to identify them. 
+
+Apprehensive of falling into the
 clutches of the Police, we determined to piay a very clever trick on them in order to mislead them.
 We had already told him (Velankar) that all of as were inhabitants of Kolhapur. We now wrote in the
 Balbodh character a letter to the following effect in the style of an illiterate man :—
-" You sbandoned your own religion and became a convert to another and thereby
+" You abandoned your own religion and became a convert to another and thereby
 disgraced the Maratha Community to which we belong. We, therefore, inflicted a light
 punishment upon you and left for Kolhapur."
+
 In order to convince him (of the truth of the above statements) allusions were made in that
 latter to the books (given to us by him) and to certain incidents in our conversation with him. We
 caused Bhuskute to post it at Poona. We addressed it from Kothrud in order to make Velankar
-believe that we had started for Kolhapur on foot. When it reached him he showed it to the Police
+believe that we had started for Kolhapur on foot. 
+
+When it reached him he showed it to the Police
 and said, " Do not make any more fruitless inquiries or bring any more men to me for identification. I
 am certain that they have gone to Kolhapur.". As soon as the Police heard this, they relaxed their
 efforts to our satisfaction. The English papers, however, continued to discuss the matter now and
 then. Hearing that Dr. Mackichan was more exasperated than any other person, we also found out
 and marked his bungalow. A few days afterwards, the bubonic plague now prevailing in the country
 broke out in Bombay.
+
 ### OUR HATRED OF THE ENGLISH
 In the meanwhile we again tried to get ourselves enlisted in a regiment, but failed. This was
 the last disappointment suffered by us and we strongly reviled the English as follows : " A system of
