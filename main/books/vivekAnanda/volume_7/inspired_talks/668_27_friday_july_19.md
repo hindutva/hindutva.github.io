@@ -4,12 +4,9 @@ title: 'RECORDED BY MISS S. E. WALDO
   (A DISCIPLE)'
 
 ---
-<div>
 
-[←](26_thursday_july_18.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Inspired
-Talks](inspired_talks_contents.htm) / [→](28_saturday_july_20.htm)
+
+
 
   
 
@@ -76,4 +73,4 @@ has never seen. Buddha was the Washington of the religious world; he
 conquered a throne only to give it to the world, as Washington did to
 the American people. He sought nothing for himself.
 
-</div>
+

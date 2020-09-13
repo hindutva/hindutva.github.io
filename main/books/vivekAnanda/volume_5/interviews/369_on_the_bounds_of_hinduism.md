@@ -2,12 +2,9 @@
 title: ON THE BOUNDS OF HINDUISM
 
 ---
-<div>
 
-[←](on_indian_women.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Interviews](interviews_contents.htm)
-/ [→](../notes_from_lectures_and_discourses/on_karma-yoga.htm)
+
+
 
   
 
@@ -98,4 +95,4 @@ monastery, while I by the pathless paths of the Ganga, in and out
 amongst her crafts of many sizes, made the best of my way back to my
 Calcutta home.
 
-</div>
+

@@ -2,18 +2,14 @@
 title: XIII
 
 ---
-<div>
 
-[←](012_diwanji_saheb.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Epistles – Fourth
-Series](epistles_fourth_series_contents.htm)
-/ [→](014_diwanji_saheb.htm)
+
+
 
   
 
-[«](012_diwanji_saheb.htm) Chronology [»](014_diwanji_saheb.htm)  
-[«](012_diwanji_saheb.htm) Addressee [»](014_diwanji_saheb.htm)
+  
+
 
 ## XIII
 
@@ -87,4 +83,4 @@ Yours,
 
 V.
 
-</div>
+

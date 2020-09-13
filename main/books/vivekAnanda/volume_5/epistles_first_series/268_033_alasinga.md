@@ -2,18 +2,14 @@
 title: XXXIII
 
 ---
-<div>
 
-[←](032_sister.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Epistles – First
-Series](epistles_first_series_contents.htm) / [→](034_sister.htm)
+
+
 
   
 
-[«](../../volume_9/letters_fifth_series/048_adhyapakji.htm) Chronology
-[»](../../volume_6/epistles_second_series/059_sanyal.htm)  
-[«](030_alasinga.htm) Addressee [»](035_alasinga.htm)
+  
+
 
 ## XXXIII
 
@@ -34,4 +30,4 @@ Ever yours with blessings,
 
 VIVEKANANDA.
 
-</div>
+

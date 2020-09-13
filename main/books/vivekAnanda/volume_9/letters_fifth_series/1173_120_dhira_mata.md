@@ -2,15 +2,13 @@
 title: CXX
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) /[Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
 
-[←](119_margaret.htm)  
-[←Chronology](../../volume_8/epistles_fourth_series/124_shashi.htm)  
-[←Addressee](../../volume_6/epistles_second_series/133_mrs_bull.htm)
+
 
 ## CXX
 
@@ -69,4 +67,4 @@ VIVEKANANDA
 [Addressee→](124_miss_macleod_mrs_bull.htm)  
 [Chronology→](121_jagmohan.htm)
 
-</div>
+

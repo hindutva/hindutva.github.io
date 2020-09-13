@@ -2,7 +2,7 @@
 title: KANANDA ARRIVES
 
 ---
-<div>
+
 
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
@@ -10,11 +10,7 @@ title: KANANDA ARRIVES
 Reports](../newspaper_reports_contents.htm) / [American Newspaper
 Reports](american_newspaper_contents.htm) /
 
-[←](22_bay_city_times_press_mar_21_1894.htm)
 
-## KANANDA ARRIVES
-
-(*New Discoveries*, Vol. 2, p. 11.)
 
 \[*Saginaw Evening News*, March 21, 1894\]
 
@@ -30,4 +26,4 @@ in a future state.
 
 [→](24_the_lynn_daily.htm)
 
-</div>
+

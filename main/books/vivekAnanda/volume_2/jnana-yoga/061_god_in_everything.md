@@ -2,12 +2,9 @@
 title: GOD IN EVERYTHING
 
 ---
-<div>
 
-[←](the_absolute_and_manifestation.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-2](../volume_2_contents.htm) / [Jnana-Yoga](jnana-yoga_contents.htm)
-/ [→](realisation.htm)
+
+
 
   
 
@@ -340,4 +337,4 @@ that is within thee, I have known what is the real meaning of thy rays
 and thy glory and have seen That which shines in thee; the Truth in thee
 I see, and That which is within thee is within me, and I am That."
 
-</div>
+

@@ -2,13 +2,9 @@
 title: THE WOMEN OF INDIA
 
 ---
-<div>
 
-[←](the_love_of_god.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-3](../volume_3_contents.htm) / [Reports in American
-Newspapers](reports_in_american_newspapers_contents.htm)
-/ [→](../buddhistic_india.htm)
+
+
 
   
 
@@ -171,4 +167,4 @@ possibilities in the future, but our destiny, as that of the world,
 rests not in the lawmakers of today, but in the women. Mr. Kananda's
 words: "The salvation of your country depends upon its women."
 
-</div>
+

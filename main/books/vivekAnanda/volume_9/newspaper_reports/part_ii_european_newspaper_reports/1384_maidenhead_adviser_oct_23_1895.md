@@ -2,7 +2,7 @@
 title: SWAMI VIVEKANANDA ON LOVE
 
 ---
-<div>
+
 
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
@@ -10,17 +10,7 @@ title: SWAMI VIVEKANANDA ON LOVE
 Reports](../newspaper_reports_contents.htm) / [European Newspaper
 Reports](european_newspaper_contents.htm) /
 
-[←](../part_i_american_newspaper_reports/58_the_alameda_encinal_apr_5_1900.htm)
-
-## SWAMI VIVEKANANDA ON LOVE
-
-(*New Discoveries*, Vol. 3, pp. 237-40.)
-
-\[*Maidenhead Adviser*, October 23, 1895\]
-
-On Thursday the Swami Vivekananda delivered a lecture at the Town Hall,
-Maidenhead, taking as his subject "The Eastern Doctrine of
-Love."[1](#fn1) Owing to other attractions in the town the attendance
+ Owing to other attractions in the town the attendance
 was not large. Many of the public also associated the lecturer with the
 Theosophical Society, with which, however, he has, we are informed,
 nothing whatever to do, nor with any other society, neither does he
@@ -96,7 +86,7 @@ The proceedings occupied only a little over half an hour.
 
 [→](standard_oct_23_1895.htm)
 
-</div>
+
 
 1.  [^](#fn1_1)The lecture, of which no verbatim transcript is
     available, was delivered October 17, 1895.

@@ -2,13 +2,9 @@
 title: WHAT HAVE I LEARNT?
 
 ---
-<div>
 
-[←](sannyasa_its_ideal_and_practice.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-3](../volume_3_contents.htm) / [Lectures from Colombo to
-Almora](lectures_from_colombo_to_almora_contents.htm)
-/ [→](the_religion_we_are_born_in.htm)
+
+
 
   
 
@@ -159,4 +155,4 @@ evil, but to give up good too; and thus to go beyond all, beyond this
 phenomenal existence, and ultimately realise the Sat-Chit-Ânanda Brahman
 — the Absolute Existence-Knowledge-Bliss, which is Brahman.
 
-</div>
+

@@ -2,12 +2,9 @@
 title: THE METHOD AND THE MEANS
 
 ---
-<div>
 
-[←](the_chosen_ideal.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-3](../volume_3_contents.htm) / [Bhakti-Yoga](bhakti-yoga_contents.htm)
-/ [→](../para-bhakti_or_supreme_devotion/the_preparatory_renunciation.htm)
+
+
 
   
 
@@ -178,4 +175,4 @@ condition of harmonious equilibrium.
 
 It is thus that one may begin to learn how to love the Lord.
 
-</div>
+

@@ -2,12 +2,9 @@
 title: SKETCH OF THE LIFE OF PAVHARI BABA
 
 ---
-<div>
 
-[←](on_professor_max_muller.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-4](../volume_4_contents.htm) / [Writings:
-Prose](writings_prose_contents.htm) / [→](aryans_and_tamilians.htm)
+
+
 
   
 
@@ -429,4 +426,4 @@ The present writer owes a deep debt of gratitude to the departed saint
 and dedicates these lines, however unworthy, to the memory of one of the
 greatest Masters he has loved and served.
 
-</div>
+

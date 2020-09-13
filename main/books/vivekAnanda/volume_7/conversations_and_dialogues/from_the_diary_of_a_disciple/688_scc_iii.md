@@ -2,14 +2,9 @@
 title: 'CONVERSATIONS AND DIALOGUES '
 
 ---
-<div>
 
-[←](scc_ii.htm) [Home](../../../../index.htm) /
-[Complete-Works](../../../complete_works.htm) / [Volume
-7](../../volume_7_contents.htm) / [Conversations and
-Dialogues](../conversations_and_dialogues_contents.htm) / [From the
-Diary of a Disciple](from_the_diary_of_a_disciple_contents.htm)
-/ [→](scc_iv.htm)
+
+
 
   
 
@@ -240,4 +235,4 @@ Eastern Bengal has become effulgent.
     remark, "Well, everything here has been done by you, and Indra alone
     is responsible for the killing of the cow, eh!"
 
-</div>
+

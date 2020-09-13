@@ -2,17 +2,13 @@
 title: XIX
 
 ---
-<div>
 
-[←](018_alasinga.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Epistles – First
-Series](epistles_first_series_contents.htm) /  [→](020_sister.htm)
+
+
 
   
 
-[«](../../volume_6/epistles_second_series/049_swami_ramakrishnananda.htm)
-Chronology [»](020_sister.htm)
+
 
 ## XIX
 
@@ -34,4 +30,4 @@ Yours,
 
 VIVEKANANDA.
 
-</div>
+

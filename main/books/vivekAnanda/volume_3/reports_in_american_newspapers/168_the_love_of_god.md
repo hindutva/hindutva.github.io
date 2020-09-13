@@ -2,13 +2,9 @@
 title: THE LOVE OF GOD
 
 ---
-<div>
 
-[←](the_divinity_of_man.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-3](../volume_3_contents.htm) / [Reports in American
-Newspapers](reports_in_american_newspapers_contents.htm)
-/ [→](the_women_of_india.htm)
+
+
 
   
 
@@ -91,4 +87,4 @@ something, including all manner of selfish things. Modern religion is,
 therefore, nothing but a mere hobby and fashion and people flock to
 church like a lot of sheep."
 
-</div>
+

@@ -2,15 +2,13 @@
 title: CCXXIV
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
 
-[←](223_mademoiselle.htm)  
-[←Chronology](223_mademoiselle.htm)  
-[←Addressee](222_christine.htm)
+
 
 ## CCXXIV
 
@@ -71,4 +69,4 @@ V.
 [Addressee→](225_christine.htm)  
 [Chronology→](../../volume_5/epistles_first_series/123_dhira_mata.htm)
 
-</div>
+

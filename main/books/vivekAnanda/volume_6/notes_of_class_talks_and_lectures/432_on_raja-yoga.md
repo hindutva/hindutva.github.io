@@ -2,13 +2,9 @@
 title: ON RAJA-YOGA
 
 ---
-<div>
 
-[←](thoughts_on_the_vedas_and_upanishads.htm) [Home](../../../index.htm)
-/ [Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Notes of Class Talks and
-Lectures](notes_of_class_talks_and_lectures_contents.htm)
-/ [→](on_bhakti-yoga.htm)
+
+
 
   
 
@@ -55,4 +51,4 @@ Supreme Spirit, when one realises. "I and my Father are one."
 Do one thing at a time and while doing it put your whole soul into it to
 the exclusion of all else.
 
-</div>
+

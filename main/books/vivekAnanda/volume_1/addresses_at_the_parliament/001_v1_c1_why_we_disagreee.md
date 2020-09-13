@@ -2,13 +2,9 @@
 title: 'WHY WE DISAGREE '
 
 ---
-<div>
 
-[←](v1_c1_response_to_welcome.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-1](../complete_works_v1_contents.htm) / [Addresses at The Parliament of
-Religions](addresses_at_the_parliament.htm) /
-[→](v1_c1_paper_on_hinduism.htm)
+
+
 
   
 
@@ -59,4 +55,4 @@ for the great attempt you are making to break down the barriers of this
 little world of ours, and hope that, in the future, the Lord will help
 you to accomplish your purpose.
 
-</div>
+

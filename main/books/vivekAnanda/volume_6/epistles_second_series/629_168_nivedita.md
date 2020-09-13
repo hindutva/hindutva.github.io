@@ -2,20 +2,14 @@
 title: CLXVIII
 
 ---
-<div>
 
-[←](167_joe.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Epistles – Second
-Series](epistles_second_series_contents.htm)
-/ [→](../conversations_and_dialogues/i_sharat_chakravarty.htm)
+
+
 
   
 
-[«](../../volume_5/epistles_first_series/112_blessed_and_beloved.htm)
-Chronology [»](../../volume_9/letters_fifth_series/204_christine.htm)  
-[«](../../volume_9/letters_fifth_series/193_margot.htm) Addressee
-[»](../../volume_9/letters_fifth_series/207_margo.htm)
+  
+
 
 ## CLXVIII
 
@@ -49,4 +43,4 @@ Yours etc.,
 
 VIVEKANANDA.
 
-</div>
+

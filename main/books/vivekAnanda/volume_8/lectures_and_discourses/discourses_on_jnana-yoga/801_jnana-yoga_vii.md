@@ -2,14 +2,9 @@
 title: JNANA YOGA - VII
 
 ---
-<div>
 
-[←](jnana-yoga_vi.htm) [Home](../../../../index.htm) /
-[Complete-Works](../../../complete_works.htm) / [Volume
-8](../../volume_8_contents.htm) / [Lectures and
-Discourses](../lectures_and_discourses_contents.htm) / [Discourses on
-Jnana-Yoga](discourses_on_jnana-yoga_contents.htm)
-/ [→](jnana-yoga_viii.htm)
+
+
 
   
 
@@ -185,4 +180,4 @@ woman in an equal position with man. For them sex in religion did not
 exist. In the Vedas and Upanishads, women taught the highest truths and
 received the same veneration as men.
 
-</div>
+

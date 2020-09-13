@@ -2,13 +2,9 @@
 title: CONGRESS OF RELIGIOUS UNITY
 
 ---
-<div>
 
-[←](women_of_the_east.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Notes of Class Talks and
-Lectures](notes_of_class_talks_and_lectures_contents.htm)
-/ [→](the_love_of_god_i.htm)
+
+
 
   
 
@@ -33,4 +29,4 @@ because every religion and every creed recognises man as divine, and you
 should do him no harm that you might not injure that which is divine in
 him."
 
-</div>
+

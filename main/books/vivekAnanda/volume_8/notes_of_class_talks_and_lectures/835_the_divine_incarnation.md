@@ -2,13 +2,9 @@
 title: THE DIVINE INCARNATION OR AVATARA
 
 ---
-<div>
 
-[←](god_personal_and_impersonal.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Notes of Class Talks and
-Lectures](notes_of_class_talks_and_lectures_contents.htm)
-/ [→](pranayama.htm)
+
+
 
   
 
@@ -62,4 +58,4 @@ the Holy Spirit. As soon as you get this knowledge, you get bliss. As
 soon as you begin to have Christ within you, you have bliss; and that
 unifies the three.
 
-</div>
+

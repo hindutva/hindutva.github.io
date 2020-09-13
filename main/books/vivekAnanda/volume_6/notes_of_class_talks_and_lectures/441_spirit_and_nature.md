@@ -2,13 +2,9 @@
 title: SPIRIT AND NATURE
 
 ---
-<div>
 
-[←](the_design_theory.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Notes of Class Talks and
-Lectures](notes_of_class_talks_and_lectures_contents.htm)
-/ [→](the_practice_of_religion.htm)
+
+
 
   
 
@@ -86,4 +82,4 @@ thought is followed by the word, and the word by the form. All of this
 creating will have to stop, both mental and physical, before the mind
 can reflect the soul.
 
-</div>
+

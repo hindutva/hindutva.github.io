@@ -2,7 +2,7 @@
 title: FOR UNIVERSAL RELIGION
 
 ---
-<div>
+
 
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
@@ -10,11 +10,7 @@ title: FOR UNIVERSAL RELIGION
 Reports](../newspaper_reports_contents.htm) / [American Newspaper
 Reports](american_newspaper_contents.htm) /
 
-[←](47_boston_evening_transcript_mar_27_1896.htm)
 
-## FOR UNIVERSAL RELIGION
-
-(*New Discoveries*, Vol. 4, pp. 81-86.)
 
 \[*Boston Evening Transcript*, March 30, 1896\]
 
@@ -198,7 +194,7 @@ route for India.
 
 [→](49_la_times_dec_9_1899.htm)
 
-</div>
+
 
 1.  [^](#fn1_1)Probably the March 21st class entitled "The Science of
     Work", of which there is no verbatim transcript available.

@@ -2,12 +2,9 @@
 title: 'THOU BLESSED DREAM '
 
 ---
-<div>
 
-[←](an_interesting_correspondence.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Writings:
-Poems](writings_poems_contents.htm) / [→](light.htm)
+
+
 
   
 
@@ -33,4 +30,4 @@ Thy touch makes desert bloom to life.
 Harsh thunder, sweetest song,  
 Fell death, the sweet release.
 
-</div>
+

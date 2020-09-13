@@ -2,18 +2,14 @@
 title: CLV
 
 ---
-<div>
 
-[←](154_akhandananda.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Epistles – Second
-Series](epistles_second_series_contents.htm) / [→](156_nivedita.htm)
+
+
 
   
 
-[«](../../volume_9/letters_fifth_series/163_joe.htm) Chronology
-[»](../../volume_8/epistles_fourth_series/158_dhira_mata.htm)  
-[«](153_nivedita.htm) Addressee [»](156_nivedita.htm)
+  
+
 
 ## CLV
 
@@ -42,4 +38,4 @@ Yours etc.,
 
 VIVEKANANDA.
 
-</div>
+

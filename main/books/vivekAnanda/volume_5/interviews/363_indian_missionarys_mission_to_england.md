@@ -2,12 +2,9 @@
 title: INDIAN MISSIONARY'S MISSION TO ENGLAND
 
 ---
-<div>
 
-[←](india_and_england.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Interviews](interviews_contents.htm)
-/ [→](with_the_swami_vivekananda_at_madura.htm)
+
+
 
   
 
@@ -103,4 +100,4 @@ fine physique; his command of English can only be described as perfect.
 
 C. S. B.
 
-</div>
+

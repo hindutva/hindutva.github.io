@@ -2,13 +2,9 @@
 title: HINDU AND GREEK
 
 ---
-<div>
 
-[←](notes_on_vedanta.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Notes of Class Talks and
-Lectures](notes_of_class_talks_and_lectures_contents.htm)
-/ [→](thoughts_on_the_vedas_and_upanishads.htm)
+
+
 
   
 
@@ -34,4 +30,4 @@ country comes first. To care only for spiritual liberty and not for
 social liberty is a defect, but the opposite is a still greater defect.
 Liberty of both soul and body is to be striven for.
 
-</div>
+

@@ -2,13 +2,9 @@
 title: WITH THE SWAMI VIVEKANANDA AT MADURA
 
 ---
-<div>
 
-[←](indian_missionarys_mission_to_england.htm)
-[Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
-/ [Volume 5](../volume_5_contents.htm)
-/ [Interviews](interviews_contents.htm)
-/ [→](the_abroad_and_the_problems_at_home.htm)
+
+
 
   
 
@@ -186,4 +182,4 @@ The discourse ended, as the time appointed in the programme for his
 visiting the Temple had already arrived. He accordingly took leave of
 the gentlemen present and proceeded to visit the Temple.
 
-</div>
+

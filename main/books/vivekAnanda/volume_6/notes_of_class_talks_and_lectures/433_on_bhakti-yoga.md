@@ -2,13 +2,9 @@
 title: ON BHAKTI-YOGA
 
 ---
-<div>
 
-[←](on_raja-yoga.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Notes of Class Talks and
-Lectures](notes_of_class_talks_and_lectures_contents.htm)
-/ [→](on_jnana-yoga.htm)
+
+
 
   
 
@@ -78,4 +74,4 @@ When love to God is revealed and is all, this world appears like a drop.
 
 Pass from non-existence to existence, from darkness to light.
 
-</div>
+

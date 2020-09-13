@@ -2,13 +2,9 @@
 title: VEDIC RELIGIOUS IDEALS
 
 ---
-<div>
 
-[←](what_is_religion.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-1](../complete_works_v1_contents.htm) / [Lectures and
-Discourses](lectures_and_discourses_contents.htm)
-/ [→](the_vedanta_philosophy.htm)
+
+
 
   
 
@@ -403,4 +399,4 @@ and the very same search is getting another name, more philosophical,
 clearer — the unity of all things — "Knowing which everything else
 becomes known."
 
-</div>
+

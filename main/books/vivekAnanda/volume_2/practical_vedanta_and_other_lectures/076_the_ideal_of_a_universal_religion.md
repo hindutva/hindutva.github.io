@@ -2,13 +2,9 @@
 title: THE IDEAL OF A UNIVERSAL RELIGION
 
 ---
-<div>
 
-[←](the_way_to_the_realisation_of_a_universal_religion.htm)
-[Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
-/ [Volume 2](../volume_2_contents.htm) / [Practical Vedanta and other
-lectures](practical_vedanta_and_other_lectures_contents.htm)
-/ [→](the_open_secret.htm)
+
+
 
   
 
@@ -657,4 +653,4 @@ beautiful they may be. It is being and becoming, not hearing or
 acknowledging; it is the whole soul becoming changed into what it
 believes. That is religion.
 
-</div>
+

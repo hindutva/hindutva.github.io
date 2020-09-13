@@ -2,13 +2,9 @@
 title: THE PARIS CONGRESS OF THE HISTORY OF RELIGIONS
 
 ---
-<div>
 
-[←](ramakrishna.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-4](../volume_4_contents.htm) / [Translations:
-Prose](translation_prose_contents.htm)
-/ [→](knowledge_its_source_and_acquirement.htm)
+
+
 
   
 
@@ -261,4 +257,4 @@ not a part of the Mahabharata.
 The substance of the lecture will be printed in French in the General
 Report of the Congress.
 
-</div>
+

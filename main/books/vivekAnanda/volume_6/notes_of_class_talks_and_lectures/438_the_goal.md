@@ -2,13 +2,9 @@
 title: THE GOAL
 
 ---
-<div>
 
-[←](soul_and_god.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Notes of Class Talks and
-Lectures](notes_of_class_talks_and_lectures_contents.htm)
-/ [→](on_proof_of_religion.htm)
+
+
 
   
 
@@ -34,4 +30,4 @@ end, and this would mean that He could not have the end without the
 means. The questions, why and wherefore, can only be asked of something
 which depends upon something else.
 
-</div>
+

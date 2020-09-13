@@ -2,12 +2,9 @@
 title: 'KNOWLEDGE: ITS SOURCE AND ACQUIREMENT'
 
 ---
-<div>
 
-[←](the_paris_congress.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-4](../volume_4_contents.htm) / [Translations:
-Prose](translation_prose_contents.htm) / [→](modern_india.htm)
+
+
 
   
 
@@ -238,4 +235,4 @@ But it is equally certain that such guides will rise up in the societies
 that are now without them and will lead them to equally rapid progress
 in the future.
 
-</div>
+

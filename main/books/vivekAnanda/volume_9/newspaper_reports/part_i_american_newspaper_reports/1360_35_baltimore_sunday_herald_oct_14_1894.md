@@ -2,7 +2,7 @@
 title: A WISE MAN AMONG US
 
 ---
-<div>
+
 
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
@@ -10,11 +10,7 @@ title: A WISE MAN AMONG US
 Reports](../newspaper_reports_contents.htm) / [American Newspaper
 Reports](american_newspaper_contents.htm) /
 
-[←](34_baltimore_news_oct_13_1894.htm)
 
-## A WISE MAN AMONG US
-
-(*New Discoveries*, Vol. 2, pp. 200-202.)
 
 \[*Baltimore Sunday Herald*, October 14, 1894\]
 
@@ -70,4 +66,4 @@ the university plan."
 
 [→](36_washington_times_oct_29_1894.htm)
 
-</div>
+

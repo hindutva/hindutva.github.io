@@ -2,12 +2,9 @@
 title: AN INDIAN YOGI IN LONDON
 
 ---
-<div>
 
-[←](miracles.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Interviews](interviews_contents.htm)
-/ [→](indias_mission.htm)
+
+
 
   
 
@@ -128,4 +125,4 @@ pecuniary reward."
 I then took my leave from one of the most original of men that I have
 had the honour of meeting.
 
-</div>
+

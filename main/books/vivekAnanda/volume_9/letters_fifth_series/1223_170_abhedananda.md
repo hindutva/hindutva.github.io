@@ -2,15 +2,13 @@
 title: CLXX
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
 
-[←](169_christina.htm)  
-[←Chronology](169_christina.htm)  
-[←Addressee](../../volume_8/epistles_fourth_series/053_kali.htm)
+
 
 ## CLXX
 
@@ -49,7 +47,7 @@ VIVEKANANDA
 [Addressee→](178_abhedananda.htm)  
 [Chronology→](../../volume_8/epistles_fourth_series/180_nivedita.htm)
 
-</div>
+
 
 1.  [^](#fn1_1)Mrs. Mary B. Coulston was secretary, in 1898, and later
     treasurer, in 1899, while serving on the executive committee of the

@@ -2,14 +2,13 @@
 title: LXIX
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
 
-[←](068_mrs_hale.htm)  
-[←Chronology](../../volume_8/epistles_fourth_series/050_friend.htm)
+
 
 ## LXIX
 
@@ -56,4 +55,4 @@ V.
 [Addressee→](073_christina.htm)  
 [Chronology→](070_mother.htm)
 
-</div>
+

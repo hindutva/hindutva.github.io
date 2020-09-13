@@ -2,7 +2,7 @@
 title: "SWAMI VIVEKANANDA ON THE SEA-VOYAGE\n MOVEMENT"
 
 ---
-<div>
+
 
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
@@ -10,11 +10,7 @@ title: "SWAMI VIVEKANANDA ON THE SEA-VOYAGE\n MOVEMENT"
 Reports](../newspaper_reports_contents.htm) / [Indian Newspaper
 Reports](indian_newspaper_contents.htm) /
 
-[←](05_the_indian_mirror_jul_20_1894.htm)
 
-## SWAMI VIVEKANANDA ON THE SEA-VOYAGE MOVEMENT
-
-(*Vivekananda in Indian Newspapers*, pp. 260-62.)
 
 \[*The Bengalee*, May 18, 1895\]
 
@@ -90,4 +86,4 @@ as Swami Vivekananda supports travel to foreign countries. . . .
 
 [→](07_the_indian_mirror_jun_29_1895.htm)
 
-</div>
+

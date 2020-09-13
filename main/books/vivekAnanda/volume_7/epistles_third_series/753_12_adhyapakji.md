@@ -2,18 +2,14 @@
 title: XII
 
 ---
-<div>
 
-[←](11_mrs_tannatt_woods.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Epistles – Third
-Series](epistles_third_series_contents.htm) / [→](13_mrs_woods.htm)
+
+
 
   
 
-[«](11_mrs_tannatt_woods.htm) Chronology
-[»](../../volume_5/epistles_first_series/005_alasinga.htm)  
-[«](10_adhyapakji.htm) Addressee [»](16_professor.htm)
+  
+
 
 ## XII
 
@@ -53,4 +49,4 @@ Yours affectionately ever,
 
 VIVEKANANDA.
 
-</div>
+

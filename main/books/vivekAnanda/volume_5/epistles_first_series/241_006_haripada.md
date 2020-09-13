@@ -2,19 +2,14 @@
 title: VI
 
 ---
-<div>
 
-[←](005_alasinga.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Epistles – First
-Series](epistles_first_series_contents.htm) / [→](007_friends.htm)
+
+
 
   
 
-[«](../../volume_9/letters_fifth_series/008_mother.htm) Chronology
-[»](007_friends.htm)  
-[«](../../volume_8/epistles_fourth_series/010_haripada.htm) Addressee
-[»](../../volume_8/epistles_fourth_series/105_haripada.htm)
+  
+
 
 ## VI
 
@@ -95,4 +90,4 @@ With love and best wishes,
 Yours,  
 VIVEKANANDA.
 
-</div>
+

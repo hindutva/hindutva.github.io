@@ -2,18 +2,14 @@
 title: LX
 
 ---
-<div>
 
-[←](059_friend.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Epistles – Fourth
-Series](epistles_fourth_series_contents.htm) / [→](061_friend.htm)
+
+
 
   
 
-[«](059_friend.htm) Chronology
-[»](../../volume_6/epistles_second_series/085_akhandananda.htm)  
-[«](059_friend.htm) Addressee [»](061_friend.htm)
+  
+
 
 ## LX
 
@@ -42,4 +38,4 @@ PS. Kindly convey my love to Miss Müller. I left the night shirt at
 Avenue Road. So I shall have to do without any until the trunk is
 brought out of the hold.
 
-</div>
+

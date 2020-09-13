@@ -2,14 +2,9 @@
 title: 'CONVERSATIONS AND DIALOGUES '
 
 ---
-<div>
 
-[←](../from_the_diary_of_a_disciple/scc_xxix.htm)
-[Home](../../../../index.htm) /
-[Complete-Works](../../../complete_works.htm) / [Volume
-7](../../volume_7_contents.htm) / [Conversations and
-Dialogues](../conversations_and_dialogues_contents.htm) / [Shri Priya
-Nath Sinha](priya_nath_sinha_contents.htm) / [→](pns_xxxi.htm)
+
+
 
   
 
@@ -110,4 +105,4 @@ learnt the lesson of self-surrender.
 So saying, Swamiji raised his folded hands to his head out of respect to
 him.
 
-</div>
+

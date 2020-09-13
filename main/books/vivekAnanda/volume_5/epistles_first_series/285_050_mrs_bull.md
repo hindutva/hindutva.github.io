@@ -2,19 +2,14 @@
 title: L
 
 ---
-<div>
 
-[←](049_alasinga.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Epistles – First
-Series](epistles_first_series_contents.htm) / [→](051_friend.htm)
+
+
 
   
 
-[«](049_alasinga.htm) Chronology
-[»](../../volume_7/epistles_third_series/30_rakhal.htm)  
-[«](../../volume_9/letters_fifth_series/063_mother.htm) Addressee
-[»](../../volume_9/letters_fifth_series/070_mother.htm)
+  
+
 
 ## L
 
@@ -52,4 +47,4 @@ Yours etc.,
 
 VIVEKANANDA.
 
-</div>
+

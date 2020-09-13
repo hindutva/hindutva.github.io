@@ -2,18 +2,14 @@
 title: VII
 
 ---
-<div>
 
-[←](006_diwanji_saheb.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Epistles – Fourth
-Series](epistles_fourth_series_contents.htm)
-/ [→](008_diwanji_saheb.htm)
+
+
 
   
 
-[«](006_diwanji_saheb.htm) Chronology [»](008_diwanji_saheb.htm)  
-[«](006_diwanji_saheb.htm) Addressee [»](008_diwanji_saheb.htm)
+  
+
 
 ## VII
 
@@ -47,4 +43,4 @@ I remain,
 Yours faithfully,  
 VIVEKANANDA.
 
-</div>
+

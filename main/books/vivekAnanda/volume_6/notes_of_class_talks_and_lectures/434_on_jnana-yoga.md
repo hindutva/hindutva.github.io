@@ -2,13 +2,9 @@
 title: ON JNANA-YOGA
 
 ---
-<div>
 
-[←](on_bhakti-yoga.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Notes of Class Talks and
-Lectures](notes_of_class_talks_and_lectures_contents.htm)
-/ [→](the_reality_and_shadow.htm)
+
+
 
   
 
@@ -40,4 +36,4 @@ I am Existence, Knowledge, Bliss.
 I am the essence and nectar of knowledge. Through eternity I change not.
 I am calm, resplendent, and unchanging.
 
-</div>
+

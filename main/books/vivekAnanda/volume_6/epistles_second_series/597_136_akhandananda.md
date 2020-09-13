@@ -2,17 +2,14 @@
 title: CXXXVI
 
 ---
-<div>
 
-[←](135_sarada.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Epistles – Second
-Series](epistles_second_series_contents.htm) / [→](137_rakhal.htm)
+
+
 
   
 
-[«](135_sarada.htm) Chronology [»](137_rakhal.htm)  
-[«](132_akhandananda.htm) Addressee [»](154_akhandananda.htm)
+  
+
 
 ## CXXXVI
 
@@ -73,4 +70,4 @@ unceasingly, as you go the round of your daily duties.
 Yours,  
 V.
 
-</div>
+

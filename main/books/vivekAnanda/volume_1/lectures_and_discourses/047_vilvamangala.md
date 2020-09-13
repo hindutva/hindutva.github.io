@@ -2,13 +2,9 @@
 title: VILVAMANGALA
 
 ---
-<div>
 
-[←](mohammed.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-1](../complete_works_v1_contents.htm) / [Lectures and
-Discourses](lectures_and_discourses_contents.htm)
-/ [→](the_soul_and_god.htm)
+
+
 
   
 
@@ -96,4 +92,4 @@ his eyes, and that he could only have the internal vision. He wrote some
 beautiful poems of love. In all Sanskrit books, the writers first of all
 salute their Gurus. So he saluted that girl as his first Guru.
 
-</div>
+

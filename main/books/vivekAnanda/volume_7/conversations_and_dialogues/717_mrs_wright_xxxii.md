@@ -2,13 +2,9 @@
 title: 'CONVERSATIONS AND DIALOGUE '
 
 ---
-<div>
 
-[←](priya_nath_sinha/pns_xxxi.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Conversations and
-Dialogues](conversations_and_dialogues_contents.htm)
-/ [→](taa_xxxiii.htm)
+
+
 
   
 
@@ -146,4 +142,4 @@ side of the Indian mutiny, when you would never believe that there was
 another side to it, and to be assured that a Hindu could not possibly
 kill a woman. . . .
 
-</div>
+

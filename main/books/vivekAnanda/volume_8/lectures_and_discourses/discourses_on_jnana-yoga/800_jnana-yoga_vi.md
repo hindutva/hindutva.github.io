@@ -2,14 +2,9 @@
 title: JNANA YOGA - VI
 
 ---
-<div>
 
-[←](jnana-yoga_v.htm) [Home](../../../../index.htm) /
-[Complete-Works](../../../complete_works.htm) / [Volume
-8](../../volume_8_contents.htm) / [Lectures and
-Discourses](../lectures_and_discourses_contents.htm) / [Discourses on
-Jnana-Yoga](discourses_on_jnana-yoga_contents.htm)
-/ [→](jnana-yoga_vii.htm)
+
+
 
   
 
@@ -118,4 +113,4 @@ secret of Jnana is to give up all and be sufficient unto ourselves. Say
 "not", and you become "not"; say "is", and you become "is". Worship the
 Self within, naught else exists. All that binds us is Mâyâ-delusion.
 
-</div>
+

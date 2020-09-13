@@ -2,14 +2,9 @@
 title: ON MUSIC
 
 ---
-<div>
 
-[←](on_art.htm) [Home](../../../../index.htm) /
-[Complete-Works](../../../complete_works.htm) / [Volume
-7](../../volume_7_contents.htm) / [Notes of Class Talks and
-Lectures](../notes_of_class_talks_and_lectures_contents.htm) / [Notes of
-Class Talks](notes_of_class_talks_contents.htm)
-/ [→](on_mantra_and_mantra-chaitanya.htm)
+
+
 
   
 
@@ -22,4 +17,4 @@ There is more music in common people's songs, and they should be
 collected together. The science of Dhrupad etc., applied to the music of
 Kirtana will produce the perfect music.
 
-</div>
+

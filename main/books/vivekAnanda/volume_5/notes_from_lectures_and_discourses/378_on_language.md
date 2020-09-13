@@ -2,13 +2,9 @@
 title: ON LANGUAGE
 
 ---
-<div>
 
-[←](on_art.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Notes from Lectures and
-Discourses](notes_from_lectures_and_discourses_contents.htm)
-/ [→](the_sannyasin.htm)
+
+
 
   
 
@@ -34,4 +30,4 @@ words. For this purpose, if a collection is made from a Sanskrit
 dictionary of all those technical terms, then it ill help greatly the
 constitution of the Bengali language.
 
-</div>
+

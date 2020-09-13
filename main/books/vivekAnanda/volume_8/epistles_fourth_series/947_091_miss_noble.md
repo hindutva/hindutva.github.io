@@ -2,19 +2,14 @@
 title: XCI
 
 ---
-<div>
 
-[←](090_shashi.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Epistles – Fourth
-Series](epistles_fourth_series_contents.htm) / [→](092_rakhal.htm)
+
+
 
   
 
-[«](../../volume_7/epistles_third_series/39_mrs_bull.htm) Chronology
-[»](092_rakhal.htm)  
-[«](../../volume_9/letters_fifth_series/108_miss_noble.htm) Addressee
-[»](../../volume_6/epistles_second_series/126_miss_noble.htm)
+  
+
 
 ## XCI
 
@@ -80,4 +75,4 @@ habitation is the constant prayer of,
 
 VIVEKANANDA.
 
-</div>
+

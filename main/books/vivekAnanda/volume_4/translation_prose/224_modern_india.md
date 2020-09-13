@@ -2,13 +2,9 @@
 title: MODERN INDIA
 
 ---
-<div>
 
-[←](knowledge_its_source_and_acquirement.htm) [Home](../../../index.htm)
-/ [Complete-Works](../../complete_works.htm) / [Volume
-4](../volume_4_contents.htm) / [Translations:
-Prose](translation_prose_contents.htm)
-/ [→](the_education_that_india_needs.htm)
+
+
 
   
 
@@ -1350,4 +1346,4 @@ take away my unmanliness, and make me a Man!"
     newborn child Karna, into water. A charioteer found the child in his
     pitiable condition and adopted him as his son.
 
-</div>
+

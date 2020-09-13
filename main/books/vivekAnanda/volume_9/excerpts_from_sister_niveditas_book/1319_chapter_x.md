@@ -2,13 +2,13 @@
 title: CHAPTER X
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Excerpts from Sister
 Nivedita's Book](excerpts_from_sister_niveditas_book_contents.htm) /
 
-[←](chapter_ix.htm)
+
 
 ## CHAPTER X
 
@@ -155,4 +155,4 @@ breakfast, we were towed safely into Srinagar.
 
 [→](chapter_xi.htm)
 
-</div>
+

@@ -2,17 +2,13 @@
 title: VIII
 
 ---
-<div>
 
-[←](07_atul_babu.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Epistles – Third
-Series](epistles_third_series_contents.htm) / [→](09_adhyapakji.htm)
+
+
 
   
 
-[«](../../volume_5/epistles_first_series/004_alasinga.htm) Chronology
-[»](09_adhyapakji.htm)  
+  
 Addressee [»](09_adhyapakji.htm)
 
 ## VIII
@@ -31,4 +27,4 @@ great soul) and Mrs. Wright is nonpareil.
 Yours affectionately,  
 VIVEKANANDA.
 
-</div>
+

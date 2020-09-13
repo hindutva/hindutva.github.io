@@ -4,14 +4,9 @@ title: 'RAJA YOGA
   SIXTH LESSON'
 
 ---
-<div>
 
-[←](raja-yoga_v.htm) [Home](../../../../index.htm) /
-[Complete-Works](../../../complete_works.htm) / [Volume
-8](../../volume_8_contents.htm) / [Lectures and
-Discourses](../lectures_and_discourses_contents.htm) / [Six Lessons on
-Raja-Yoga](six_lessons_on_raja-yoga_contents.htm)
-/ [→](../women_of_india.htm)
+
+
 
   
 
@@ -43,4 +38,4 @@ We must awaken the Kundalini, then slowly raise it from one lotus to
 another till the brain is reached. Each stage corresponds to a new layer
 of the mind.
 
-</div>
+

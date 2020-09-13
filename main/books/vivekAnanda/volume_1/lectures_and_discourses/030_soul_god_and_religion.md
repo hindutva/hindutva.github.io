@@ -2,13 +2,9 @@
 title: SOUL, GOD AND RELIGION
 
 ---
-<div>
 
-[←](../raja-yoga/appendix.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-1](../complete_works_v1_contents.htm) / [Lectures and
-Discourses](lectures_and_discourses_contents.htm)
-/ [→](the_hindu_religion.htm)
+
+
 
   
 
@@ -382,4 +378,4 @@ Buddha taught five hundred years before Christ, and his words were full
 of blessings: never a curse came from his lips, nor from his life; never
 one from Zoroaster, nor from Confucius.
 
-</div>
+

@@ -2,16 +2,13 @@
 title: CLXVI
 
 ---
-<div>
 
-[←](165_mary.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Epistles – Fourth
-Series](epistles_fourth_series_contents.htm) / [→](167_joe.htm)
+
+
 
   
 
-[«](165_mary.htm) Chronology [»](167_joe.htm)  
+  
 Addressee [»](168_haribhai.htm)
 
 ## CLXVI
@@ -36,4 +33,4 @@ are you doing?
 Yours affectionately,  
 VIVEKANANDA.
 
-</div>
+

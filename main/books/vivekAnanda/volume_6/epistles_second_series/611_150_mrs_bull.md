@@ -2,19 +2,14 @@
 title: CL
 
 ---
-<div>
 
-[←](149_margot.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Epistles – Second
-Series](epistles_second_series_contents.htm) / [→](151_margot.htm)
+
+
 
   
 
-[«](../../volume_9/letters_fifth_series/159_christina.htm) Chronology
-[»](../../volume_9/letters_fifth_series/160_brahmananda.htm)  
-[«](../../volume_9/letters_fifth_series/155_dhira_mata.htm) Addressee
-[»](../../volume_8/epistles_fourth_series/151_dhira_mata.htm)
+  
+
 
 ## CL
 
@@ -89,4 +84,4 @@ Love to Christine and Turiyananda.
 
 VIVEKANANDA.
 
-</div>
+

@@ -2,12 +2,9 @@
 title: THE CHIEF SYMBOLS
 
 ---
-<div>
 
-[←](the_need_of_symbols.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-4](..%5Cvolume_4_contents.htm) / [Addresses on
-Bhakti-Yoga](addresses_on_bhakti-yoga_contents.htm) / [→](the_ishta.htm)
+
+
 
   
 
@@ -330,4 +327,4 @@ infinite power; there is neither time nor place for repeating these
 names, for all times and places are holy. Thou art so easy, Thou art so
 merciful, how unfortunate am I, that I have no love for Thee!"
 
-</div>
+

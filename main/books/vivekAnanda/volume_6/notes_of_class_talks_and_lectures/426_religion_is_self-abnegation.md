@@ -2,13 +2,9 @@
 title: RELIGION IS SELF-ABNEGATION
 
 ---
-<div>
 
-[←](religion_is_realisation.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Notes of Class Talks and
-Lectures](notes_of_class_talks_and_lectures_contents.htm)
-/ [→](unselfish_work_is_true_renunciation.htm)
+
+
 
   
 
@@ -33,4 +29,4 @@ Selflessness alone will solve the problem. Religion comes with intense
 self-sacrifice. Desire nothing for yourself. Do all for others. This is
 to live and move and have your being in God.
 
-</div>
+

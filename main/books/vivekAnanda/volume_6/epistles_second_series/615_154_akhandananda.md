@@ -2,22 +2,14 @@
 title: CLIV
 
 ---
-<div>
 
-[←](153_nivedita.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Epistles – Second
-Series](epistles_second_series_contents.htm) / [→](155_nivedita.htm)
+
+
 
   
 
-[«](../../volume_8/epistles_fourth_series/156_mary.htm) Chronology
-[»](../../volume_8/epistles_fourth_series/157_mary.htm)  
-[«](136_akhandananda.htm) Addressee
+  
 
-## CLIV
-
-(*Translated from [Bengali](b8459e6154.pdf)* )
 
 CALIFORNIA,  
 *21st February, 1900*.
@@ -136,4 +128,4 @@ Yours affectionately,
 
 VIVEKANANDA.
 
-</div>
+

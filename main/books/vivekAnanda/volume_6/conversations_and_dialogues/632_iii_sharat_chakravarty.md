@@ -2,13 +2,9 @@
 title: III
 
 ---
-<div>
 
-[←](ii_sharat_chakravarty.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Conversations and
-Dialogues](conversations_and_dialogues_contents.htm)
-/ [→](iv_sharat_chakravarty.htm)
+
+
 
   
 
@@ -175,4 +171,4 @@ why, we have our Lord Jesus for all that!"
 After thus spending some three or four delightful hours, the disciple
 came back to Calcutta that day along with the other visitors.
 
-</div>
+

@@ -2,15 +2,13 @@
 title: CCIV
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
 
-[←](203_christine.htm)  
-[←Chronology](../../volume_6/epistles_second_series/168_nivedita.htm)  
-[←Addressee](203_christine.htm)
+
 
 ## CCIV
 
@@ -60,4 +58,4 @@ V.
 [Addressee→](205_christina.htm)  
 [Chronology→](205_christina.htm)
 
-</div>
+

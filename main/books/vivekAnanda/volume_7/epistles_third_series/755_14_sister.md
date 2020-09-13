@@ -2,17 +2,13 @@
 title: XIV
 
 ---
-<div>
 
-[←](13_mrs_woods.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Epistles – Third
-Series](epistles_third_series_contents.htm) / [→](15_brother.htm)
+
+
 
   
 
-[«](../../volume_9/letters_fifth_series/013_mother.htm) Chronology
-[»](../../volume_8/epistles_fourth_series/018_sister_mary.htm)
+
 
 ## XIV
 
@@ -54,4 +50,4 @@ constant prayer of your brother.
 
 VIVEKANANDA.
 
-</div>
+

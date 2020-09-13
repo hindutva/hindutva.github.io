@@ -2,12 +2,9 @@
 title: THE PROBLEM OF MODERN INDIA AND ITS SOLUTION
 
 ---
-<div>
 
-[←](../writings_poems/peace.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-4](../volume_4_contents.htm) / [Translations:
-Prose](translation_prose_contents.htm) / [→](ramakrishna.htm)
+
+
 
   
 
@@ -306,4 +303,4 @@ To work we have the right, the result is in the hands of the Lord. We
 only pray: "O Thou Eternal Spirit, make us spiritual; O Thou Eternal
 Strength, make us strong; O Thou Mighty One, make us mighty."
 
-</div>
+

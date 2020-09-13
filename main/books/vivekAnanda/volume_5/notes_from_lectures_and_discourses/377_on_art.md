@@ -2,13 +2,9 @@
 title: ON ART
 
 ---
-<div>
 
-[←](who_is_a_real_guru.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Notes from Lectures and
-Discourses](notes_from_lectures_and_discourses_contents.htm)
-/ [→](on_language.htm)
+
+
 
   
 
@@ -40,4 +36,4 @@ The artistic faculty was highly developed in our Lord Shri Ramakrishna,
 and he used to say that without this faculty none can be truly
 spiritual.
 
-</div>
+

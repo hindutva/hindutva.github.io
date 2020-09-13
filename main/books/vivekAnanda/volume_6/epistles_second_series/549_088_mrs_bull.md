@@ -2,18 +2,14 @@
 title: LXXXVIII
 
 ---
-<div>
 
-[←](087_alberta.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Epistles – Second
-Series](epistles_second_series_contents.htm) / [→](089_mrs_bull.htm)
+
+
 
   
 
-[«](087_alberta.htm) Chronology
-[»](../../volume_8/epistles_fourth_series/061_friend.htm)  
-[«](086_mrs_bull.htm) Addressee [»](089_mrs_bull.htm)
+  
+
 
 ## LXXXVIII
 
@@ -53,4 +49,4 @@ I am yours, in the Lord,
 
 VIVEKANANDA.
 
-</div>
+

@@ -2,18 +2,13 @@
 title: MOHAMMED'S MESSAGE TO THE WORLD
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Notes of Lectures and
 Classes](notes_of_lectures_and_classes_contents.htm) /
 
-[←](christs_message_to_the_world.htm)
 
-## MOHAMMED'S MESSAGE TO THE WORLD
-
-(*New Discoveries*, Vol. 5, pp. 401-3. Cf. "Mohammed", *[Complete
-Works](../../volume_1/lectures_and_discourses/mohammed.htm)* , I.)
 
 *\[Excerpts of Ida Ansell's first transcript of Swami Vivekananda's San
 Francisco lecture delivered Sunday, March 25, 1900\]*
@@ -98,4 +93,4 @@ for the remainder of the lecture.\]*
 
 [→](class_lessons_in_meditation.htm)
 
-</div>
+

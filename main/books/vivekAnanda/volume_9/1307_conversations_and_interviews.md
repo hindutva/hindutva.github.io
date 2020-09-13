@@ -2,18 +2,12 @@
 title: CONVERSATIONS AND INTERVIEWS
 
 ---
-<div>
+
 
 [Home](../../index.htm) / [Complete-Works](../complete_works.htm) /
 [Volume 9](volume_9_contents.htm) /
 
-[←](writings_prose_and_poems/bhartriharis_verses.htm)
 
-## CONVERSATIONS AND INTERVIEWS
-
-FIRST MEETING WITH MADAME EMMA CALVE
-
-(*New Discoveries*, Vol. 1, pp. 484-86.)
 
 *\[The story of the first meeting of Swami Vivekananda and Madame Emma
 Calvé, as told in Calvé's autobiography, *My Life*\]*
@@ -486,4 +480,4 @@ before in India became Christian and Mohammedan and Vaishnava, by turn!
 
 [→](excerpts_from_sister_niveditas_book/excerpts_from_sister_niveditas_book_contents.htm)
 
-</div>
+

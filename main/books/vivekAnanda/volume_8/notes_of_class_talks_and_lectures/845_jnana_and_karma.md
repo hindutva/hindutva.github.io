@@ -2,13 +2,9 @@
 title: JNANA AND KARMA
 
 ---
-<div>
 
-[←](the_religion_of_love.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Notes of Class Talks and
-Lectures](notes_of_class_talks_and_lectures_contents.htm)
-/ [→](the_claims_of_vedanta.htm)
+
+
 
   
 
@@ -178,4 +174,4 @@ identification brings misery, because it brings desire. Thus the poor
 man sees gold, and identifies himself with the need of gold. Be the
 witness. *Learn never to react*.
 
-</div>
+

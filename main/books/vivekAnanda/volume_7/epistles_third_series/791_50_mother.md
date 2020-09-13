@@ -2,19 +2,14 @@
 title: L
 
 ---
-<div>
 
-[←](49_mother.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Epistles – Third
-Series](epistles_third_series_contents.htm) / [→](51_mr_leggett.htm)
+
+
 
   
 
-[«](../../volume_8/epistles_fourth_series/171_margot.htm) Chronology
-[»](../../volume_8/epistles_fourth_series/172_american_friend.htm)  
-[«](49_mother.htm) Addressee
-[»](../../volume_9/letters_fifth_series/180_mrs_leggett.htm)
+  
+
 
 ## L
 
@@ -49,4 +44,4 @@ Your son,
 
 VIVEKANANDA.
 
-</div>
+

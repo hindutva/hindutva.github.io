@@ -2,13 +2,9 @@
 title: A PREFACE TO THE IMITATION OF CHRIST
 
 ---
-<div>
 
-[←](cyclic_rest_and_change.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Writings:
-Prose](writings_prose_contents.htm)
-/ [→](../writings_poems/an_interesting_correspondence.htm)
+
+
 
   
 
@@ -89,4 +85,4 @@ I have tried to make the translation as literal as possible, but I
 cannot say how far I have succeeded. The allusions to the Bible in
 several passages are given in the footnotes.
 
-</div>
+

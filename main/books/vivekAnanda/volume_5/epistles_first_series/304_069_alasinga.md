@@ -2,17 +2,14 @@
 title: LXIX
 
 ---
-<div>
 
-[←](068_alasinga.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Epistles – First
-Series](epistles_first_series_contents.htm) / [→](070_indian_mirror.htm)
+
+
 
   
 
-[«](068_alasinga.htm) Chronology [»](070_indian_mirror.htm)  
-[«](068_alasinga.htm) Addressee [»](071_alasinga.htm)
+  
+
 
 ## LXIX
 
@@ -59,4 +56,4 @@ welcome for him in the *Brahmavadin*. All here send love.
 
 V.
 
-</div>
+

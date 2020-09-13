@@ -2,13 +2,9 @@
 title: 'THE BELUR MATH: AN APPEAL'
 
 ---
-<div>
 
-[←](the_message_of_divine_wisdom.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Writings: Prose and
-Poems](writings_prose_and_poems_contents.htm)
-/ [→](the_advaita_ashrama_himalayas.htm)
+
+
 
   
 
@@ -47,4 +43,4 @@ their sympathy practically by helping the cause.
 
 VIVEKANANDA.
 
-</div>
+

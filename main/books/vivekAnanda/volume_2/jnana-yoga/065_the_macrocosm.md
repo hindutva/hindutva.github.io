@@ -2,12 +2,9 @@
 title: 'THE COSMOS: THE MACROCOSM'
 
 ---
-<div>
 
-[←](the_freedom_of_the_soul.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-2](../volume_2_contents.htm) / [Jnana-Yoga](jnana-yoga_contents.htm)
-/ [→](the_microcosm.htm)
+
+
 
   
 
@@ -284,4 +281,4 @@ crutches, Thou art in everything. Thou art everything, O Lord." This is
 the only solution of the Cosmos that satisfies the human intellect. In
 one word, we are born of Him, we live in Him, and unto Him we return.
 
-</div>
+

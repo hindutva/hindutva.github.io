@@ -2,17 +2,13 @@
 title: VII
 
 ---
-<div>
 
-[←](06_sir.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Epistles – Third
-Series](epistles_third_series_contents.htm) / [→](08_adhyapakji.htm)
+
+
 
   
 
-[«](06_sir.htm) Chronology
-[»](../../volume_6/epistles_second_series/029_sir.htm)
+
 
 ## VII
 
@@ -43,4 +39,4 @@ VIVEKANANDA.
 PS. I am leaving this place tomorrow. Let me see which way destiny
 leads!
 
-</div>
+

@@ -2,18 +2,14 @@
 title: XXX
 
 ---
-<div>
 
-[←](029_gg.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Epistles – First
-Series](epistles_first_series_contents.htm) / [→](031_ole_bull.htm)
+
+
 
   
 
-[«](029_gg.htm) Chronology
-[»](../../volume_6/epistles_second_series/058_sarada.htm)  
-[«](027_alasinga.htm) Addressee [»](033_alasinga.htm)
+  
+
 
 ## XXX
 
@@ -70,4 +66,4 @@ Yours ever with blessings,
 
 VIVEKANANDA.
 
-</div>
+

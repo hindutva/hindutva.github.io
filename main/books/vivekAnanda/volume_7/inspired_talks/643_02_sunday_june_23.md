@@ -4,12 +4,9 @@ title: 'RECORDED BY MISS S. E. WALDO
   (A DISCIPLE)'
 
 ---
-<div>
 
-[←](01_wednesday_june_19.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Inspired
-Talks](inspired_talks_contents.htm) / [→](03_monday_june_24.htm)
+
+
 
   
 
@@ -69,4 +66,4 @@ was a tiny bubble, greater and greater ones came. Sometime, however, all
 will be bubbles and escape; but creation, ever new, will bring new water
 to go through the process all over again.
 
-</div>
+

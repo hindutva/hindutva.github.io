@@ -2,13 +2,9 @@
 title: THE PRACTICE OF RELIGION
 
 ---
-<div>
 
-[←](spirit_and_nature.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Notes of Class Talks and
-Lectures](notes_of_class_talks_and_lectures_contents.htm)
-/ [→](fragmentary_notes_on_the_ramayana.htm)
+
+
 
   
 
@@ -55,4 +51,4 @@ Do not make the lamp burn fast; let it burn slowly.
 
 Proper diet means simple diet, not highly spiced.
 
-</div>
+

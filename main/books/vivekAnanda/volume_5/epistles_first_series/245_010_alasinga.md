@@ -2,18 +2,14 @@
 title: X
 
 ---
-<div>
 
-[←](009_sharat.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Epistles – First
-Series](epistles_first_series_contents.htm) / [→](011_alasinga.htm)
+
+
 
   
 
-[«](../../volume_7/epistles_third_series/21_adhyapakji.htm) Chronology
-[»](../../volume_9/letters_fifth_series/021_mother.htm)  
-[«](008_alasinga.htm) Addressee [»](011_alasinga.htm)
+  
+
 
 ## X
 
@@ -100,4 +96,4 @@ Glory unto the Lord! . . .
 Yours affectionately,  
 VIVEKANANDA.
 
-</div>
+

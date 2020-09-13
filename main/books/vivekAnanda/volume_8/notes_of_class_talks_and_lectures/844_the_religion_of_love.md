@@ -2,13 +2,9 @@
 title: THE RELIGION OF LOVE
 
 ---
-<div>
 
-[←](christianity_in_india.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Notes of Class Talks and
-Lectures](notes_of_class_talks_and_lectures_contents.htm)
-/ [→](jnana_and_karma.htm)
+
+
 
   
 
@@ -154,4 +150,4 @@ Again he told how the same saint was bitten by a cobra, and when,
 towards nightfall he recovered, he said, "A messenger came to me from
 the Beloved."
 
-</div>
+

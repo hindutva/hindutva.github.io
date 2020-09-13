@@ -2,19 +2,14 @@
 title: XL
 
 ---
-<div>
 
-[←](039_alasinga.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Epistles – First
-Series](epistles_first_series_contents.htm) / [→](041_friend.htm)
+
+
 
   
 
-[«](../../volume_6/epistles_second_series/066_mrs_bull.htm) Chronology
-[»](../../volume_9/letters_fifth_series/056_mother.htm)  
-[«](039_alasinga.htm) Addressee
-[»](../../volume_8/epistles_fourth_series/043_alasinga.htm)
+  
+
 
 ## XL
 
@@ -42,4 +37,4 @@ Ever yours with blessings,
 
 VIVEKANANDA.
 
-</div>
+

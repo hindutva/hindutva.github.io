@@ -2,13 +2,9 @@
 title: WORK WITHOUT MOTIVE
 
 ---
-<div>
 
-[←](work_is_worship.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Notes from Lectures and
-Discourses](notes_from_lectures_and_discourses_contents.htm)
-/ [→](sadhanas_or_preparations_for_higher_life.htm)
+
+
 
   
 
@@ -101,4 +97,4 @@ world. To work without motive, to work unattached, brings the highest
 bliss and freedom. This secret of Karma-Yoga is taught by the Lord Shri
 Krishna in the Gita.
 
-</div>
+

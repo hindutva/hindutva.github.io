@@ -2,18 +2,14 @@
 title: LXVI
 
 ---
-<div>
 
-[←](065_blessed_and_beloved.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Epistles – First
-Series](epistles_first_series_contents.htm) / [→](067_alasinga.htm)
+
+
 
   
 
-[«](../../volume_6/epistles_second_series/107_mrs_bull.htm) Chronology
-[»](../../volume_8/epistles_fourth_series/084_friend.htm)  
-[«](062_dr_nanjunda_rao.htm) Addressee
+  
+ Addressee
 
 ## LXVI
 
@@ -65,4 +61,4 @@ Yours with all love and blessings,
 
 VIVEKANANDA.
 
-</div>
+

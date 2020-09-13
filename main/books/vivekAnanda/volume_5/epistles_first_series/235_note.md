@@ -2,12 +2,9 @@
 title: NOTE
 
 ---
-<div>
 
-[←](../../volume_4/translation_poems/a_song_i_sing_to_thee.htm)
-[Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
-/ [Volume 5](../volume_5_contents.htm) / [Epistles — First
-Series](epistles_first_series_contents.htm) / [→](001_fakir.htm)
+
+
 
   
 
@@ -20,4 +17,4 @@ readers, these volumes use the more familiar name of Vivekananda.
 
 PUBLISHER
 
-</div>
+

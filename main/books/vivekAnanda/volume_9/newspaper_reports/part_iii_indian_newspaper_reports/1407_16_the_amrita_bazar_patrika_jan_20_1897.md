@@ -2,7 +2,7 @@
 title: VIVEKANANDA IN THE WEST
 
 ---
-<div>
+
 
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
@@ -10,11 +10,7 @@ title: VIVEKANANDA IN THE WEST
 Reports](../newspaper_reports_contents.htm) / [Indian Newspaper
 Reports](indian_newspaper_contents.htm) /
 
-[←](15_the_amrita_bazar_patrika_jan_8_1897.htm)
 
-## VIVEKANANDA IN THE WEST
-
-(*Vivekananda in Indian Newspapers*, p. 312.)
 
 \[*The Amrita Bazar Patrika*, January 20, 1897\]
 
@@ -51,4 +47,4 @@ of his religion, his religion is a myth.
 
 [→](17_the_indian_mirror_feb_24_1898.htm)
 
-</div>
+

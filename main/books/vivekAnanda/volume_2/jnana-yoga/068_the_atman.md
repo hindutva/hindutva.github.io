@@ -2,12 +2,9 @@
 title: THE ATMAN
 
 ---
-<div>
 
-[←](immortality.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-2](../volume_2_contents.htm) / [Jnana-Yoga](jnana-yoga_contents.htm)
-/ [→](the_atman_its_bondage_and_freedom.htm)
+
+
 
   
 
@@ -480,4 +477,4 @@ All will come to truth in the long run. "When all the desires of the
 heart will be vanquished, then this very mortal will become immortal" —
 then the very man will become God.
 
-</div>
+

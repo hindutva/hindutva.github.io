@@ -2,18 +2,13 @@
 title: LXXXI
 
 ---
-<div>
 
-[←](080_dear.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Epistles – Fourth
-Series](epistles_fourth_series_contents.htm)
-/ [→](082_blessed_and_beloved.htm)
+
+
 
   
 
-[«](../../volume_5/epistles_first_series/064_alasinga.htm) Chronology
-[»](082_blessed_and_beloved.htm)
+
 
 ## LXXXI
 
@@ -124,4 +119,4 @@ Yours with blessings,
 
 VIVEKANANDA.
 
-</div>
+

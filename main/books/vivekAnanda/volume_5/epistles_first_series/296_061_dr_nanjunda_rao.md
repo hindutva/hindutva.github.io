@@ -2,20 +2,14 @@
 title: LXI
 
 ---
-<div>
 
-[←](060_alasinga.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Epistles – First
-Series](epistles_first_series_contents.htm)
-/ [→](062_dr_nanjunda_rao.htm)
+
+
 
   
 
-[«](../../volume_9/letters_fifth_series/090_christina.htm) Chronology
-[»](../../volume_6/epistles_second_series/096_mrs_bull.htm)  
-[«](../../volume_6/epistles_second_series/051_dear_and_beloved.htm)
-Addressee [»](062_dr_nanjunda_rao.htm)
+  
+
 
 ## LXI
 
@@ -59,4 +53,4 @@ Yours affectionately,
 
 VIVEKANANDA.
 
-</div>
+

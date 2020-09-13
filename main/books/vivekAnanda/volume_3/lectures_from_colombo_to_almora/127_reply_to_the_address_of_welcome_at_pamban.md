@@ -2,13 +2,9 @@
 title: REPLY TO THE ADDRESS OF WELCOME AT PAMBAN
 
 ---
-<div>
 
-[←](vedantism.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-3](../volume_3_contents.htm) / [Lectures from Colombo to
-Almora](lectures_from_colombo_to_almora_contents.htm)
-/ [→](address_at_the_rameshwaram_temple_on_real_worship.htm)
+
+
 
   
 
@@ -143,4 +139,4 @@ to do more and more work. I wish there were half a dozen more such Rajas
 to take interest in our dear motherland and work for her amelioration in
 the spiritual line.
 
-</div>
+

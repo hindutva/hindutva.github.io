@@ -2,12 +2,9 @@
 title: '"AND LET SHYAMA DANCE THERE"'
 
 ---
-<div>
 
-[←](a_hymn_to_the_divinity_of_shri_ramakrishna.htm)
-[Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
-/ [Volume 4](../volume_4_contents.htm) / [Translations:
-Poems](translation_poems_contents.htm) / [→](a_song_i_sing_to_thee.htm)
+
+
 
   
 
@@ -161,4 +158,4 @@ A burning-ground.
 9.  [^](#txt9)The cremation-ground.
 10. [^](#txt10)The Dark One, Kali.
 
-</div>
+

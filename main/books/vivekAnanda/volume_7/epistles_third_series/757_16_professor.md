@@ -2,18 +2,14 @@
 title: XVI
 
 ---
-<div>
 
-[←](15_brother.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Epistles – Third
-Series](epistles_third_series_contents.htm) / [→](17_sister.htm)
+
+
 
   
 
-[«](../../volume_9/letters_fifth_series/016_mother.htm) Chronology
-[»](17_sister.htm)  
-[«](12_adhyapakji.htm) Addressee [»](19_adhyapakji.htm)
+  
+
 
 ## XVI
 
@@ -34,4 +30,4 @@ Yours truly,
 
 VIVEKANANDA.
 
-</div>
+

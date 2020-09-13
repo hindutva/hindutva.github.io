@@ -2,12 +2,9 @@
 title: IN MANY TONGUES
 
 ---
-<div>
 
-[←](nyt_09101893.htm) [Home](../../index.htm) /
-[Complete-Works](../complete_works.htm) /
-[Unpublished](unpublished_contents.htm) /
-[→](iowastateregister12031893.htm)
+
+
 
   
 
@@ -73,4 +70,4 @@ strongly on every one that each was his brother’s keeper. That was the
 whole theory of humanity. If Christ had cried with Cain: “Am I my
 brother’s keeper?” we would still be walking in darkness.
 
-</div>
+

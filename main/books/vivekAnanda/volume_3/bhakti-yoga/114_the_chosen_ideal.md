@@ -2,12 +2,9 @@
 title: THE CHOSEN IDEAL
 
 ---
-<div>
 
-[←](worship_of_substitutes_and_images.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-3](../volume_3_contents.htm) / [Bhakti-Yoga](bhakti-yoga_contents.htm)
-/ [→](the_method_and_the_means.htm)
+
+
 
   
 
@@ -90,4 +87,4 @@ all sides, till it covers the entire field of religion. Thus will the
 true devotee realise that He who was his own ideal in life is worshipped
 in all ideals by all sects, under all names, and through all forms.
 
-</div>
+

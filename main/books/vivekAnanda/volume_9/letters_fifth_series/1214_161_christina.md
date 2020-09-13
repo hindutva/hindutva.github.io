@@ -2,15 +2,13 @@
 title: CLXI
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
 
-[←](160_brahmananda.htm)  
-[←Chronology](../../volume_8/epistles_fourth_series/153_mary.htm)  
-[←Addressee](159_christina.htm)
+
 
 ## CLXI
 
@@ -76,4 +74,4 @@ VIVEKANANDA.
 [Addressee→](164_christina.htm)  
 [Chronology→](../../volume_8/epistles_fourth_series/154_dhira_mata.htm)
 
-</div>
+

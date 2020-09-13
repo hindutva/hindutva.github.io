@@ -2,17 +2,14 @@
 title: CIV
 
 ---
-<div>
 
-[←](103_rakhal.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Epistles – Fourth
-Series](epistles_fourth_series_contents.htm) / [→](105_haripada.htm)
+
+
 
   
 
-[«](103_rakhal.htm) Chronology [»](105_haripada.htm)  
-[«](093_sudhir.htm) Addressee
+  
+ Addressee
 
 ## CIV
 
@@ -64,4 +61,4 @@ Yours,
 
 VIVEKANANDA.
 
-</div>
+

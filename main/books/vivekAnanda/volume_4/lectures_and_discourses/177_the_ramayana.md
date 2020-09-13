@@ -2,13 +2,9 @@
 title: THE RAMAYANA
 
 ---
-<div>
 
-[←](../addresses_on_bhakti-yoga/the_ishta.htm)
-[Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
-/ [Volume 4](../volume_4_contents.htm) / [Lectures and
-Discourses](lectures_and_discourses_contents.htm)
-/ [→](the_mahabharata.htm)
+
+
 
   
 
@@ -457,4 +453,4 @@ to quarrel over different ideals, but to show them that the goal is the
 same in both cases, however opposite it may appear. As we wend our way
 through this mazy vale of life, let us bid each other Godspeed.
 
-</div>
+

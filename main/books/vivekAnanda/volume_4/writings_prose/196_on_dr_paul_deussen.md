@@ -2,12 +2,9 @@
 title: ON DR. PAUL DEUSSEN
 
 ---
-<div>
 
-[←](reincarnation.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-4](../volume_4_contents.htm) / [Writings:
-Prose](writings_prose_contents.htm) / [→](on_professor_max_muller.htm)
+
+
 
   
 
@@ -185,4 +182,4 @@ denouncers who see no good in us and in our history, and will, if they
 can, at once dynamite all the social and spiritual organizations of our
 ancient land of religion and philosophy.
 
-</div>
+

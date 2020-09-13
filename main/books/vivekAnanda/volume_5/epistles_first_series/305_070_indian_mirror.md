@@ -2,17 +2,13 @@
 title: LXX
 
 ---
-<div>
 
-[←](069_alasinga.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Epistles – First
-Series](epistles_first_series_contents.htm) / [→](071_alasinga.htm)
+
+
 
   
 
-[«](069_alasinga.htm) Chronology
-[»](../../volume_9/letters_fifth_series/100_miss_noble.htm)
+
 
 ## LXX
 
@@ -55,4 +51,4 @@ all our misery, our poverty, and degradation, the heart beats as warm as
 of yore, when the "wealth of Ind" was the proverb of nations and India
 was the land of the "Aryas".
 
-</div>
+

@@ -2,13 +2,9 @@
 title: IS INDIA A BENIGHTED COUNTRY?
 
 ---
-<div>
 
-[←](on_art_in_india.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-4](../volume_4_contents.htm) / [Lectures and
-Discourses](lectures_and_discourses_contents.htm)
-/ [→](the_claims_of_religion.htm)
+
+
 
   
 
@@ -162,4 +158,4 @@ hour or two of other men's speeches, to listen to Vivekananda for
 fifteen minutes. The Chairman knew the old rule of keeping the best
 until the last.
 
-</div>
+

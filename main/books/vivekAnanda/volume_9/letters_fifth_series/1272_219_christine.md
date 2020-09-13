@@ -2,15 +2,13 @@
 title: CCXIX
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
 
-[←](218_margo.htm)  
-[←Chronology](218_margo.htm)  
-[←Addressee](214_christine.htm)
+
 
 ## CCXIX
 
@@ -45,4 +43,4 @@ VIVEKANANDA.
 [Addressee→](222_christine.htm)  
 [Chronology→](220_mother.htm)
 
-</div>
+

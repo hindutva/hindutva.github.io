@@ -2,12 +2,9 @@
 title: TO AN EARLY VIOLET
 
 ---
-<div>
 
-[←](the_living_god.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Writings:
-Poems](writings_poems_contents.htm) / [→](to_my_own_soul.htm)
+
+
 
   
 
@@ -30,4 +27,4 @@ Change not thy nature, gentle bloom,
 But ever pour thy sweet perfume  
         Unasked, unstinted, sure!
 
-</div>
+

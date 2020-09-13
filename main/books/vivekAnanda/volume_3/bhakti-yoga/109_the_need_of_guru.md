@@ -2,13 +2,9 @@
 title: THE NEED OF GURU
 
 ---
-<div>
 
-[←](spiritual_realisation_the_aim_of_bhakti-yoga.htm)
-[Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
-/ [Volume 3](../volume_3_contents.htm)
-/ [Bhakti-Yoga](bhakti-yoga_contents.htm)
-/ [→](qualifications_of_the_aspirant_and_teacher.htm)
+
+
 
   
 
@@ -102,4 +98,4 @@ of these. Every one wants to be a teacher, every beggar wants to make a
 gift of a million dollars! Just as these beggars are ridiculous, so are
 these teachers.
 
-</div>
+

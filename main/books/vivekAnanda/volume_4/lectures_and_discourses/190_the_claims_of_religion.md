@@ -2,13 +2,9 @@
 title: THE CLAIMS OF RELIGION
 
 ---
-<div>
 
-[←](is_india_a_benighted_country.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-4](../volume_4_contents.htm) / [Lectures and
-Discourses](lectures_and_discourses_contents.htm)
-/ [→](concentration.htm)
+
+
 
   
 
@@ -472,4 +468,4 @@ on the authority of your teachers and elders. Have deliberation and
 analyse, and when the result agrees with reason and conduces to the good
 of one and all, accept it and live up to it."
 
-</div>
+

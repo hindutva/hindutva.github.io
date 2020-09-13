@@ -2,13 +2,9 @@
 title: II
 
 ---
-<div>
 
-[←](i_sharat_chakravarty.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Conversations and
-Dialogues](conversations_and_dialogues_contents.htm)
-/ [→](iii_sharat_chakravarty.htm)
+
+
 
   
 
@@ -296,4 +292,4 @@ the next day to see Swamiji.
     not only to the first verse quoted but also to the whole description
     which follows.
 
-</div>
+

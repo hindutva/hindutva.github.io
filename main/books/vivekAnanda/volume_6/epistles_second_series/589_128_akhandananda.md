@@ -2,17 +2,14 @@
 title: CXXVIII
 
 ---
-<div>
 
-[←](127_rakhal.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Epistles – Second
-Series](epistles_second_series_contents.htm) / [→](129_rakhal.htm)
+
+
 
   
 
-[«](127_rakhal.htm) Chronology [»](129_rakhal.htm)  
-[«](085_akhandananda.htm) Addressee [»](131_akhandananda.htm)
+  
+
 
 ## CXXVIII
 
@@ -62,4 +59,4 @@ zenana lady?
 Yours with all love,  
 VIVEKANANDA.
 
-</div>
+

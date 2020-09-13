@@ -2,17 +2,13 @@
 title: REPLY TO THE CALCUTTA ADDRESS
 
 ---
-<div>
 
-[←](our_duty_to_the_masses.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-4](../volume_4_contents.htm) / [Writings:
-Prose](writings_prose_contents.htm) / [→](to_my_brave_boys.htm)
+
+
 
   
 
-[«](../../volume_8/epistles_fourth_series/034_diwanji.htm) Chronology
-[»](../../volume_9/letters_fifth_series/044_mother.htm)
+
 
 ## REPLY TO THE CALCUTTA ADDRESS
 
@@ -71,4 +67,4 @@ that the future will be more glorious still.
 
 May Shankara keep us steady in purity, patience, and perseverance!
 
-</div>
+

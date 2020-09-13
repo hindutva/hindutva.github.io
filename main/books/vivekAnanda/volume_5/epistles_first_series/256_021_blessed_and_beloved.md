@@ -2,19 +2,14 @@
 title: XXI
 
 ---
-<div>
 
-[←](020_sister.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Epistles – First
-Series](epistles_first_series_contents.htm) / [→](022_alasinga.htm)
+
+
 
   
 
-[«](../../volume_9/letters_fifth_series/041_miss_thursby.htm) Chronology
-[»](../../volume_6/epistles_second_series/050_mrs_bull.htm)  
-[«](018_alasinga.htm) Addressee
-[»](../../volume_4/writings_prose/to_my_brave_boys.htm)
+  
+
 
 ## XXI
 
@@ -97,4 +92,4 @@ VIVEKANANDA.
 PS. Take care of these two things — love of power and jealousy.
 Cultivate always "faith in yourself".
 
-</div>
+

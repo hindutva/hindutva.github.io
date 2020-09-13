@@ -2,17 +2,13 @@
 title: LII
 
 ---
-<div>
 
-[←](51_mr_leggett.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Epistles – Third
-Series](epistles_third_series_contents.htm) / [→](53_alberta.htm)
+
+
 
   
 
-[«](../../volume_8/epistles_fourth_series/178_mary.htm) Chronology
-[»](../../volume_8/epistles_fourth_series/179_nivedita.htm)
+
 
 ## LII
 
@@ -47,4 +43,4 @@ A heap of loving pats on the head to Tricks.
 
 V.
 
-</div>
+

@@ -2,15 +2,13 @@
 title: CL
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
 
-[←](149_christina.htm)  
-[←Chronology](../../volume_6/epistles_second_series/148_margot.htm)  
-[←Addressee](149_christina.htm)
+
 
 ## CL
 
@@ -44,4 +42,4 @@ My eternal love and blessings to Mrs. Funkey \[Funke\].
 [Addressee→](151_christina.htm)  
 [Chronology→](151_christina.htm)
 
-</div>
+

@@ -2,19 +2,14 @@
 title: CXXXIII
 
 ---
-<div>
 
-[←](132_akhandananda.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Epistles – Second
-Series](epistles_second_series_contents.htm) / [→](134_mother.htm)
+
+
 
   
 
-[«](../../volume_5/epistles_first_series/080_joe.htm) Chronology
-[»](../../volume_8/epistles_fourth_series/101_shashi.htm)  
-[«](../../volume_9/letters_fifth_series/112_mrs_bull.htm) Addressee
-[»](../../volume_9/letters_fifth_series/120_dhira_mata.htm)
+  
+
 
 ## CXXXIII
 
@@ -65,4 +60,4 @@ if you meet anything better, that will be unexpected.
 Ever yours etc.,  
 VIVEKANANDA.
 
-</div>
+

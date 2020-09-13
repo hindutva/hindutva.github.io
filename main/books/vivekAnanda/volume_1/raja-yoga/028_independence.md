@@ -2,12 +2,9 @@
 title: INDEPENDENCE
 
 ---
-<div>
 
-[←](powers.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-1](../complete_works_v1_contents.htm)
-/ [Raja-Yoga](raja-yoga_contents.htm) / [→](appendix.htm)
+
+
 
   
 
@@ -533,4 +530,4 @@ flowing into the ocean of perfection, of self-realisation.
 Glory unto those who have realised their own nature. May their blessings
 be on us all!
 
-</div>
+

@@ -2,7 +2,7 @@
 title: THE HINDOO OPTIMISTIC
 
 ---
-<div>
+
 
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
@@ -10,21 +10,7 @@ title: THE HINDOO OPTIMISTIC
 Reports](../newspaper_reports_contents.htm) / [American Newspaper
 Reports](american_newspaper_contents.htm) /
 
-[←](36_washington_times_oct_29_1894.htm)
 
-## THE HINDOO OPTIMISTIC
-
-(Ray and Wanda Ellis, "Swami Vivekananda in Washington D.C., *The
-Vedanta Kesari*, 1991, pp. 369-70.)
-
-\[*Washington Times*, November 2, 1894\]
-
-Vive Kananda Compares Religions and Talks of
-
-Reincarnation
-
-(The untranscribed lecture advertised as "Karma and Reincarnation",
-delivered at the People's Church, Sunday, October 28, 1894.)
 
 Optimism is the feature of the belief of the Aryas or Hindoos as
 distinguished from Western religions, according to the Brahman monk,
@@ -53,4 +39,4 @@ better and be happy." . . .
 
 [→](38_baltimore_news_nov_3_1894.htm)
 
-</div>
+

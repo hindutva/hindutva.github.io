@@ -4,12 +4,9 @@ title: 'RECORDED BY MISS S. E. WALDO
   (A DISCIPLE)'
 
 ---
-<div>
 
-[←](42_sunday_august_4.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Inspired
-Talks](inspired_talks_contents.htm) / [→](44_tuesday_august_6.htm)
+
+
 
   
 
@@ -147,4 +144,4 @@ masses; but really there is nothing in the external.
 "As the spider throws her web out of herself and draws it in, even so
 this universe is thrown out and drawn in by God."
 
-</div>
+

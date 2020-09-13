@@ -2,17 +2,13 @@
 title: CXXV
 
 ---
-<div>
 
-[←](124_sir.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Epistles – Second
-Series](epistles_second_series_contents.htm) / [→](126_miss_noble.htm)
+
+
 
   
 
-[«](../../volume_5/epistles_first_series/076_mr_.htm) Chronology
-[»](../../volume_8/epistles_fourth_series/094_marie.htm)  
+  
 Addressee [»](../../volume_7/epistles_third_series/40_shuddhananda.htm)
 
 ## CXXV
@@ -131,4 +127,4 @@ VIVEKANANDA.
 1.  [^](#txt1)यावानार्थ उदपाने सर्वतः संप्लुतोदके।  
     तावान्सर्वेषु वेदेषु ब्राह्मणस्य विजानत: (Gita, II.46.)
 
-</div>
+

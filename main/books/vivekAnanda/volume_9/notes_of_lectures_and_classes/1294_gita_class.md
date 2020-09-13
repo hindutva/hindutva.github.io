@@ -2,17 +2,13 @@
 title: GITA CLASS
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Notes of Lectures and
 Classes](notes_of_lectures_and_classes_contents.htm) /
 
-[←](the_gita_iii.htm)
 
-## GITA CLASS
-
-(*New Discoveries*, Vol. 6, pp. 275-76.)
 
 *\[Sister Nivedita's notes of a New York Bhagavad-Gitâ class, recorded
 in a June 16, 1900 letter to Miss Josephine MacLeod\]*
@@ -45,4 +41,4 @@ right of the *whole*, in all its parts — to its own differing ideals.
 
 [→](remarks_from_various_lectures.htm)
 
-</div>
+

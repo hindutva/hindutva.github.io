@@ -2,11 +2,9 @@
 title: unpublishediowastateregister12031893
 
 ---
-<div>
 
-[←](freeborncountyreporter_09201893.htm) [Home](../../index.htm) /
-[Complete-Works](../complete_works.htm) /
-[Unpublished](unpublished_contents.htm) / [→](indiannation_04091894.htm)
+
+
 
   
 
@@ -29,4 +27,4 @@ and unpretending, always grateful for the many kindnesses that were
 shown him. Vivekananda and his cause found a place in the hearts of all
 true Christians.
 
-</div>
+

@@ -2,13 +2,9 @@
 title: THE STORY OF PRAHLADA
 
 ---
-<div>
 
-[←](the_story_of_jada_bharata.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-4](../volume_4_contents.htm) / [Lectures and
-Discourses](lectures_and_discourses_contents.htm)
-/ [→](the_great_teachers_of_the_world.htm)
+
+
 
   
 
@@ -149,4 +145,4 @@ Prahlada, the Lord Vishnu disappeared. Then the gods headed by Brahma
 installed Prahlada on the throne of the Daityas and returned to their
 respective spheres.
 
-</div>
+

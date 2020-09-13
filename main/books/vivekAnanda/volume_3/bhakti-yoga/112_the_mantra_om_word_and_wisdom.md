@@ -2,12 +2,9 @@
 title: 'THE MANTRA: OM: WORD AND WISDOM'
 
 ---
-<div>
 
-[←](incarnate_teachers_and_incarnation.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-3](../volume_3_contents.htm) / [Bhakti-Yoga](bhakti-yoga_contents.htm)
-/ [→](worship_of_substitutes_and_images.htm)
+
+
 
   
 
@@ -103,4 +100,4 @@ represent the Khanda or the differentiated views of the same Being; and
 they are all helpful to divine meditation and the acquisition of true
 knowledge.
 
-</div>
+

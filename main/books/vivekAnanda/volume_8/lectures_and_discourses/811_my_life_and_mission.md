@@ -2,13 +2,9 @@
 title: MY LIFE AND MISSION
 
 ---
-<div>
 
-[←](women_of_india.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Lectures and
-Discourses](lectures_and_discourses_contents.htm)
-/ [→](buddhas_message.htm)
+
+
 
   
 
@@ -598,4 +594,4 @@ She never dictates to us. So it is quite safe.
 
 That part has to be accomplished.
 
-</div>
+

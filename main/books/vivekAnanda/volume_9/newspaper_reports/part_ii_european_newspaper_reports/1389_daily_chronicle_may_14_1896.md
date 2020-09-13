@@ -2,7 +2,7 @@
 title: EDUCATION
 
 ---
-<div>
+
 
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
@@ -10,11 +10,7 @@ title: EDUCATION
 Reports](../newspaper_reports_contents.htm) / [European Newspaper
 Reports](european_newspaper_contents.htm) /
 
-[←](the_queen_nov_23_1895.htm)
 
-## EDUCATION
-
-(*New Discoveries*, Vol. 4, p. 157.)
 
 \[*Daily Chronicle*, May 14, 1896\]
 
@@ -37,4 +33,4 @@ the young students should be pure, and this purity must be taught them.
 
 [→](light_jul_4_1896.htm)
 
-</div>
+

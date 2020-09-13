@@ -2,13 +2,9 @@
 title: I AM THAT I AM
 
 ---
-<div>
 
-[←](the_people_of_india.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Notes of Class Talks and
-Lectures](notes_of_class_talks_and_lectures_contents.htm)
-/ [→](unity.htm)
+
+
 
   
 
@@ -187,4 +183,4 @@ fullest consciousness of myself — I know that I am the infinite spirit,
 the master of nature, not its slave. Beyond all differentiation and
 combination, beyond space, time and causation, I am that I am.
 
-</div>
+

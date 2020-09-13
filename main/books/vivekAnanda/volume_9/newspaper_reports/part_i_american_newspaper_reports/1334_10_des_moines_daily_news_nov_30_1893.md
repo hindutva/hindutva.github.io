@@ -2,7 +2,7 @@
 title: A PRAYER MEETING
 
 ---
-<div>
+
 
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
@@ -10,11 +10,7 @@ title: A PRAYER MEETING
 Reports](../newspaper_reports_contents.htm) / [American Newspaper
 Reports](american_newspaper_contents.htm) /
 
-[←](09_iowa_state_register_nov_30_1893.htm)
 
-## A PRAYER MEETING
-
-(*New Discoveries*, Vol. 1, p. 207.)
 
 \[*Des Moines Daily News*, November 30, 1893\]
 
@@ -28,4 +24,4 @@ he says.
 
 [→](11_daily_iowa_capitol_nov_30_1893.htm)
 
-</div>
+

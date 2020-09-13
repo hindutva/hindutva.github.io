@@ -2,12 +2,9 @@
 title: PRATYAHARA AND DHARANA
 
 ---
-<div>
 
-[←](the_control_of_psychic_prana.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-1](../complete_works_v1_contents.htm) /
-[Raja-Yoga](raja-yoga_contents.htm) / [→](dhyana_and_samadhi.htm)
+
+
 
   
 
@@ -241,4 +238,4 @@ perseverance, tremendous will. "I will drink the ocean," says the
 persevering soul, "at my will mountains will crumble up." Have that sort
 of energy, that sort of will, work hard, and you will reach the goal.
 
-</div>
+

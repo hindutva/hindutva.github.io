@@ -2,13 +2,9 @@
 title: STEPS TO REALISATION
 
 ---
-<div>
 
-[←](steps_of_hindu_philosophic_thought.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-1](../complete_works_v1_contents.htm) / [Lectures and
-Discourses](lectures_and_discourses_contents.htm)
-/ [→](vedanta_and_privilege.htm)
+
+
 
   
 
@@ -375,4 +371,4 @@ projected, will come back to the Father of all lives. "From whom all
 beings are projected, in whom all live, and unto whom they all return;
 that is God."
 
-</div>
+

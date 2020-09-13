@@ -2,17 +2,13 @@
 title: LXXXI
 
 ---
-<div>
 
-[←](080_joe.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Epistles – First
-Series](epistles_first_series_contents.htm) / [→](082_m.htm)
+
+
 
   
 
-[«](../../volume_6/epistles_second_series/137_rakhal.htm) Chronology
-[»](../../volume_8/epistles_fourth_series/111_rakhal.htm)  
+  
 Addressee [»](../../volume_9/letters_fifth_series/121_jagmohan.htm)
 
 ## LXXXI
@@ -37,4 +33,4 @@ Yours with blessings,
 
 VIVEKANANDA.
 
-</div>
+

@@ -2,13 +2,9 @@
 title: THE WAY TO BLESSEDNESS
 
 ---
-<div>
 
-[←](the_open_secret.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-2](../volume_2_contents.htm) / [Practical Vedanta and other
-lectures](practical_vedanta_and_other_lectures_contents.htm)
-/ [→](yajnavalkya_and_maitreyi.htm)
+
+
 
   
 
@@ -288,4 +284,4 @@ realised that "I am He, I am the Self of the universe, I am eternally
 blessed, eternally free" — then will come real love, fear will vanish,
 and all misery cease.
 
-</div>
+

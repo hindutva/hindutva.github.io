@@ -2,13 +2,9 @@
 title: HINDU CIVILISATION
 
 ---
-<div>
 
-[←](reincarnation.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-3](../volume_3_contents.htm) / [Reports in American
-Newspapers](reports_in_american_newspapers_contents.htm)
-/ [→](an_interesting_lecture.htm)
+
+
 
   
 
@@ -49,4 +45,4 @@ than much that was said.
 reason or another, did not always give Swamiji an enthusiastic
 reception.)
 
-</div>
+

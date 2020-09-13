@@ -2,17 +2,13 @@
 title: XLV
 
 ---
-<div>
 
-[←](044_sisters.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Epistles – Second
-Series](epistles_second_series_contents.htm) / [→](046_mother_sara.htm)
+
+
 
   
 
-[«](044_sisters.htm) Chronology
-[»](../../volume_9/letters_fifth_series/026_mother.htm)  
+  
 Addressee [»](056_dear_and_beloved.htm)
 
 ## XLV
@@ -168,4 +164,4 @@ want an organisation. Off with laziness. Spread! Spread! Run like fire
 to all places. Do not depend upon me. Whether I live or die, go on
 spreading, yourselves.
 
-</div>
+

@@ -2,13 +2,9 @@
 title: volume 7/translation of writingsnote
 
 ---
-<div>
 
-[←](../conversations_and_dialogues/tdt_xxxv.htm)
-[Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
-/ [Volume 7](../volume_7_contents.htm) / [Translation of
-Writings](translation_of_writings_contents.htm)
-/ [→](memoirs_of_european_travel_i.htm)
+
+
 
   
 
@@ -26,4 +22,4 @@ These were originally published in the Udbodhan.
 
 EDITOR.
 
-</div>
+

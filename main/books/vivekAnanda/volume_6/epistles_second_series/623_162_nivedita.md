@@ -2,19 +2,14 @@
 title: CLXII
 
 ---
-<div>
 
-[←](161_nivedita.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Epistles – Second
-Series](epistles_second_series_contents.htm) / [→](163_mother.htm)
+
+
 
   
 
-[«](161_nivedita.htm) Chronology
-[»](../../volume_8/epistles_fourth_series/192_hari.htm)  
-[«](161_nivedita.htm) Addressee
-[»](../../volume_9/letters_fifth_series/188_sister_nivedita.htm)
+  
+
 
 ## CLXII
 
@@ -61,4 +56,4 @@ only I am sure.
 Yours etc.,  
 VIVEKANANDA.
 
-</div>
+

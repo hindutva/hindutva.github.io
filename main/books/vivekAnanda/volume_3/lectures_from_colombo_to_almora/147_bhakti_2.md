@@ -2,13 +2,9 @@
 title: BHAKTI
 
 ---
-<div>
 
-[←](the_common_bases_of_hinduism.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-3](../volume_3_contents.htm) / [Lectures from Colombo to
-Almora](lectures_from_colombo_to_almora_contents.htm)
-/ [→](the_vedanta.htm)
+
+
 
   
 
@@ -242,4 +238,4 @@ forces as gravitation and so on. It was everywhere, in every atom,
 manifesting everywhere. It was that infinite love, the only motive power
 of this universe, visible everywhere, and this was God Himself.\]
 
-</div>
+

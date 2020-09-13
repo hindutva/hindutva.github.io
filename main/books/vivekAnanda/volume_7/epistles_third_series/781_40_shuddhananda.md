@@ -2,19 +2,14 @@
 title: XL
 
 ---
-<div>
 
-[←](39_mrs_bull.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Epistles – Third
-Series](epistles_third_series_contents.htm) / [→](41_miss_noble.htm)
+
+
 
   
 
-[«](../../volume_8/epistles_fourth_series/097_joe_joe.htm) Chronology
-[»](../../volume_8/epistles_fourth_series/098_rakhal.htm)  
-[«](../../volume_6/epistles_second_series/125_shuddhananda.htm)
-Addressee [»](../../volume_8/epistles_fourth_series/093_sudhir.htm)
+  
+
 
 ## XL
 
@@ -106,4 +101,4 @@ With love and blessings,
 
 VIVEKANANDA.
 
-</div>
+

@@ -2,13 +2,9 @@
 title: WORK IS WORSHIP
 
 ---
-<div>
 
-[←](on_fanaticism.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Notes from Lectures and
-Discourses](notes_from_lectures_and_discourses_contents.htm)
-/ [→](work_without_motive.htm)
+
+
 
   
 
@@ -45,4 +41,4 @@ and then will come perfect non-attachment. This should be your duty.
 This is the proper attitude of work. This is the secret taught by
 Karma-Yoga.
 
-</div>
+

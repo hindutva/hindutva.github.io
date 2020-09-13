@@ -2,13 +2,9 @@
 title: THE HYMN OF CREATION
 
 ---
-<div>
 
-[←](a_benediction.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Writings: Prose and
-Poems](writings_prose_and_poems_contents.htm)
-/ [→](on_the_seas_bosom.htm)
+
+
 
   
 
@@ -52,4 +48,4 @@ He the ruler in the supreme sky, of this
 He, O Sharman! knows, or knows not  
                                             He perchance!
 
-</div>
+

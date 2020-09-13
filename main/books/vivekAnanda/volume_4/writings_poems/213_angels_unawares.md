@@ -2,12 +2,9 @@
 title: ANGELS UNAWARES
 
 ---
-<div>
 
-[←](kali_the_mother.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-4](../volume_4_contents.htm) / [Writings:
-Poems](writings_poems_contents.htm) / [→](to_the_awakened_india.htm)
+
+
 
   
 
@@ -89,4 +86,4 @@ Had shunned him for, his fall, he blessed the fall,
 And with a joyful heart, declared it —  
                                                    "Blessed Sin!"
 
-</div>
+

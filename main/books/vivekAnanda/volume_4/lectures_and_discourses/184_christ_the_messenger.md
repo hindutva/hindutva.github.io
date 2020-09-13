@@ -2,12 +2,9 @@
 title: CHRIST, THE MESSENGER
 
 ---
-<div>
 
-[←](on_lord_buddha.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-4](../volume_4_contents.htm) / [Lectures and
-Discourses](lectures_and_discourses_contents.htm) / [→](my_master.htm)
+
+
 
   
 
@@ -472,4 +469,4 @@ help humanity, whatever be their birth, colour, or race! Our salutations
 to those who are coming in the future — living Gods — to work
 unselfishly for our descendants.
 
-</div>
+

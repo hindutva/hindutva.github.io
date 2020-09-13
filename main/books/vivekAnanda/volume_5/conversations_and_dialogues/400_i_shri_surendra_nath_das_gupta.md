@@ -2,13 +2,9 @@
 title: 'I '
 
 ---
-<div>
 
-[←](../questions_and_answers/guru_avatara.htm)
-[Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
-/ [Volume 5](../volume_5_contents.htm) / [Conversations and
-Dialogues](conversations_and_dialogues_contents.htm)
-/ [→](ii_v_shri_surendra_nath_sen.htm)
+
+
 
   
 
@@ -117,4 +113,4 @@ But how long can they go in that way? In the evening of life (At the end
 of one's whole course of transmigratory existence.) they must all come
 home, to the arms of the Mother."
 
-</div>
+

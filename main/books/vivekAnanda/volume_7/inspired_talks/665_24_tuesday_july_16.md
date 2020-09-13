@@ -4,12 +4,9 @@ title: 'RECORDED BY MISS S. E. WALDO
   (A DISCIPLE)'
 
 ---
-<div>
 
-[←](23_monday_july_15.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Inspired
-Talks](inspired_talks_contents.htm) / [→](25_wednesday_july_17.htm)
+
+
 
   
 
@@ -85,4 +82,4 @@ illusion that the Self is the body; so even while living here in the
 body, we can be free. The body has nothing in common with the Self.
 Illusion is taking the real for the unreal — not "nothing at all".
 
-</div>
+

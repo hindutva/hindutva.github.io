@@ -2,19 +2,14 @@
 title: LXXXIX
 
 ---
-<div>
 
-[←](088_mrs_bull.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Epistles – Second
-Series](epistles_second_series_contents.htm) / [→](090_sister.htm)
+
+
 
   
 
-[«](../../volume_8/epistles_fourth_series/063_sturdy.htm) Chronology
-[»](../../volume_9/letters_fifth_series/074_christina.htm)  
-[«](088_mrs_bull.htm) Addressee
-[»](../../volume_9/letters_fifth_series/079_mrs_bull.htm)
+  
+
 
 ## LXXXIX
 
@@ -37,4 +32,4 @@ Yours, with best wishes,
 
 VIVEKANANDA.
 
-</div>
+

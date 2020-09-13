@@ -2,27 +2,14 @@
 title: LXXIII
 
 ---
-<div>
 
-[←](072_akhandananda.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Epistles – Second
-Series](epistles_second_series_contents.htm) / [→](074_rakhal.htm)
+
+
 
   
 
-[«](072_akhandananda072_akhandananda.htm) Chronology
-[»](074_rakhal.htm)  
-[«](056_dear_and_beloved.htm) Addressee
+  
 
-## LXXIII
-
-(*Translated from [Bengali](b7247e6073.pdf)* )
-
-U.S.A.,  
-(Summer of?) *1895*.
-
-MY DEAR—, (Brother-disciples at the Math.)
 
 The books that Sanyal sent have arrived. I forgot to mention this.
 Please inform him about it.
@@ -94,4 +81,4 @@ Yours affectionately,
 
 VIVEKANANDA.
 
-</div>
+

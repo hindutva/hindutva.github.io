@@ -4,12 +4,9 @@ title: 'RECORDED BY MISS S. E. WALDO
   (A DISCIPLE)'
 
 ---
-<div>
 
-[←](37_tuesday_july_30.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Inspired
-Talks](inspired_talks_contents.htm) / [→](39_thursday_august_1.htm)
+
+
 
   
 
@@ -155,7 +152,7 @@ His worshippers feel Him."
 
 [→](39_thursday_august_1.htm)
 
-</div>
+
 
 1.  [^](#txt1)Just as in storming a fort ninety out of a hundred
     soldiers may die, so that the remaining ten may win. It is only in a

@@ -2,13 +2,9 @@
 title: ARYANS AND TAMILIANS
 
 ---
-<div>
 
-[←](sketch_of_the_life_of_pavhari_baba.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-4](../volume_4_contents.htm) / [Writings:
-Prose](writings_prose_contents.htm)
-/ [→](the_social_conference_address.htm)
+
+
 
   
 
@@ -237,4 +233,4 @@ that we are born, and work, and suffer — prouder still that we die when
 the task is finished and enter forever the realm where there is no more
 delusion.
 
-</div>
+

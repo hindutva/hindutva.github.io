@@ -2,13 +2,9 @@
 title: REASON, FAITH AND LOVE
 
 ---
-<div>
 
-[←](../sayings_and_utterances.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Writings: Prose and
-Poems](writings_prose_and_poems_contents.htm)
-/ [→](six_sanskrit_mottoes.htm)
+
+
 
   
 
@@ -85,4 +81,4 @@ aspirations of the human Soul is God.
 Love is struggle of a human Soul to find its complement its stable
 equilibrium its infinite rest.
 
-</div>
+

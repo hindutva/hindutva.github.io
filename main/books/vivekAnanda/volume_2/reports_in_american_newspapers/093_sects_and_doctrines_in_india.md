@@ -2,13 +2,9 @@
 title: SECTS AND DOCTRINES IN INDIA
 
 ---
-<div>
 
-[←](the_religions_of_india.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-2](../volume_2_contents.htm) / [Reports in American
-Newspapers](reports_in_american_newspapers_contents.htm)
-/ [→](less_doctrine_and_more_bread.htm)
+
+
 
   
 
@@ -40,4 +36,4 @@ in effigy, which supposed to destroy once for all the old body, name and
 caste. The man then receives a new name, and is allowed to go forth and
 preach or travel, but must take no money for what he does.
 
-</div>
+

@@ -2,18 +2,14 @@
 title: LXVIII
 
 ---
-<div>
 
-[←](067_mrs_bull.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Epistles – Second
-Series](epistles_second_series_contents.htm) / [→](069_shashi.htm)
+
+
 
   
 
-[«](067_mrs_bull.htm) Chronology [»](069_shashi.htm)  
-[«](067_mrs_bull.htm) Addressee
-[»](../../volume_9/letters_fifth_series/063_mother.htm)
+  
+
 
 ## LXVIII
 
@@ -39,4 +35,4 @@ Yours,
 
 VIVEKANANDA.
 
-</div>
+

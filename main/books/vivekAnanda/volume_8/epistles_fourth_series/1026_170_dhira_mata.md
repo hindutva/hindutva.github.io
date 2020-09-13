@@ -2,17 +2,14 @@
 title: CLXX
 
 ---
-<div>
 
-[←](169_joe.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Epistles – Fourth
-Series](epistles_fourth_series_contents.htm) / [→](171_margot.htm)
+
+
 
   
 
-[«](169_joe.htm) Chronology [»](171_margot.htm)  
-[«](163_dhira_mata.htm) Addressee [»](173_dhira_mata.htm)
+  
+
 
 ## CLXX
 
@@ -95,4 +92,4 @@ the pocket anyhow. So you needn't be the least anxious about me.
 
 V.
 
-</div>
+

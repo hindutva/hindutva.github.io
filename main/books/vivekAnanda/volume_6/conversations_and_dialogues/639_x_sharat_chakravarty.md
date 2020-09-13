@@ -2,13 +2,9 @@
 title: X
 
 ---
-<div>
 
-[←](ix_sharat_chakravarty.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Conversations and
-Dialogues](conversations_and_dialogues_contents.htm)
-/ [→](xi_sharat_chakravarty.htm)
+
+
 
   
 
@@ -325,4 +321,4 @@ Arise, awake; wake up yourselves, and awaken others. Achieve the
 consummation of human life before you pass off — "Arise, awake, and stop
 not till the goal is reached."
 
-</div>
+

@@ -2,12 +2,9 @@
 title: WE HELP OURSELVES, NOT THE WORLD
 
 ---
-<div>
 
-[←](what_is_duty.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-1](../complete_works_v1_contents.htm)
-/ [Karma-Yoga](karma-yoga_contents.htm) / [→](non-attachment.htm)
+
+
 
   
 
@@ -264,4 +261,4 @@ quality and substance, we may become perfect men. It is not easy to do
 this. And further, the calmer we are and the less disturbed our nerves,
 the more shall we love and the better will our work be.
 
-</div>
+

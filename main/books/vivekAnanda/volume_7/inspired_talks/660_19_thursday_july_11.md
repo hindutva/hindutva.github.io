@@ -4,12 +4,9 @@ title: 'RECORDED BY MISS S. E. WALDO
   (A DISCIPLE)'
 
 ---
-<div>
 
-[←](18_wednesday_july_10.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Inspired
-Talks](inspired_talks_contents.htm) / [→](20_friday_july_12.htm)
+
+
 
   
 
@@ -129,4 +126,4 @@ says, "God will show His real nature to me" and accepts all.
 
                                                         — *Persian Poem*
 
-</div>
+

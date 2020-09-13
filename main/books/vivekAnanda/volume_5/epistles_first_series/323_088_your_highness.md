@@ -2,19 +2,14 @@
 title: LXXXVIII
 
 ---
-<div>
 
-[←](087_your_highness.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Epistles – First
-Series](epistles_first_series_contents.htm) / [→](089_mother.htm)
+
+
 
   
 
-[«](../../volume_9/letters_fifth_series/129_your_highness.htm)
-Chronology [»](../../volume_6/epistles_second_series/144_dear.htm)  
-[«](../../volume_9/letters_fifth_series/129_your_highness.htm) Addressee
-[»](091_friend.htm)
+  
+
 
 ## LXXXVIII
 
@@ -39,4 +34,4 @@ VIVEKANANDA.
 
 [→](089_mother.htm)  
 
-</div>
+

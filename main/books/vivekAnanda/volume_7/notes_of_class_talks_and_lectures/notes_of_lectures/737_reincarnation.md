@@ -2,14 +2,9 @@
 title: REINCARNATION
 
 ---
-<div>
 
-[←](the_destiny_of_man.htm) [Home](../../../../index.htm) /
-[Complete-Works](../../../complete_works.htm) / [Volume
-7](../../volume_7_contents.htm) / [Notes of Class Talks and
-Lectures](../notes_of_class_talks_and_lectures_contents.htm) / [Notes of
-Lectures](notes_of_lectures_contents.htm)
-/ [→](comparative_theology.htm)
+
+
 
   
 
@@ -97,4 +92,4 @@ applauded.
 Swami Vive Kananda will lecture again this afternoon at 4 o'clock at La
 Salette Academy on "The Manners and Customs of India."
 
-</div>
+

@@ -2,13 +2,9 @@
 title: SHIVA'S DEMON
 
 ---
-<div>
 
-[←](matter_for_serious_thought.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Writings: Prose and
-Poems](writings_prose_and_poems_contents.htm)
-/ [→](../epistles_second_series/001_sir.htm)
+
+
 
   
 
@@ -58,4 +54,4 @@ buoyancy, once it was in contact with that active, invigorating current
 of joy. The Baron bowed down to their wishes and started for Paris with
 his friends.
 
-</div>
+

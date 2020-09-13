@@ -2,15 +2,13 @@
 title: LXXV
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
 
-[←](074_christina.htm)  
-[←Chronology](074_christina.htm)  
-[←Addressee](074_christina.htm)
+
 
 ## LXXV
 
@@ -39,4 +37,4 @@ VIVEKANANDA
 [Addressee→](078_christina.htm)  
 [Chronology→](076_your_highness.htm)
 
-</div>
+

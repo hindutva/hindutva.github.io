@@ -2,18 +2,14 @@
 title: XVIII
 
 ---
-<div>
 
-[←](017_alasinga.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Epistles – First
-Series](epistles_first_series_contents.htm) / [→](019_vehemia.htm)
+
+
 
   
 
-[«](../../volume_9/letters_fifth_series/037_mother.htm) Chronology
-[»](../../volume_9/letters_fifth_series/038_mother.htm)  
-[«](017_alasinga.htm) Addressee [»](021_blessed_and_beloved.htm)
+  
+
 
 ## XVIII
 
@@ -69,4 +65,4 @@ to society. This is the slow but sure work to be done.
 
 V.
 
-</div>
+

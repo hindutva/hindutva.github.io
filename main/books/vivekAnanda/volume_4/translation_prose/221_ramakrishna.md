@@ -2,12 +2,9 @@
 title: 'RAMAKRISHNA: HIS LIFE AND SAYINGS'
 
 ---
-<div>
 
-[←](the_problem_of_modern_india.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-4](../volume_4_contents.htm) / [Translations:
-Prose](translation_prose_contents.htm) / [→](the_paris_congress.htm)
+
+
 
   
 
@@ -394,4 +391,4 @@ of the unselfish love of a great man's heart, then, O feeble man, what
 power cost thou possess that thou shouldst thwart the onward progress of
 the Almighty Mother's will? "
 
-</div>
+

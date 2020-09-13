@@ -2,26 +2,14 @@
 title: CXXIII
 
 ---
-<div>
 
-[←](122_joe.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Epistles – First
-Series](epistles_first_series_contents.htm)
-/ [→](../interviews/miracles.htm)
+
+
 
   
 
-[«](../../volume_9/letters_fifth_series/224_christine.htm) Chronology
-[»](../../volume_9/letters_fifth_series/225_christine.htm)  
-[«](../../volume_9/letters_fifth_series/220_mother.htm) Addressee
+  
 
-## CXXIII
-
-THE MATH,  
-*14th June, 1902*.
-
-DEAR DHIRÂ MÂTÂ, (Mrs. Ole Bull.)
 
 . . . In my opinion, a race must first cultivate a great respect for
 motherhood, through the sanctification and inviolability of marriage,
@@ -44,4 +32,4 @@ worships me, for whatsoever desire, I meet him with that." . . .
 
 VIVEKANANDA
 
-</div>
+

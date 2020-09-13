@@ -2,19 +2,14 @@
 title: XCVI
 
 ---
-<div>
 
-[←](095_mrs_bull.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Epistles – Second
-Series](epistles_second_series_contents.htm) / [→](097_sarada.htm)
+
+
 
   
 
-[«](../../volume_5/epistles_first_series/061_dr_nanjunda_rao.htm)
-Chronology [»](097_sarada.htm)  
-[«](095_mrs_bull.htm) Addressee
-[»](../../volume_9/letters_fifth_series/092_mrs_bull.htm)
+  
+
 
 ## XCVI
 
@@ -39,4 +34,4 @@ Yours with kind regards,
 
 VIVEKANANDA.
 
-</div>
+

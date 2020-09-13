@@ -2,7 +2,7 @@
 title: A HIGH PRIEST OF INDIA
 
 ---
-<div>
+
 
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
@@ -10,11 +10,7 @@ title: A HIGH PRIEST OF INDIA
 Reports](../newspaper_reports_contents.htm) / [American Newspaper
 Reports](american_newspaper_contents.htm) /
 
-[←](32_boston_evening_transcript_aug_15_1894.htm)
 
-## A HIGH PRIEST OF INDIA
-
-(*New Discoveries*, Vol. 2, pp. 191-192.)
 
 \[*Baltimore American*, October 13, 1894\]
 
@@ -43,4 +39,4 @@ law, and more godly men and women. . . .
 
 [→](34_baltimore_news_oct_13_1894.htm)
 
-</div>
+

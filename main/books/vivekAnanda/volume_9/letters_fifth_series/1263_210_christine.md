@@ -2,15 +2,13 @@
 title: CCX
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
 
-[←](209_christine.htm)  
-[←Chronology](209_christine.htm)  
-[←Addressee](209_christine.htm)
+
 
 ## CCX
 
@@ -43,4 +41,4 @@ VIVEKANANDA.
 [Addressee→](211_christine.htm)  
 [Chronology→](211_christine.htm)
 
-</div>
+

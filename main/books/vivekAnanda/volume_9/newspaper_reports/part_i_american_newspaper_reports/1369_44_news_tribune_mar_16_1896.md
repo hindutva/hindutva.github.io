@@ -2,7 +2,7 @@
 title: HEARD SWAMI TALK
 
 ---
-<div>
+
 
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
@@ -10,25 +10,7 @@ title: HEARD SWAMI TALK
 Reports](../newspaper_reports_contents.htm) / [American Newspaper
 Reports](american_newspaper_contents.htm) /
 
-[←](43_tribune_mar_5_1896.htm)
-
-## HEARD SWAMI TALK
-
-(*New Discoveries*, Vol. 4, p. 41.)
-
-\[*News Tribune*, March 16, 1896\]
-
-VIVEKANANDA LECTURED IN TEMPLE BETH EL
-
-———
-
-Spoke on the Ideal of a Universal Religion
-
-He Will Probably Leave Tuesday
-
-Temple Beth El was crowded to the doors last night when Swami
-Vivekananda delivered his address upon "The Ideal of a universal
-religion." (Of which no verbatim transcript is available.) The time
+ The time
 announced for the service was 8 o'clock, but the congregation began to
 assemble at the temple early in the evening so that the doors had to be
 opened at 6:25 p.m. They were closed at 7 o'clock and the hundreds that
@@ -56,4 +38,4 @@ reception tendered him and his philosophy.
 
 [→](45_boston_evening_transcript_mar_21_1896.htm)
 
-</div>
+

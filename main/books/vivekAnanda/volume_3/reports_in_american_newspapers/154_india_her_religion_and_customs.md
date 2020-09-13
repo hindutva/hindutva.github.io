@@ -2,13 +2,9 @@
 title: 'INDIA: HER RELIGION AND CUSTOMS'
 
 ---
-<div>
 
-[←](../lectures_from_colombo_to_almora/the_religion_we_are_born_in.htm)
-[Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
-/ [Volume 3](../volume_3_contents.htm) / [Reports in American
-Newspapers](reports_in_american_newspapers_contents.htm)
-/ [→](hindus_at_the_fair.htm)
+
+
 
   
 
@@ -200,4 +196,4 @@ Kananda will again speak, this time on the Use of Silver in India.
     "Rajah", "Brahmin", "priest", etc., for which they alone were
     responsible.
 
-</div>
+

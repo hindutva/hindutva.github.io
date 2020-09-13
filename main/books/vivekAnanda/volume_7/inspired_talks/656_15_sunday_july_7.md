@@ -4,12 +4,9 @@ title: 'RECORDED BY MISS S. E. WALDO
   (A DISCIPLE)'
 
 ---
-<div>
 
-[←](14_saturday_july_6.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Inspired
-Talks](inspired_talks_contents.htm) / [→](16_monday_july_8.htm)
+
+
 
   
 
@@ -88,4 +85,4 @@ at all, because there is no salvation except through Vishnu.
     whole it is always infinite, nay, even a portion of it is infinite,
     as each such portion is inseparably united with it.
 
-</div>
+

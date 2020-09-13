@@ -4,12 +4,9 @@ title: 'RECORDED BY MISS S. E. WALDO
   (A DISCIPLE)'
 
 ---
-<div>
 
-[←](35_sunday_july_28.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Inspired
-Talks](inspired_talks_contents.htm) / [→](37_tuesday_july_30.htm)
+
+
 
   
 
@@ -146,4 +143,4 @@ should never be counted in estimating his character.
 "virtue", because in ancient times the best fighter was regarded as the
 most virtuous man.
 
-</div>
+

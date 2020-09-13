@@ -2,17 +2,13 @@
 title: CLXXV
 
 ---
-<div>
 
-[←](174_joe.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Epistles – Fourth
-Series](epistles_fourth_series_contents.htm) / [→](176_joe.htm)
+
+
 
   
 
-[«](174_joe.htm) Chronology
-[»](../../volume_7/epistles_third_series/51_mr_leggett.htm)
+
 
 ## CLXXV
 
@@ -46,4 +42,4 @@ I am free. I am Mother's child. She works, She plays. Why should I plan?
 What should I plan? Things came and went, just as She liked, without my
 planning. We are Her automata. She is the wirepuller.
 
-</div>
+

@@ -2,13 +2,9 @@
 title: ON JNANA-YOGA
 
 ---
-<div>
 
-[←](ishvara_and_brahman.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Notes from Lectures and
-Discourses](notes_from_lectures_and_discourses_contents.htm)
-/ [→](the_cause_of_illusion.htm)
+
+
 
   
 
@@ -206,4 +202,4 @@ Thou art Our Father, our Mother, our dear Friend. Thou bearest the
 burden of the world. Help us to bear the burden of our lives. Thou art
 our Friend, our Lover, our Husband, Thou art ourselves!
 
-</div>
+

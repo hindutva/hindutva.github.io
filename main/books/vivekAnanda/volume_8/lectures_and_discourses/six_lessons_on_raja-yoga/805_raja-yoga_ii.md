@@ -4,14 +4,9 @@ title: 'RAJA YOGA
   SECOND LESSON'
 
 ---
-<div>
 
-[←](raja-yoga_i.htm) [Home](../../../../index.htm) /
-[Complete-Works](../../../complete_works.htm) / [Volume
-8](../../volume_8_contents.htm) / [Lectures and
-Discourses](../lectures_and_discourses_contents.htm) / [Six Lessons on
-Raja-Yoga](six_lessons_on_raja-yoga_contents.htm)
-/ [→](raja-yoga_iii.htm)
+
+
 
   
 
@@ -155,4 +150,4 @@ Of hundreds of thousands only one soul will say, "I will go beyond, and
 I will penetrate to God." Few can face the truth; but to accomplish
 anything, we must be willing to die for Truth.
 
-</div>
+

@@ -2,18 +2,14 @@
 title: LIX
 
 ---
-<div>
 
-[←](058_alasinga.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Epistles – First
-Series](epistles_first_series_contents.htm) / [→](060_alasinga.htm)
+
+
 
   
 
-[«](../../volume_9/letters_fifth_series/089_mrs_funkey.htm) Chronology
-[»](060_alasinga.htm)  
-[«](058_alasinga.htm) Addressee [»](060_alasinga.htm)
+  
+
 
 ## LIX
 
@@ -46,4 +42,4 @@ With love and blessings to all,
 
 VIVEKANANDA.
 
-</div>
+

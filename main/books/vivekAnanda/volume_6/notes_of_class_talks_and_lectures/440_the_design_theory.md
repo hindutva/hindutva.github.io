@@ -2,13 +2,9 @@
 title: THE DESIGN THEORY
 
 ---
-<div>
 
-[←](on_proof_of_religion.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Notes of Class Talks and
-Lectures](notes_of_class_talks_and_lectures_contents.htm)
-/ [→](spirit_and_nature.htm)
+
+
 
   
 
@@ -60,4 +56,4 @@ manifestation, and monism is pure spirituality in the essence.
 The idea of renunciation and sacrifice is in all religions as a means to
 reach God.
 
-</div>
+

@@ -2,18 +2,14 @@
 title: XXIV
 
 ---
-<div>
 
-[←](023_kidi.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Epistles – First
-Series](epistles_first_series_contents.htm) / [→](025_alasinga.htm)
+
+
 
   
 
-[«](../../volume_9/letters_fifth_series/046_mother.htm) Chronology
-[»](025_alasinga.htm)  
-[«](022_alasinga.htm) Addressee [»](025_alasinga.htm)
+  
+
 
 ## XXIV
 
@@ -52,4 +48,4 @@ Yours ever with blessings,
 
 VIVEKANANDA.
 
-</div>
+

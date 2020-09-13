@@ -2,27 +2,14 @@
 title: XXXV
 
 ---
-<div>
 
-[←](34_shashi.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Epistles – Third
-Series](epistles_third_series_contents.htm) / [→](36_miss_noble.htm)
+
+
 
   
 
-[«](../../volume_9/letters_fifth_series/092_mrs_bull.htm) Chronology
-[»](../../volume_6/epistles_second_series/098_mrs_bull.htm)  
-[«](../../volume_9/letters_fifth_series/048_adhyapakji.htm) Addressee
+  
 
-## XXXV
-
-63 ST. GEORGE'S ROAD,  
-LONDON, S.W.  
-*16th May, 1896*.
-
-DEAR ADHYAPAKJI, (Prof. John Henry Wright. The letter was written on the
-death of his daughter, aged 16.)
 
 Last mail brought the very very sad news of the blow that has fallen on
 you.
@@ -49,4 +36,4 @@ Your ever loving friend,
 
 VIVEKANANDA.
 
-</div>
+

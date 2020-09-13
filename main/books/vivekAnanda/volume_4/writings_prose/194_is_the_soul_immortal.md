@@ -2,12 +2,9 @@
 title: IS THE SOUL IMMORTAL?
 
 ---
-<div>
 
-[←](../lectures_and_discourses/the_practice_of_religion.htm)
-[Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
-/ [Volume 4](../volume_4_contents.htm) / [Writings:
-Prose](writings_prose_contents.htm) / [→](reincarnation.htm)
+
+
 
   
 
@@ -132,4 +129,4 @@ nor death.
 
 "Without birth or death, eternal, ever-existing is this soul of man."
 
-</div>
+

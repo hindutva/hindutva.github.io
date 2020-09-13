@@ -2,20 +2,14 @@
 title: THE EDUCATION THAT INDIA NEEDS
 
 ---
-<div>
 
-[←](modern_india.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-4](../volume_4_contents.htm) / [Translations:
-Prose](translation_prose_contents.htm)
-/ [→](our_present_social_problems.htm)
+
+
 
   
 
-[«](../../volume_8/epistles_fourth_series/090_shashi.htm) Chronology
-[»](../../volume_6/epistles_second_series/123_mary.htm)  
-[«](../../volume_5/epistles_first_series/074_honoured_madam.htm)
-Addressee [»](../../volume_7/epistles_third_series/43_madam.htm)
+  
+
 
 ## THE EDUCATION THAT INDIA NEEDS
 
@@ -213,4 +207,4 @@ can do.
 
 May the All-powerful Vishveshvari inspire your heart!
 
-</div>
+

@@ -2,14 +2,9 @@
 title: JNANA YOGA - VIII
 
 ---
-<div>
 
-[←](jnana-yoga_vii.htm) [Home](../../../../index.htm) /
-[Complete-Works](../../../complete_works.htm) / [Volume
-8](../../volume_8_contents.htm) / [Lectures and
-Discourses](../lectures_and_discourses_contents.htm) / [Discourses on
-Jnana-Yoga](discourses_on_jnana-yoga_contents.htm)
-/ [→](jnana-yoga_ix.htm)
+
+
 
   
 
@@ -119,4 +114,4 @@ the real Self, think only pure thoughts, and you will accomplish more
 than a regiment of mere preachers. Out of purity and silence comes the
 word of power.
 
-</div>
+

@@ -2,13 +2,9 @@
 title: III
 
 ---
-<div>
 
-[←](twentieth_century_club.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Questions and
-Answers](questions_and_answers_contents.htm)
-/ [→](selections_from_the_math_diary.htm)
+
+
 
   
 
@@ -100,4 +96,4 @@ man there would be no controlling him?
 *A*. — No! On the contrary, I think he is made far better through love
 and hope than through fear.
 
-</div>
+

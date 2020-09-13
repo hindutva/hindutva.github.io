@@ -2,13 +2,9 @@
 title: THE WORK BEFORE US
 
 ---
-<div>
 
-[←](the_sages_of_india.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-3](../volume_3_contents.htm) / [Lectures from Colombo to
-Almora](lectures_from_colombo_to_almora_contents.htm)
-/ [→](the_future_of_india.htm)
+
+
 
   
 
@@ -492,4 +488,4 @@ lunatics, as most of us do nowadays. You can do anything and everything
 without even the guidance of any one. All power is there. Stand up and
 express the divinity within you.
 
-</div>
+

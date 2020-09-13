@@ -2,18 +2,14 @@
 title: XLVIII
 
 ---
-<div>
 
-[←](47_margot.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Epistles – Third
-Series](epistles_third_series_contents.htm) / [→](49_mother.htm)
+
+
 
   
 
-[«](../../volume_9/letters_fifth_series/164_christina.htm) Chronology
-[»](49_mother.htm)  
-[«](46_mother.htm) Addressee [»](49_mother.htm)
+  
+
 
 ## XLVIII
 
@@ -59,4 +55,4 @@ correspondent, but the heart never fails. Tell this to Miss Spencer.
 
 V.
 
-</div>
+

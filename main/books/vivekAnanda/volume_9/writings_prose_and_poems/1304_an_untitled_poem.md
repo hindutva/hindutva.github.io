@@ -2,17 +2,13 @@
 title: AN UNTITLED POEM ON SHRI RAMAKRISHNA
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Writings: Prose and
 Poems](writings_prose_and_poems_contents.htm) /
 
-[←](one_circle_more.htm)
 
-## AN UNTITLED POEM ON SHRI RAMAKRISHNA
-
-(*Complete Works* (Bengali edition), VI, p. 256.)
 
 सामाख्याद्यैर्गीतिसुमधुरैर्मेघगम्भीरघोषैः  
 यज्ञध्वानध्वनितगगननैर्ब्राह्मणैर्ज्ञातवेदैः।  
@@ -29,4 +25,4 @@ that Shri Ramakrishna, I offer my eternal worship.
 
 [→](an_unfinished_poem.htm)
 
-</div>
+

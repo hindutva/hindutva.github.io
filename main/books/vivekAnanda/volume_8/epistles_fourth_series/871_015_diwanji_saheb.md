@@ -2,18 +2,14 @@
 title: XV
 
 ---
-<div>
 
-[←](014_diwanji_saheb.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Epistles – Fourth
-Series](epistles_fourth_series_contents.htm) / [→](016_sisters.htm)
+
+
 
   
 
-[«](../../volume_5/epistles_first_series/007_friends.htm) Chronology
-[»](../../volume_9/letters_fifth_series/009_mother.htm)  
-[«](014_diwanji_saheb.htm) Addressee [»](020_diwanji_saheb.htm)
+  
+
 
 ## XV
 
@@ -122,4 +118,4 @@ this sea of universal stagnation. Lord bless you for ever and ever!
 Yours ever faithfully,  
 VIVEKANANDA.
 
-</div>
+

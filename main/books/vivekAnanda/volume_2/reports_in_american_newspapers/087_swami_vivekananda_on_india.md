@@ -2,13 +2,9 @@
 title: SWAMI VIVEKANANDA ON INDIA
 
 ---
-<div>
 
-[←](divinity_of_man.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-2](../volume_2_contents.htm) / [Reports in American
-Newspapers](reports_in_american_newspapers_contents.htm)
-/ [→](religious_harmony.htm)
+
+
 
   
 
@@ -102,4 +98,4 @@ the Caste system in India, our civilization in the south, our general
 knowledge of the mind, and various other topics the speaker concluded
 his remarks.
 
-</div>
+

@@ -2,13 +2,9 @@
 title: WHAT IS RELIGION?
 
 ---
-<div>
 
-[←](the_hindu_religion.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-1](../complete_works_v1_contents.htm) / [Lectures and
-Discourses](lectures_and_discourses_contents.htm)
-/ [→](vedic_religious_ideals.htm)
+
+
 
   
 
@@ -343,4 +339,4 @@ good is good. No more shall we take it back. "Thy will be done on earth
 as it is in heaven, for Thine is the kingdom and the power and the glory
 for evermore."
 
-</div>
+

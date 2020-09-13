@@ -2,13 +2,9 @@
 title: THE BHAKTA'S RENUNCIATION RESULTS FROM LOVE
 
 ---
-<div>
 
-[←](the_preparatory_renunciation.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-3](../volume_3_contents.htm) / [Para-Bhakti or Supreme
-Devotion](para-bhakti_or_supreme_devotion_contents.htm)
-/ [→](the_naturalness_of_bhakti-yoga.htm)
+
+
 
   
 
@@ -126,4 +122,4 @@ form of hatred or jealousy. The external, the sensuous, has vanished
 from them for ever. How can they be angry, when, through their love,
 they are always able to see the Reality behind the scenes?
 
-</div>
+

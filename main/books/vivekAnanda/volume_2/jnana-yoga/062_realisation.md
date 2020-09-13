@@ -2,12 +2,9 @@
 title: REALISATION
 
 ---
-<div>
 
-[←](god_in_everything.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-2](../volume_2_contents.htm) / [Jnana-Yoga](jnana-yoga_contents.htm)
-/ [→](unity_in_diversity.htm)
+
+
 
   
 
@@ -608,4 +605,4 @@ in Him and stand in Him. It is the only joyful state of existence. Life
 on the plane of the Spirit is the only life, and let us all try to
 attain to this realisation.
 
-</div>
+

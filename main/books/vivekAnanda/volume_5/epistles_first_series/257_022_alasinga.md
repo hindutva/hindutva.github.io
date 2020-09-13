@@ -2,19 +2,14 @@
 title: XXII
 
 ---
-<div>
 
-[←](021_blessed_and_beloved.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Epistles – First
-Series](epistles_first_series_contents.htm) / [→](023_kidi.htm)
+
+
 
   
 
-[«](../../volume_4/writings_prose/to_my_brave_boys.htm) Chronology
-[»](023_kidi.htm)  
-[«](../../volume_4/writings_prose/to_my_brave_boys.htm) Addressee
-[»](024_blessed_and_beloved.htm)
+  
+
 
 ## XXII
 
@@ -79,4 +74,4 @@ Yours ever with blessings,
 
 VIVEKANANDA.
 
-</div>
+

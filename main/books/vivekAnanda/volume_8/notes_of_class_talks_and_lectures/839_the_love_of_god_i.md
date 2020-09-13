@@ -2,13 +2,9 @@
 title: THE LOVE OF GOD - I
 
 ---
-<div>
 
-[←](congress_of_religious_unity.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Notes of Class Talks and
-Lectures](notes_of_class_talks_and_lectures_contents.htm)
-/ [→](the_love_of_god_ii.htm)
+
+
 
   
 
@@ -41,4 +37,4 @@ children. We see Him all around us and are impressed continually by the
 boundlessness of His love, and from that love we draw the inspiration
 for our well-being and well-doing."
 
-</div>
+

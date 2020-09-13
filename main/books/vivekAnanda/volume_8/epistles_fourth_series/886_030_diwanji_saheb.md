@@ -2,18 +2,14 @@
 title: XXX
 
 ---
-<div>
 
-[←](029_diwanji_saheb.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Epistles – Fourth
-Series](epistles_fourth_series_contents.htm) / [→](031_mother.htm)
+
+
 
   
 
-[«](029_diwanji_saheb.htm) Chronology
-[»](../../volume_6/epistles_second_series/046_mother_sara.htm)  
-[«](029_diwanji_saheb.htm) Addressee [»](034_diwanji.htm)
+  
+
 
 ## XXX
 
@@ -36,4 +32,4 @@ VIVEKANANDA.
 1.  [^](#txt1)Diwanji never visited the U.S.A. The time and place given
     by his relatives are wrong obviously.
 
-</div>
+

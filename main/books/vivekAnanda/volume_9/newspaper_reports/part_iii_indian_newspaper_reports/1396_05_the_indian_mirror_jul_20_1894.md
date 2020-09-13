@@ -2,7 +2,7 @@
 title: THE CENTRAL IDEA OF THE VEDAS
 
 ---
-<div>
+
 
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
@@ -10,11 +10,7 @@ title: THE CENTRAL IDEA OF THE VEDAS
 Reports](../newspaper_reports_contents.htm) / [Indian Newspaper
 Reports](indian_newspaper_contents.htm) /
 
-[←](04_the_indian_mirror_jun_14_1894.htm)
 
-## THE CENTRAL IDEA OF THE VEDAS
-
-(*Vivekananda in Indian Newspapers*, p. 30.)
 
 \[*The Indian Mirror*, July 20, 1894\]
 
@@ -36,4 +32,4 @@ in general. (Unidentified source.)
 
 [→](06_the_bengalee_may_18_1895.htm)
 
-</div>
+

@@ -2,13 +2,9 @@
 title: ADDRESS AT THE RAMESWARAM TEMPLE ON REAL WORSHIP
 
 ---
-<div>
 
-[←](reply_to_the_address_of_welcome_at_pamban.htm)
-[Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
-/ [Volume 3](../volume_3_contents.htm) / [Lectures from Colombo to
-Almora](lectures_from_colombo_to_almora_contents.htm)
-/ [→](reply_to_the_address_of_welcome_at_ramnad.htm)
+
+
 
   
 
@@ -84,4 +80,4 @@ he knows it or not. And if a man is selfish, even though he has visited
 all the temples, seen all the places of pilgrimage, and painted himself
 like a leopard, he is still further off from Shiva.
 
-</div>
+

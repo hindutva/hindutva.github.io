@@ -2,12 +2,9 @@
 title: IMMORTALITY
 
 ---
-<div>
 
-[←](the_microcosm.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-2](../volume_2_contents.htm) / [Jnana-Yoga](jnana-yoga_contents.htm)
-/ [→](the_atman.htm)
+
+
 
   
 
@@ -360,4 +357,4 @@ no more grovel in darkness.
     of 1893. In India we have a corresponding wooden device very common
     in fairs. — Ed.
 
-</div>
+

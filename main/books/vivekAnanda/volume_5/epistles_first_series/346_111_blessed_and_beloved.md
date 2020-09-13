@@ -2,18 +2,13 @@
 title: CXI
 
 ---
-<div>
 
-[←](110_mary.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Epistles – First
-Series](epistles_first_series_contents.htm)
-/ [→](112_blessed_and_beloved.htm)
+
+
 
   
 
-[«](110_mary.htm) Chronology
-[»](../../volume_9/letters_fifth_series/203_christine.htm)  
+  
 Addressee [»](112_blessed_and_beloved.htm)
 
 ## CXI
@@ -50,4 +45,4 @@ Ever yours in the Lord,
 
 VIVEKANANDA.
 
-</div>
+

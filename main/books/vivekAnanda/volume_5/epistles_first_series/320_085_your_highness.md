@@ -2,18 +2,14 @@
 title: LXXXV
 
 ---
-<div>
 
-[←](084_your_highness.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Epistles – First
-Series](epistles_first_series_contents.htm) / [→](086_your_highness.htm)
+
+
 
   
 
-[«](../../volume_8/epistles_fourth_series/133_haripada.htm) Chronology
-[»](../../volume_8/epistles_fourth_series/134_haripada.htm)  
-[«](084_your_highness.htm) Addressee [»](086_your_highness.htm)
+  
+
 
 ## LXXXV
 
@@ -45,4 +41,4 @@ VIVEKANANDA.
 
 PS. My future address is Math, Belur, Howrah Dist. Bengal.
 
-</div>
+

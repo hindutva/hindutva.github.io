@@ -2,17 +2,13 @@
 title: THE RELIGION OF INDIA
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Notes of Lectures and
 Classes](notes_of_lectures_and_classes_contents.htm) /
 
-[←](note.htm)
 
-## THE RELIGION OF INDIA
-
-(*New Discoveries*, Vol. 2, pp. 145-49, 155-56.)
 
 *These notes of daily morning classes delivered at Greenacre, Maine, in
 the summer of 1894 and recorded by Miss Emma Thursby were discovered
@@ -176,4 +172,4 @@ may He enlighten our minds.
 
 [→](christs_message_to_the_world.htm)
 
-</div>
+

@@ -2,13 +2,9 @@
 title: RELIGIOUS HARMONY
 
 ---
-<div>
 
-[←](swami_vivekananda_on_india.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-2](../volume_2_contents.htm) / [Reports in American
-Newspapers](reports_in_american_newspapers_contents.htm)
-/ [→](from_far_off_india.htm)
+
+
 
   
 
@@ -82,4 +78,4 @@ personality of God was concerned, agnosticism prevailed, the main thing
 being to follow out Buddha's precepts which were, "Be good, be moral, be
 perfect."
 
-</div>
+

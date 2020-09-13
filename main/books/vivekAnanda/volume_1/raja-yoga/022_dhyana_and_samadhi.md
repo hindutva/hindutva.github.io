@@ -2,12 +2,9 @@
 title: DHYANA AND SAMADHI
 
 ---
-<div>
 
-[←](pratyahara_and_dharana.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-1](../complete_works_v1_contents.htm)
-/ [Raja-Yoga](raja-yoga_contents.htm) / [→](raja-yoga_in_brief.htm)
+
+
 
   
 
@@ -309,4 +306,4 @@ when faithfully practiced, will surely lead us to the desired end. Then
 will all sorrows cease, all miseries vanish; the seeds for actions will
 be burnt, and the soul will be free for ever.
 
-</div>
+

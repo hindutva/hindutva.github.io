@@ -2,18 +2,14 @@
 title: LXII
 
 ---
-<div>
 
-[←](061_mrs_bull.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Epistles – Second
-Series](epistles_second_series_contents.htm) / [→](063_shashi.htm)
+
+
 
   
 
-[«](../../volume_8/epistles_fourth_series/039_friend.htm) Chronology
-[»](063_shashi.htm)  
-[«](061_mrs_bull.htm) Addressee [»](064_mrs_bull.htm)
+  
+
 
 ## LXII
 
@@ -73,4 +69,4 @@ Your ever obedient son,
 
 VIVEKANANDA.
 
-</div>
+

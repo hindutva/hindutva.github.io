@@ -2,13 +2,9 @@
 title: TO THE FOURTH OF JULY
 
 ---
-<div>
 
-[←](who_knows_how_mother_plays.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Writings: Prose and
-Poems](writings_prose_and_poems_contents.htm)
-/ [→](the_east_and_the_west.htm)
+
+
 
   
 
@@ -53,4 +49,4 @@ Till men and women, with uplifted head,
 Behold their shackles broken, and  
 Know, in springing joy, their life renewed!
 
-</div>
+

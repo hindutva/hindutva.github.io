@@ -2,13 +2,9 @@
 title: PRACTICAL VEDANTA
 
 ---
-<div>
 
-[←](../jnana-yoga/the_real_and_the_apparent_man.htm)
-[Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
-/ [Volume 2](../volume_2_contents.htm) / [Practical Vedanta and other
-lectures](practical_vedanta_and_other_lectures_contents.htm)
-/ [→](practical_vedanta_part_ii.htm)
+
+
 
   
 
@@ -535,4 +531,4 @@ of us will have to become a prophet, and you are that already. Only
 the greatest heresy to think so. If there is sin, this is the only sin —
 to say that you are weak, or others are weak.
 
-</div>
+

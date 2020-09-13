@@ -4,12 +4,9 @@ title: 'RECORDED BY MISS S. E. WALDO
   (A DISCIPLE)'
 
 ---
-<div>
 
-[←](11_tuesday_july_2.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Inspired
-Talks](inspired_talks_contents.htm) / [→](13_friday_july_5.htm)
+
+
 
   
 
@@ -154,4 +151,4 @@ It is easy to strike a blow, but tremendously hard to stay the hand,
 stand still, and say, "In Thee, O Lord, I take refuge", and then wait
 for Him to act.
 
-</div>
+

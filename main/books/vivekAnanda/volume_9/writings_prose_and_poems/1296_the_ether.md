@@ -2,15 +2,13 @@
 title: THE ETHER1
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Writings: Prose and
 Poems](writings_prose_and_poems_contents.htm) /
 
-[←](../notes_of_lectures_and_classes/remarks_from_various_lectures.htm)
 
-## THE ETHER[1](#fn1)
 
 *This article first appeared anonymously in the February 1895 issue of
 the* New York Medical Times, *a prestigious monthly medical journal
@@ -185,7 +183,7 @@ Infinite Mind?
 
 [→](notes.htm)
 
-</div>
+
 
 1.  [^](#fn1_1)Reprinted in New Discoveries, Vol. 3, pp. 55-59.  
     Because the Swami's original handwritten article is unavailable, we

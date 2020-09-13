@@ -2,18 +2,14 @@
 title: LII
 
 ---
-<div>
 
-[←](051_friend.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Epistles – First
-Series](epistles_first_series_contents.htm) / [→](053_alasinga.htm)
+
+
 
   
 
-[«](../../volume_8/epistles_fourth_series/051_friend.htm) Chronology
-[»](../../volume_6/epistles_second_series/071_rakhal.htm)  
-[«](049_alasinga.htm) Addressee [»](053_alasinga.htm)
+  
+
 
 ## LII
 
@@ -65,4 +61,4 @@ Yours with blessings
 
 VIVEKANANDA.
 
-</div>
+

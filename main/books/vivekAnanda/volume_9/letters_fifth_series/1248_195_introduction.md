@@ -2,14 +2,13 @@
 title: CXCV
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
 
-[←](194_christine.htm)  
-[←Chronology](194_christine.htm)
+
 
 ## CXCV
 
@@ -33,4 +32,4 @@ SWAMI VIVEKANANDA
 [→](196_christina.htm)  
 [Chronology→](196_christina.htm)
 
-</div>
+

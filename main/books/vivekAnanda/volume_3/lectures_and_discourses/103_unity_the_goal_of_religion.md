@@ -2,13 +2,9 @@
 title: UNITY, THE GOAL OF RELIGION
 
 ---
-<div>
 
-[←](../../volume_2/reports_in_american_newspapers/some_customs_of_the_hindus.htm)
-[Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
-/ [Volume 3](../volume_3_contents.htm) / [Lectures and
-Discourses](lectures_and_discourses_contents.htm)
-/ [→](the_free_soul.htm)
+
+
 
   
 
@@ -168,4 +164,4 @@ Kapila, the Vedanta is not satisfied to end in dualism, but continues
 its search for the final unity which is alike the goal of science and
 religion.
 
-</div>
+

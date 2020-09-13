@@ -2,17 +2,13 @@
 title: REMARKS FROM VARIOUS LECTURES
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Notes of Lectures and
 Classes](notes_of_lectures_and_classes_contents.htm) /
 
-[←](gita_class.htm)
 
-## REMARKS FROM VARIOUS LECTURES
-
-(*New Discoveries*, Vol. 6, pp. 209-10.)
 
 *\[Mr. Frank Rhodehamel's random lecture notes, most of which seem to
 pertain to chapter two of the Bhagavad-Gitâ\]*
@@ -41,4 +37,4 @@ befit thee. This does not befit thee".
 
 [→](../writings_prose_and_poems/writings_prose_and_poems_contents.htm)
 
-</div>
+

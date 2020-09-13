@@ -2,19 +2,14 @@
 title: CXLV
 
 ---
-<div>
 
-[←](144_dear.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Epistles – Second
-Series](epistles_second_series_contents.htm) / [→](146_dear.htm)
+
+
 
   
 
-[«](../../volume_4/translation_prose/our_present_social_problems.htm)
-Chronology [»](../../volume_9/letters_fifth_series/130_margot.htm)  
-[«](../../volume_9/letters_fifth_series/124_miss_macleod_mrs_bull.htm)
-Addressee [»](../../volume_9/letters_fifth_series/143_mother.htm)
+  
+
 
 ## CXLV
 
@@ -47,4 +42,4 @@ Ever your loving son,
 
 VIVEKANANDA.
 
-</div>
+

@@ -2,15 +2,13 @@
 title: CXXXVIII
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
 
-[←](137_margot.htm)  
-[←Chronology](137_margot.htm)  
-[←Addressee](132_christina.htm)
+
 
 ## CXXXVIII
 
@@ -40,4 +38,4 @@ VIVEKANANDA.
 [Addressee→](140_christina.htm)  
 [Chronology→](../../volume_5/epistles_first_series/091_friend.htm)
 
-</div>
+

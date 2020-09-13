@@ -2,7 +2,7 @@
 title: THE SWAMI VIVEKANANDA IN ENGLAND
 
 ---
-<div>
+
 
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
@@ -10,11 +10,7 @@ title: THE SWAMI VIVEKANANDA IN ENGLAND
 Reports](../newspaper_reports_contents.htm) / [Indian Newspaper
 Reports](indian_newspaper_contents.htm) /
 
-[←](10_the_indian_mirror_jun_19_1896.htm)
 
-## THE SWAMI VIVEKANANDA IN ENGLAND
-
-(*Vivekananda in Indian Newspapers*, pp. 493-95.)
 
 \[*The Brahmavadin*, July 18, 1896\]
 
@@ -108,4 +104,4 @@ June 23, 1896
 
 [→](12_the_indian_mirror_sep_22_1896.htm)
 
-</div>
+

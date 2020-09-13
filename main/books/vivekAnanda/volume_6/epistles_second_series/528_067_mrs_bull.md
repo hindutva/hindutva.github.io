@@ -2,19 +2,14 @@
 title: LXVII
 
 ---
-<div>
 
-[←](066_mrs_bull.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Epistles – Second
-Series](epistles_second_series_contents.htm) / [→](068_mrs_bull.htm)
+
+
 
   
 
-[«](../../volume_9/letters_fifth_series/060_doctor.htm) Chronology
-[»](068_mrs_bull.htm)  
-[«](../../volume_9/letters_fifth_series/059_mother.htm) Addressee
-[»](068_mrs_bull.htm)
+  
+
 
 ## LXVII
 
@@ -36,4 +31,4 @@ there and be all alone to myself. The very idea is ennobling.
 
 VIVEKANANDA.
 
-</div>
+

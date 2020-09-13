@@ -4,12 +4,9 @@ title: 'RECORDED BY MISS S. E. WALDO
   (A DISCIPLE)'
 
 ---
-<div>
 
-[←](24_tuesday_july_16.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Inspired
-Talks](inspired_talks_contents.htm) / [→](26_thursday_july_18.htm)
+
+
 
   
 
@@ -74,4 +71,4 @@ the Absolute. You reach only something that is minus certain qualities,
 not Brahman Itself; only a verbal unification, the highest abstraction,
 but not the nonexistence of the relative.
 
-</div>
+

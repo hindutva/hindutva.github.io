@@ -2,13 +2,9 @@
 title: BUDDHA'S MESSAGE TO THE WORLD
 
 ---
-<div>
 
-[←](my_life_and_mission.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Lectures and
-Discourses](lectures_and_discourses_contents.htm)
-/ [→](discipleship.htm)
+
+
 
   
 
@@ -434,4 +430,4 @@ to enter into that state of freedom which he called Nirvana. All must
 attain to it one day; and that attainment is the complete fulfilment of
 man.
 
-</div>
+

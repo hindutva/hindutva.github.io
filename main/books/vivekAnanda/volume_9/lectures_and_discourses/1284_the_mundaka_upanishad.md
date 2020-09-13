@@ -2,24 +2,13 @@
 title: THE MUNDAKA UPANISHAD
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Lectures and
 Discourses](lectures_and_discourses_contents.htm) /
 
-[←](bhakti-yoga.htm)
-
-## THE MUNDAKA UPANISHAD
-
-(*New Discoveries*, Vol. 3, pp. 557-68)
-
-*\[A Jnâna-Yoga class delivered in New York, January 29, 1896, and
-recorded by Mr. Josiah J. Goodwin\]*
-
-In the last Jnana-Yoga (*Vide [Complete
-Works](../../volume_2/practical_vedanta_and_other_lectures/the_way_to_blessedness.htm)*,
-II.) lecture, we read one of the Upanishads; we will read another \[the
+ lecture, we read one of the Upanishads; we will read another \[the
 Mundaka Upanishad\]. Brahmâ was the first of the Devas, the Lord of this
 cycle and its protector. He gave this knowledge of Brahman, which is the
 essence of all knowledge, to his son Atharvan. The latter handed it over
@@ -525,7 +514,7 @@ know it for a mirage.
 
 [→](history_of_the_aryan_race.htm)
 
-</div>
+
 
 1.  [^](#txt1)In each of the four Vedas there is one such "great word",
     or great utterance, called Mahâvâkya: "Prajnânam Brahma"

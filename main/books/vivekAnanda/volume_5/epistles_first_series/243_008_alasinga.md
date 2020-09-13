@@ -2,18 +2,14 @@
 title: VIII
 
 ---
-<div>
 
-[←](007_friends.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Epistles – First
-Series](epistles_first_series_contents.htm) / [→](009_sharat.htm)
+
+
 
   
 
-[«](../../volume_9/letters_fifth_series/015_mother.htm) Chronology
-[»](../../volume_9/letters_fifth_series/016_mother.htm)  
-[«](005_alasinga.htm) Addressee [»](010_alasinga.htm)
+  
+
 
 ## VIII
 
@@ -95,4 +91,4 @@ Yours with blessings,
 
 VIVEKANANDA.
 
-</div>
+

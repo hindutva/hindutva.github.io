@@ -2,15 +2,13 @@
 title: XCIX
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
 
-[←](098_blessed_and_beloved.htm)  
-[←Chronology](../../volume_5/epistles_first_series/067_alasinga.htm)  
-[←Addressee](098_blessed_and_beloved.htm)
+
 
 ## XCIX
 
@@ -47,7 +45,7 @@ VIVEKANANDA
 [Addressee→](102_christina.htm)  
 [Chronology→](../../volume_6/epistles_second_series/109_joe_joe.htm)
 
-</div>
+
 
 1.  [^](#fn1_1)Stella Campbell, one of Swami Vivekananda's students at
     Thousand Island Park.

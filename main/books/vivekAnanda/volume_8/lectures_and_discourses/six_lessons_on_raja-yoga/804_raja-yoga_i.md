@@ -4,15 +4,9 @@ title: 'RAJA YOGA
   FIRST LESSON'
 
 ---
-<div>
 
-[←](../discourses_on_jnana-yoga/jnana-yoga_ix.htm)
-[Home](../../../../index.htm) /
-[Complete-Works](../../../complete_works.htm) / [Volume
-8](../../volume_8_contents.htm) / [Lectures and
-Discourses](../lectures_and_discourses_contents.htm) / [Six Lessons on
-Raja-Yoga](six_lessons_on_raja-yoga_contents.htm)
-/ [→](raja-yoga_ii.htm)
+
+
 
   
 
@@ -203,4 +197,4 @@ concentrating them in full force upon any subject.
 
 You cannot be a Yogi if you talk much.
 
-</div>
+

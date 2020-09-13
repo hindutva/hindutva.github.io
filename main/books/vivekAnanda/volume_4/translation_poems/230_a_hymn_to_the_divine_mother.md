@@ -2,12 +2,9 @@
 title: A HYMN TO THE DIVINE MOTHER
 
 ---
-<div>
 
-[←](the_hymn_of_samadhi.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-4](../volume_4_contents.htm) / [Translations:
-Poems](translation_poems_contents.htm) / [→](a_hymn_to_shiva.htm)
+
+
 
   
 
@@ -105,4 +102,4 @@ My understanding, She, my Mother, She,
 The All, is my resort, whether my work  
 O'erdow with full fruition or with none.
 
-</div>
+

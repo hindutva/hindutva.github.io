@@ -2,18 +2,14 @@
 title: LXXVII
 
 ---
-<div>
 
-[←](076_mr_.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Epistles – First
-Series](epistles_first_series_contents.htm) / [→](078_sister.htm)
+
+
 
   
 
-[«](../../volume_9/letters_fifth_series/113_friend.htm) Chronology
-[»](../../volume_8/epistles_fourth_series/096_miss_noble.htm)  
-[«](../../volume_7/epistles_third_series/38_sharat_chandra.htm)
+  
+
 Addressee
 
 ## LXXVII
@@ -65,7 +61,7 @@ Addressee
 
 विवेकानन्दः।
 
-</div>
+
 
 TRANSLATION
 
@@ -132,4 +128,4 @@ VIVEKANANDA.
 
 Ever bound to thee in love.
 
-</div>
+

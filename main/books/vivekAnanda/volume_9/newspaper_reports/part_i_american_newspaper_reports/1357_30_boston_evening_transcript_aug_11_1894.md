@@ -2,7 +2,7 @@
 title: SWAMI VIVEKANANDA
 
 ---
-<div>
+
 
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
@@ -10,11 +10,7 @@ title: SWAMI VIVEKANANDA
 Reports](../newspaper_reports_contents.htm) / [American Newspaper
 Reports](american_newspaper_contents.htm) /
 
-[←](29_lawrence_american_may_18_1894.htm)
 
-## SWAMI VIVEKANANDA
-
-(*New Discoveries*, Vol. 2, pp. 144-145.)
 
 *\[Mrs. Ole Bull submitted to the* Boston Evening Transcript *the
 following report of Swami Vivekananda's public lecture at Greenacre,
@@ -61,4 +57,4 @@ the prophets known to us by his own presence.
 
 [→](31_greenacre_voice_1894.htm)
 
-</div>
+

@@ -2,13 +2,9 @@
 title: INDIA'S GIFT TO THE WORLD
 
 ---
-<div>
 
-[←](true_buddhism.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-2](../volume_2_contents.htm) / [Reports in American
-Newspapers](reports_in_american_newspapers_contents.htm)
-/ [→](child_widows_of_india.htm)
+
+
 
   
 
@@ -121,4 +117,4 @@ as well as the fanatical self-destruction under the wheels of the
 Juggernaut, have wholly stopped, and referred his hearers for proof to
 Sir William Hunter's "History of the Indian Empire".
 
-</div>
+

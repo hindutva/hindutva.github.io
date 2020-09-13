@@ -2,12 +2,9 @@
 title: INDIA AND ENGLAND
 
 ---
-<div>
 
-[←](indias_mission.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Interviews](interviews_contents.htm)
-/ [→](indian_missionarys_mission_to_england.htm)
+
+
 
   
 
@@ -246,4 +243,4 @@ word.
 
 C. S. B.
 
-</div>
+

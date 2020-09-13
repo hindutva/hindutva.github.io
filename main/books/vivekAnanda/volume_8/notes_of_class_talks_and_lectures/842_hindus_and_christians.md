@@ -2,13 +2,9 @@
 title: HINDUS AND CHRISTIANS
 
 ---
-<div>
 
-[←](india.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Notes of Class Talks and
-Lectures](notes_of_class_talks_and_lectures_contents.htm)
-/ [→](christianity_in_india.htm)
+
+
 
   
 
@@ -159,4 +155,4 @@ wonderful prosperity with the ideal of Christ, it is well. But if you
 cannot, better go back to him and give this up. Better be ready to live
 in rags with Christ than to live in palaces without him.
 
-</div>
+

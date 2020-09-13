@@ -2,15 +2,13 @@
 title: LXXIV
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
 
-[←](073_christina.htm)  
-[←Chronology](../../volume_6/epistles_second_series/089_mrs_bull.htm)  
-[←Addressee](073_christina.htm)
+
 
 ## LXXIV
 
@@ -56,4 +54,4 @@ VIVEKANANDA
 [Addressee→](075_christina.htm)  
 [Chronology→](075_christina.htm)
 
-</div>
+

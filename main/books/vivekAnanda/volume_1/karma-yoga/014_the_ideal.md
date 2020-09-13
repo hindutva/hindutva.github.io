@@ -2,12 +2,9 @@
 title: THE IDEAL OF KARMA-YOGA
 
 ---
-<div>
 
-[←](freedom.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-1](../complete_works_v1_contents.htm)
-/ [Karma-Yoga](karma-yoga_contents.htm) / [→](../raja-yoga/preface.htm)
+
+
 
   
 
@@ -320,4 +317,4 @@ Buddha, and out of him will come the power to work in such a manner as
 will transform the world. This man represents the very highest ideal of
 Karma-Yoga.
 
-</div>
+

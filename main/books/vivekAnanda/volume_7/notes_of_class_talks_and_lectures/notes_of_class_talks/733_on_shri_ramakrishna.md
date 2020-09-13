@@ -2,14 +2,9 @@
 title: ON SHRI RAMAKRISHNA AND HIS VIEWS
 
 ---
-<div>
 
-[←](shri_ramakrishna_the_significance.htm) [Home](../../../../index.htm)
-/ [Complete-Works](../../../complete_works.htm) / [Volume
-7](../../volume_7_contents.htm) / [Notes of Class Talks and
-Lectures](../notes_of_class_talks_and_lectures_contents.htm) / [Notes of
-Class Talks](notes_of_class_talks_contents.htm)
-/ [→](shri_ramakrishna_the_nations.htm)
+
+
 
   
 
@@ -59,4 +54,4 @@ were incapable of any higher training.
 He used generally to teach dualism. As a rule, he never taught
 Advaitism. But he taught it to me. I had been a dualist before.
 
-</div>
+

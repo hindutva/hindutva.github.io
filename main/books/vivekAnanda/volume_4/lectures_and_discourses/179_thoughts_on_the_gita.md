@@ -2,13 +2,9 @@
 title: THOUGHTS ON THE GITA
 
 ---
-<div>
 
-[←](the_mahabharata.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-4](../volume_4_contents.htm) / [Lectures and
-Discourses](lectures_and_discourses_contents.htm)
-/ [→](the_story_of_jada_bharata.htm)
+
+
 
   
 
@@ -286,4 +282,4 @@ If one reads this one Shloka — क्लैब्यं मा स्म ग�
 one gets all the merits of reading the entire Gita; for in this one
 Shloka lies imbedded the whole Message of the Gita.
 
-</div>
+

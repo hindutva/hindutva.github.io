@@ -2,20 +2,14 @@
 title: LXIX
 
 ---
-<div>
 
-[←](068_blessed_and_beloved.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Epistles – Fourth
-Series](epistles_fourth_series_contents.htm)
-/ [→](070_blessed_and_beloved.htm)
+
+
 
   
 
-[«](068_blessed_and_beloved.htm) Chronology
-[»](../../volume_6/epistles_second_series/091_sarada.htm)  
-[«](../../volume_5/epistles_first_series/055_alasinga.htm) Addressee
-[»](../../volume_5/epistles_first_series/058_alasinga.htm)
+  
+
 
 ## LXIX
 
@@ -63,4 +57,4 @@ Theosophy. I almost lose my patience when I see these underhand
 dealings. This is the world — those whom you love best and help most try
 to cheat you. — V.
 
-</div>
+

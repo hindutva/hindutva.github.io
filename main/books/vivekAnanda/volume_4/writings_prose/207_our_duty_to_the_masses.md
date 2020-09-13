@@ -2,18 +2,13 @@
 title: OUR DUTY TO THE MASSES
 
 ---
-<div>
 
-[←](what_we_believe_in.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-4](../volume_4_contents.htm) / [Writings:
-Prose](writings_prose_contents.htm)
-/ [→](reply_to_the_calcutta_address.htm)
+
+
 
   
 
-[«](../../volume_8/epistles_fourth_series/020_diwanji_saheb.htm)
-Chronology [»](../../volume_6/epistles_second_series/042_sir.htm)
+
 
 ## OUR DUTY TO THE MASSES
 
@@ -111,4 +106,4 @@ millions of India, sunk in ignorance, is the prayer of —
 
 VIVEKANANDA.
 
-</div>
+

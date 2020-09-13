@@ -2,18 +2,14 @@
 title: LXXI
 
 ---
-<div>
 
-[←](070_blessed_and_beloved.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Epistles – Fourth
-Series](epistles_fourth_series_contents.htm) / [→](072_sister.htm)
+
+
 
   
 
-[«](../../volume_9/letters_fifth_series/087_friend.htm) Chronology
-[»](072_sister.htm)  
-[«](070_blessed_and_beloved.htm) Addressee [»](074_sturdy.htm)
+  
+
 
 ## LXXI
 
@@ -68,4 +64,4 @@ PS. I am coming sure in March as early as possible.
 
 V.
 
-</div>
+

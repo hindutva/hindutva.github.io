@@ -2,13 +2,9 @@
 title: NOTES ON VEDANTA
 
 ---
-<div>
 
-[←](freedom_of_the_self.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Notes of Class Talks and
-Lectures](notes_of_class_talks_and_lectures_contents.htm)
-/ [→](hindu_and_greek.htm)
+
+
 
   
 
@@ -39,4 +35,4 @@ manifestations in its passage from one personality to another, subject
 to the great law of spiritual evolution, until it reaches perfection,
 when there is no more change.
 
-</div>
+

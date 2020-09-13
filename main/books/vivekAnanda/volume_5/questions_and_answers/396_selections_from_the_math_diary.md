@@ -2,12 +2,9 @@
 title: IV
 
 ---
-<div>
 
-[←](brooklyn_ethical_society.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Questions and
-Answers](questions_and_answers_contents.htm) / [→](yoga_vairagya.htm)
+
+
 
   
 
@@ -215,4 +212,4 @@ Truth. But to service every one has the right, and not only so, but
 every one is under obligation to serve others, so long as he is
 accepting service from others.
 
-</div>
+

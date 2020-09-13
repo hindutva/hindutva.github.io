@@ -2,11 +2,9 @@
 title: SAYINGS AND UTTERANCES
 
 ---
-<div>
 
-[←](notes_of_class_talks_and_lectures/the_essence_of_religion.htm)
-[Home](../../index.htm) / [Complete-Works](../complete_works.htm) /
-[Volume 8](volume_8_contents.htm) / [→](epistles_fourth_series/note.htm)
+
+
 
   
 
@@ -664,4 +662,4 @@ will."
 58\. "If a bad time comes, what of that? The pendulum must swing back to
 the other side. But that is no better. The thing to do is to stop it."
 
-</div>
+

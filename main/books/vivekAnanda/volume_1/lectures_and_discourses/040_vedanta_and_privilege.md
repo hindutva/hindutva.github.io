@@ -2,12 +2,9 @@
 title: VEDANTA AND PRIVILEGE
 
 ---
-<div>
 
-[←](steps_to_realisation.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-1](../complete_works_v1_contents.htm) / [Lectures and
-Discourses](lectures_and_discourses_contents.htm) / [→](privilege.htm)
+
+
 
   
 
@@ -396,4 +393,4 @@ you have not known this, you have known nothing. How can there be
 difference? It is all one. Every being is the temple of the Most High;
 if you can see that, good, if not, spirituality has yet to come to you.
 
-</div>
+

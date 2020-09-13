@@ -2,13 +2,9 @@
 title: THE GREAT TEACHERS OF THE WORLD
 
 ---
-<div>
 
-[←](the_story_of_prahlada.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-4](../volume_4_contents.htm) / [Lectures and
-Discourses](lectures_and_discourses_contents.htm)
-/ [→](on_lord_buddha.htm)
+
+
 
   
 
@@ -456,4 +452,4 @@ Heaven is at hand!" This very moment let everyone of us make a staunch
 resolution: "I will become a Prophet, I will become a messenger of
 Light, I will become a child of God, nay, I will become a God!"
 
-</div>
+

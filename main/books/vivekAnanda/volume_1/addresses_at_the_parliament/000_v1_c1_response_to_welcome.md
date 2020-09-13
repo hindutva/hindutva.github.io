@@ -2,13 +2,9 @@
 title: RESPONSE TO WELCOME
 
 ---
-<div>
 
-[←](../../introduction.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-1](../complete_works_v1_contents.htm) / [Addresses at The Parliament of
-Religions /](addresses_at_the_parliament.htm)
-[→](v1_c1_why_we_disagreee.htm)
+
+
 
   
 
@@ -60,4 +56,4 @@ convention may be the death-knell of all fanaticism, of all persecutions
 with the sword or with the pen, and of all uncharitable feelings between
 persons wending their way to the same goal.
 
-</div>
+

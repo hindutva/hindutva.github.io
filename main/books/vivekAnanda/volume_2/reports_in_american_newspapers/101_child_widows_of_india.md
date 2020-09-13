@@ -2,13 +2,9 @@
 title: CHILD WIDOWS OF INDIA
 
 ---
-<div>
 
-[←](indias_gift_to_the_world.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-2](../volume_2_contents.htm) / [Reports in American
-Newspapers](reports_in_american_newspapers_contents.htm)
-/ [→](some_customs_of_the_hindus.htm)
+
+
 
   
 
@@ -44,4 +40,4 @@ did not prevent it, and it was not until the British obtained control of
 India that it was finally prohibited. These women were considered saints
 and in many instances monuments were erected to their memory."
 
-</div>
+

@@ -2,7 +2,7 @@
 title: HINDU PHILOSOPHY
 
 ---
-<div>
+
 
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
@@ -10,11 +10,7 @@ title: HINDU PHILOSOPHY
 Reports](../newspaper_reports_contents.htm) / [American Newspaper
 Reports](american_newspaper_contents.htm) /
 
-[←](14_minneapolis_tribune_dec_15_1893.htm)
 
-## HINDU PHILOSOPHY
-
-(*New Discoveries*, Vol. 1, pp. 366-69.)
 
 \[*Detroit Tribune*, February 18, 1894\]
 
@@ -118,7 +114,7 @@ FRED H. SEYMOUR.[1](#fn1)
 
 [→](16_detroit_tribune_feb_19_1894.htm)
 
-</div>
+
 
 1.  [^](#fn1_1)One of the guests at Charles L. Freer's dinner party
     given in honour of Swami Vivekananda, on Saturday, February

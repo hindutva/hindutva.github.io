@@ -2,12 +2,9 @@
 title: ON INDIAN WOMEN — THEIR PAST, PRESENT AND FUTURE
 
 ---
-<div>
 
-[←](reawakening_of_hinduism.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Interviews](interviews_contents.htm)
-/ [→](on_the_bounds_of_hinduism.htm)
+
+
 
   
 
@@ -165,4 +162,4 @@ Be strong and hopeful and unashamed, and remember that with something to
 take, Hindus have immeasurably more to give than any other people in the
 world."
 
-</div>
+

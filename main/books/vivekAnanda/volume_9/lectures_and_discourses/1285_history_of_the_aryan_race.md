@@ -2,15 +2,13 @@
 title: HISTORY OF THE ARYAN RACE1
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Lectures and
 Discourses](lectures_and_discourses_contents.htm) /
 
-[←](the_mundaka_upanishad.htm)
 
-## HISTORY OF THE ARYAN RACE[¹](#fn1)
 
 *\[A Jnâna-Yoga class delivered in London, England, on Thursday morning,
 May 7, 1896, and recorded by Mr. Josiah J. Goodwin\]*
@@ -590,7 +588,7 @@ Works](../../volume_8/notes_of_class_talks_and_lectures/hindus_and_christians.ht
 
 [→](../notes_of_lectures_and_classes/notes_of_lectures_and_classes_contents.htm)
 
-</div>
+
 
 1.  [^](#txt1)Vedanta Society of Northern California archives. Vide New
     Discoveries, Vol. 4, pp. 154-56 for extracts of this class.

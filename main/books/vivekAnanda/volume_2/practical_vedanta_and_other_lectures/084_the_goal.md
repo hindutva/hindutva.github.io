@@ -2,13 +2,9 @@
 title: THE GOAL
 
 ---
-<div>
 
-[←](sankhya_and_vedanta.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-2](../volume_2_contents.htm) / [Practical Vedanta and other
-lectures](practical_vedanta_and_other_lectures_contents.htm)
-/ [→](../reports_in_american_newspapers/note.htm)
+
+
 
   
 
@@ -396,4 +392,4 @@ infinite death, he who sees that one life; in the midst of the manifold,
 he who sees that which never changes in his own soul — unto him belongs
 eternal peace.
 
-</div>
+

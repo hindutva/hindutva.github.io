@@ -2,13 +2,9 @@
 title: NOTES TAKEN DOWN IN MADRAS, 1892-93
 
 ---
-<div>
 
-[←](fragmentary_notes_on_the_ramayana.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Notes of Class Talks and
-Lectures](notes_of_class_talks_and_lectures_contents.htm)
-/ [→](concentration.htm)
+
+
 
   
 
@@ -762,4 +758,4 @@ To be shocked by a new custom is the father of all Superstition, the
 first road to hell. It leads to bigotry and fanaticism. Truth is heaven.
 Bigotry is hell.
 
-</div>
+

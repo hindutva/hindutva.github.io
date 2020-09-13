@@ -2,16 +2,13 @@
 title: CX
 
 ---
-<div>
 
-[←](109_joe_joe.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Epistles – Second
-Series](epistles_second_series_contents.htm) / [→](111_mrs_bull.htm)
+
+
 
   
 
-[«](109_joe_joe.htm) Chronology [»](111_mrs_bull.htm)
+
 
 ## CX
 
@@ -51,4 +48,4 @@ With all love and blessings,
 
 VIVEKANANDA.
 
-</div>
+

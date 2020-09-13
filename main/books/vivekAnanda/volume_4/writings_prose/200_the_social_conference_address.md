@@ -2,13 +2,9 @@
 title: THE SOCIAL CONFERENCE ADDRESS
 
 ---
-<div>
 
-[←](aryans_and_tamilians.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-4](../volume_4_contents.htm) / [Writings:
-Prose](writings_prose_contents.htm)
-/ [→](indias_message_to_the_world.htm)
+
+
 
   
 
@@ -181,4 +177,4 @@ India! Do not forget, child, that there are in this society problems
 that neither you nor your Western Guru can yet grasp the meaning of —
 much less solve!
 
-</div>
+

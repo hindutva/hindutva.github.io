@@ -2,13 +2,9 @@
 title: REPLY TO THE ADDRESS OF WELCOME AT RAMNAD
 
 ---
-<div>
 
-[←](address_at_the_rameshwaram_temple_on_real_worship.htm)
-[Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
-/ [Volume 3](../volume_3_contents.htm) / [Lectures from Colombo to
-Almora](lectures_from_colombo_to_almora_contents.htm)
-/ [→](reply_to_the_address_of_welcome_at_paramakudi.htm)
+
+
 
   
 
@@ -356,4 +352,4 @@ us, may it become strength in us, may it become energy in us to help
 each other; may we, the teacher and the taught, not be jealous of each
 other! Peace, peace, peace, in the name of Hari!
 
-</div>
+

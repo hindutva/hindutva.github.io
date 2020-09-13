@@ -4,17 +4,13 @@ title: 'SWAMI VIVEKANANDA''S FOOTNOTES
   TO THE IMITATION OF CHRIST'
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Writings: Prose and
 Poems](writings_prose_and_poems_contents.htm) /
 
-[←](macrocosm_and_microcosm.htm)
 
-## SWAMI VIVEKANANDA'S FOOTNOTES TO *THE IMITATION OF CHRIST*
-
-(*Prabuddha Bharata*, September 1982, pp. 390-93.)
 
 In 1889, Swami Vivekananda translated into Bengali selections from Book
 I, chapters 1-6 of Thomas à Kempis's *The Imitation of Christ*. They
@@ -300,7 +296,7 @@ carry away the mind of even a wise man striving after perfection.
 
 [→](the_plague_manifesto.htm)
 
-</div>
+
 
 1.  [^](#t1)In Bengali, the word Ishâ means Christ and Anusharana, "to
     follow"; hence Ishânusharana means "to follow Christ".

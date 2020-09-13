@@ -2,19 +2,13 @@
 title: CLXXVII
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
 
-[←](176_sister_christine.htm)  
-[←Chronology](176_sister_christine.htm)  
-[←Addressee](175_mrs_hansbrough.htm)
-
-## CLXXVII
-
-*To Mrs. Alice (Shanti) Hansbrough*
+ Hansbrough*
 
 102 E. 58TH STREET,  
 NEW YORK,
@@ -40,7 +34,7 @@ VIVEKANANDA
 [Addressee→](198_mrs_hansbrough.htm)  
 [Chronology→](../../volume_8/epistles_fourth_series/183_sister.htm)
 
-</div>
+
 
 1.  [^](#fn1_1)The three Mead sisters: Mrs. Alice Mead Hansbrough, Mrs.
     Carrie Mead Wyckoff and Miss Helen Mead.  

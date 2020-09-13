@@ -2,13 +2,9 @@
 title: V
 
 ---
-<div>
 
-[←](iv_sharat_chakravarty.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Conversations and
-Dialogues](conversations_and_dialogues_contents.htm)
-/ [→](vi_sharat_chakravarty.htm)
+
+
 
   
 
@@ -183,7 +179,7 @@ are vesting this precious human life on the fleeting pleasures of some
 silver coins and the frail beauty of women! Wonderful is the influence
 of Mahâmâyâ (Divine Illusion)! Mother! Oh Mother!"
 
-</div>
+
 
 1.  [^](#t1)Referring, that is to say, to some steps in the Vedic
     ceremony of a Brahmin's initiation.

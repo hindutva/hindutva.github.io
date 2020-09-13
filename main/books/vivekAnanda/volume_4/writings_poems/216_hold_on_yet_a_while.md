@@ -2,12 +2,9 @@
 title: HOLD ON YET A WHILE, BRAVE HEART
 
 ---
-<div>
 
-[←](requiescat_in_pace.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-4](../volume_4_contents.htm) / [Writings:
-Poems](writings_poems_contents.htm) / [→](nirvanashaktam.htm)
+
+
 
   
 
@@ -47,4 +44,4 @@ With thee is the Lord of might,
 All blessings pour on thee, great soul,  
      To thee may all come right!
 
-</div>
+

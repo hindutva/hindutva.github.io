@@ -2,19 +2,14 @@
 title: LV
 
 ---
-<div>
 
-[←](054_swami_ramakrishnananda.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Epistles – Second
-Series](epistles_second_series_contents.htm)
-/ [→](056_dear_and_beloved.htm)
+
+
 
   
 
-[«](054_swami_ramakrishnananda.htm) Chronology
-[»](056_dear_and_beloved.htm)  
-[«](028_akhandananda.htm) Addressee [»](072_akhandananda.htm)
+  
+
 
 ## LV
 
@@ -66,4 +61,4 @@ Ever yours, with blessings,
 
 VIVEKANANDA.
 
-</div>
+

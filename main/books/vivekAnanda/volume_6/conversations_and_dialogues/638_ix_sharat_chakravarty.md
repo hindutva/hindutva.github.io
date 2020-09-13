@@ -2,13 +2,9 @@
 title: IX
 
 ---
-<div>
 
-[←](viii_sharat_chakravarty.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Conversations and
-Dialogues](conversations_and_dialogues_contents.htm)
-/ [→](x_sharat_chakravarty.htm)
+
+
 
   
 
@@ -302,4 +298,4 @@ greater than all others in spiritual competence?
 Saying this, Girish Babu took leave of us all to go elsewhere on some
 business.
 
-</div>
+

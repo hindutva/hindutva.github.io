@@ -2,13 +2,9 @@
 title: MOTHER-WORSHIP
 
 ---
-<div>
 
-[←](lessons_on_bhakti-yoga.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Notes of Class Talks and
-Lectures](notes_of_class_talks_and_lectures_contents.htm)
-/ [→](narada-bhakti-sutras.htm)
+
+
 
   
 
@@ -187,4 +183,4 @@ with impartial, undying love, we are missing again and again. But then
 all will have vanished, and we shall see in all the same infinite
 eternal Mother.
 
-</div>
+

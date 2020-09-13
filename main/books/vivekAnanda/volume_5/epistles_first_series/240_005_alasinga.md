@@ -2,18 +2,14 @@
 title: V
 
 ---
-<div>
 
-[←](004_alasinga.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Epistles – First
-Series](epistles_first_series_contents.htm) / [→](006_haripada.htm)
+
+
 
   
 
-[«](../../volume_7/epistles_third_series/12_adhyapakji.htm) Chronology
-[»](../../volume_7/epistles_third_series/13_mrs_woods.htm)  
-[«](004_alasinga.htm) Addressee [»](008_alasinga.htm)
+  
+
 
 ## V
 
@@ -191,4 +187,4 @@ photograph in America.
 
 V
 
-</div>
+

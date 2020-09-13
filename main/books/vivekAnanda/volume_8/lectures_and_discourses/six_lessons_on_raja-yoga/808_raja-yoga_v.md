@@ -4,14 +4,9 @@ title: 'RAJA YOGA
   FIFTH LESSON'
 
 ---
-<div>
 
-[←](raja-yoga_iv.htm) [Home](../../../../index.htm) /
-[Complete-Works](../../../complete_works.htm) / [Volume
-8](../../volume_8_contents.htm) / [Lectures and
-Discourses](../lectures_and_discourses_contents.htm) / [Six Lessons on
-Raja-Yoga](six_lessons_on_raja-yoga_contents.htm)
-/ [→](raja-yoga_vi.htm)
+
+
 
   
 
@@ -93,4 +88,4 @@ at rest for ever; having the all, nothing is left to strive for, and we
 are for ever in free and perfect existence — Existence absolute,
 Knowledge absolute, Bliss absolute.
 
-</div>
+

@@ -2,18 +2,14 @@
 title: LXXXV
 
 ---
-<div>
 
-[←](084_mrs_bull.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Epistles – Second
-Series](epistles_second_series_contents.htm) / [→](086_mrs_bull.htm)
+
+
 
   
 
-[«](../../volume_8/epistles_fourth_series/060_blessed_and_beloved.htm)
-Chronology [»](../../volume_5/epistles_first_series/054_alasinga.htm)  
-[«](072_akhandananda.htm) Addressee [»](128_akhandananda.htm)
+  
+
 
 ## LXXXV
 
@@ -92,4 +88,4 @@ Yours affectionately,
 
 VIVEKANANDA.
 
-</div>
+

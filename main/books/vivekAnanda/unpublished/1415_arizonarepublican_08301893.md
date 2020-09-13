@@ -2,12 +2,9 @@
 title: Brahmin Monk in Framingham
 
 ---
-<div>
 
-[←](nyt_may_2_1894.htm) [Home](../../index.htm) /
-[Complete-Works](../complete_works.htm) /
-[Unpublished](unpublished_contents.htm) /
-[→](cedarrapidseveninggazette_08301893.htm)
+
+
 
   
 
@@ -27,4 +24,4 @@ himself as highly pleased with what he saw. He returned this evening to
 Metcalf, where he is the guest of Miss Kate Sanborn at her abandoned
 farm.
 
-</div>
+

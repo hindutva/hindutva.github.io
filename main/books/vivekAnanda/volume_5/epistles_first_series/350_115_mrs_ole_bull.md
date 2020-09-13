@@ -2,19 +2,14 @@
 title: CXV
 
 ---
-<div>
 
-[←](114_swarup.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Epistles – First
-Series](epistles_first_series_contents.htm)
-/ [→](116_sister_nivedita.htm)
+
+
 
   
 
-[«](114_swarup.htm) Chronology [»](116_sister_nivedita.htm)  
-[«](../../volume_9/letters_fifth_series/197_mother.htm) Addressee
-[»](../../volume_9/letters_fifth_series/220_mother.htm)
+  
+
 
 ## CXV
 
@@ -89,4 +84,4 @@ I am, as ever, your most affectionate son.
 
 VIVEKANANDA.
 
-</div>
+

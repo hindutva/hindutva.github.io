@@ -2,12 +2,9 @@
 title: FOUR PATHS OF YOGA
 
 ---
-<div>
 
-[←](the_birth_of_religion.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Writings:
-Prose](writings_prose_contents.htm) / [→](cyclic_rest_and_change.htm)
+
+
 
   
 
@@ -108,4 +105,4 @@ its real nature are the only ways in this Yoga. It is the highest, but
 most difficult. Many persons get an intellectual grasp of it, but very
 few attain realisation.
 
-</div>
+

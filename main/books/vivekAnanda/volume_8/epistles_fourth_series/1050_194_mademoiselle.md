@@ -2,18 +2,13 @@
 title: CXCIV
 
 ---
-<div>
 
-[←](193_turiyananda.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Epistles – Fourth
-Series](epistles_fourth_series_contents.htm)
-/ [→](195_sister_christine.htm)
+
+
 
   
 
-[«](../../volume_7/epistles_third_series/53_alberta.htm) Chronology
-[»](195_sister_christine.htm)  
+  
 Addressee [»](../../volume_9/letters_fifth_series/223_mademoiselle.htm)
 
 ## CXCIV
@@ -38,4 +33,4 @@ My letter is funny, isn't it? But it is my first attempt.
 Yours faithfully,  
 VIVEKANANDA.
 
-</div>
+

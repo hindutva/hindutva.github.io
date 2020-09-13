@@ -2,15 +2,13 @@
 title: CLII
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
 
-[←](151_christina.htm)  
-[←Chronology](151_christina.htm)  
-[←Addressee](151_christina.htm)
+
 
 ## CLII
 
@@ -49,4 +47,4 @@ V.
 [Addressee→](154_christina.htm)  
 [Chronology→](153_mrs_bull.htm)
 
-</div>
+

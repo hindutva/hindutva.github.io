@@ -2,17 +2,13 @@
 title: THE GITA
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Notes of Lectures and
 Classes](notes_of_lectures_and_classes_contents.htm) /
 
-[←](class_lessons_in_meditation.htm)
 
-## THE GITA
-
-(*New Discoveries*, Vol. 6, pp. 175-76.)
 
 *\[Mr. Frank Rhodehamel's notes of a Bhagavad-Gitâ class delivered
 Thursday, May 24, 1900, in San Francisco, California\]*
@@ -88,4 +84,4 @@ if he never did. There would have been one less god in the world."
 
 [→](the_gita_i.htm)
 
-</div>
+

@@ -2,15 +2,13 @@
 title: XLVIII
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
 
-[←](047_miss_thursby.htm)  
-[←Chronology](../../volume_5/epistles_first_series/032_sister.htm)  
-[←Addressee](../../volume_7/epistles_third_series/22_adhyapakji.htm)
+
 
 ## XLVIII
 
@@ -43,4 +41,4 @@ VIVEKANANDA
 [Addressee→](../../volume_7/epistles_third_series/35_adhyapakji.htm)  
 [Chronology→](../../volume_5/epistles_first_series/033_alasinga.htm)
 
-</div>
+

@@ -4,12 +4,9 @@ title: 'RECORDED BY MISS S. E. WALDO
   (A DISCIPLE)'
 
 ---
-<div>
 
-[←](07_friday_june_28.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Inspired
-Talks](inspired_talks_contents.htm) / [→](09_sunday_june_30.htm)
+
+
 
   
 
@@ -71,4 +68,4 @@ does not act.
 
 While real perfection is only one, relative perfections must be many.
 
-</div>
+

@@ -2,18 +2,14 @@
 title: XXXIII
 
 ---
-<div>
 
-[←](032_sister.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Epistles – Fourth
-Series](epistles_fourth_series_contents.htm) / [→](034_diwanji.htm)
+
+
 
   
 
-[«](../../volume_9/letters_fifth_series/043_mother.htm) Chronology
-[»](034_diwanji.htm)  
-[«](030_diwanji_saheb.htm) Addressee [»](034_diwanji.htm)
+  
+
 
 ## XXXIII
 
@@ -128,4 +124,4 @@ Yours with blessings,
 
 VIVEKANANDA.
 
-</div>
+

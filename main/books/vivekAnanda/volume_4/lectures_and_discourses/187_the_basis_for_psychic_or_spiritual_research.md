@@ -2,13 +2,9 @@
 title: THE BASIS FOR PSYCHIC OR SPIRITUAL RESEARCH
 
 ---
-<div>
 
-[←](indian_religious_thought.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-4](../volume_4_contents.htm) / [Lectures and
-Discourses](lectures_and_discourses_contents.htm)
-/ [→](on_art_in_india.htm)
+
+
 
   
 
@@ -129,4 +125,4 @@ we are fit to receive the demonstration or not, whether we have
 permitted our bodies and our minds to become fit subjects for their
 discovery.
 
-</div>
+

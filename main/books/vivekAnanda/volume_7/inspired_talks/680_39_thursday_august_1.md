@@ -4,12 +4,9 @@ title: 'RECORDED BY MISS S. E. WALDO
   (A DISCIPLE)'
 
 ---
-<div>
 
-[←](38_wednesday_july_31.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Inspired
-Talks](inspired_talks_contents.htm) / [→](40_friday_august_2.htm)
+
+
 
   
 
@@ -92,4 +89,4 @@ easily acquired, but it is of no real value; and to practise it takes
 just so much from our spiritual forces. Go not after these things,
 worship God.
 
-</div>
+

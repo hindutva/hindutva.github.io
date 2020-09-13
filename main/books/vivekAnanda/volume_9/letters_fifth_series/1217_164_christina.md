@@ -2,15 +2,13 @@
 title: CLXIV
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
 
-[←](163_joe.htm)  
-[←Chronology](../../volume_8/epistles_fourth_series/163_dhira_mata.htm)  
-[←Addressee](161_christina.htm)
+
 
 ## CLXIV
 
@@ -44,4 +42,4 @@ VIVEKANANDA.
 [Addressee→](165_sister_christine.htm)  
 [Chronology→](../../volume_7/epistles_third_series/48_mother.htm)
 
-</div>
+

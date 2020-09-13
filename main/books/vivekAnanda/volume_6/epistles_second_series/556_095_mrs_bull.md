@@ -2,19 +2,14 @@
 title: XCV
 
 ---
-<div>
 
-[←](094_sarada.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Epistles – Second
-Series](epistles_second_series_contents.htm) / [→](096_mrs_bull.htm)
+
+
 
   
 
-[«](../../volume_7/epistles_third_series/31_alasinga.htm) Chronology
-[»](../../volume_9/letters_fifth_series/090_christina.htm)  
-[«](../../volume_9/letters_fifth_series/085_mrs_bull.htm) Addressee
-[»](096_mrs_bull.htm)
+  
+
 
 ## XCV
 
@@ -39,4 +34,4 @@ Yours with kind regards,
 
 VIVEKANANDA.
 
-</div>
+

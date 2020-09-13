@@ -2,18 +2,14 @@
 title: LIV
 
 ---
-<div>
 
-[←](053_alasinga.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Epistles – First
-Series](epistles_first_series_contents.htm) / [→](055_alasinga.htm)
+
+
 
   
 
-[«](../../volume_6/epistles_second_series/085_akhandananda.htm)
-Chronology [»](../../volume_6/epistles_second_series/086_mrs_bull.htm)  
-[«](053_alasinga.htm) Addressee [»](055_alasinga.htm)
+  
+
 
 ## LIV
 
@@ -54,4 +50,4 @@ Ever yours with love and blessings,
 
 VIVEKANANDA.
 
-</div>
+

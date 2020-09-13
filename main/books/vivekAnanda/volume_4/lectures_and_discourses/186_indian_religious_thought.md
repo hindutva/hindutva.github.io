@@ -2,13 +2,9 @@
 title: INDIAN RELIGIOUS THOUGHT
 
 ---
-<div>
 
-[←](my_master.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-4](../volume_4_contents.htm) / [Lectures and
-Discourses](lectures_and_discourses_contents.htm)
-/ [→](the_basis_for_psychic_or_spiritual_research.htm)
+
+
 
   
 
@@ -131,4 +127,4 @@ the imperfection of the temporal instrument of its expression. As we
 rise higher and higher in the scale of being, the medium becomes more
 and more translucent.
 
-</div>
+

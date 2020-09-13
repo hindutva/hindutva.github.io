@@ -2,17 +2,13 @@
 title: A PLAN OF WORK FOR INDIA
 
 ---
-<div>
 
-[←](to_my_brave_boys.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-4](../volume_4_contents.htm) / [Writings:
-Prose](writings_prose_contents.htm) / [→](fundamentals_of_religion.htm)
+
+
 
   
 
-[«](../../volume_5/epistles_first_series/028_mrs_bull.htm) Chronology
-[»](../../volume_5/epistles_first_series/029_gg.htm)
+
 
 ## A PLAN OF WORK FOR INDIA
 
@@ -112,4 +108,4 @@ sacrifice myself unto Thee." (Yajurveda Samhitâ).
 
 May the Lord bless you for ever and ever!
 
-</div>
+

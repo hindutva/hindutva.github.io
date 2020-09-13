@@ -2,19 +2,14 @@
 title: XXXVI
 
 ---
-<div>
 
-[←](35_adhyapakji.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Epistles – Third
-Series](epistles_third_series_contents.htm) / [→](37_friend.htm)
+
+
 
   
 
-[«](../../volume_6/epistles_second_series/099_mrs_bull.htm) Chronology
-[»](../../volume_6/epistles_second_series/100_shashi.htm)  
-[«](../../volume_6/epistles_second_series/082_dear.htm) Addressee
-[»](../../volume_9/letters_fifth_series/100_miss_noble.htm)
+  
+
 
 ## XXXVI
 
@@ -56,4 +51,4 @@ Yours affectionately,
 
 VIVEKANANDA.
 
-</div>
+

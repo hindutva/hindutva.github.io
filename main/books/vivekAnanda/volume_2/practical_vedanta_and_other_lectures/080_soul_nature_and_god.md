@@ -2,13 +2,9 @@
 title: SOUL, NATURE, AND GOD
 
 ---
-<div>
 
-[←](yajnavalkya_and_maitreyi.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-2](../volume_2_contents.htm) / [Practical Vedanta and other
-lectures](practical_vedanta_and_other_lectures_contents.htm)
-/ [→](cosmology.htm)
+
+
 
   
 
@@ -260,4 +256,4 @@ souls. It is the same Infinite Soul, which is the background of the
 universe, that we call God. The same Infinite Soul also is the
 background of the human mind which we call the human soul.
 
-</div>
+

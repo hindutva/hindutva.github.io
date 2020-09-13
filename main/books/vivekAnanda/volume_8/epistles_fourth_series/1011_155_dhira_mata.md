@@ -2,18 +2,14 @@
 title: CLV
 
 ---
-<div>
 
-[←](154_dhira_mata.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Epistles – Fourth
-Series](epistles_fourth_series_contents.htm) / [→](156_mary.htm)
+
+
 
   
 
-[«](../../volume_6/epistles_second_series/153_nivedita.htm) Chronology
-[»](156_mary.htm)  
-[«](154_dhira_mata.htm) Addressee [»](158_dhira_mata.htm)
+  
+
 
 ## CLV
 
@@ -49,4 +45,4 @@ Glad it is ended.
 Ever your loving son,  
 VIVEKANANDA.
 
-</div>
+

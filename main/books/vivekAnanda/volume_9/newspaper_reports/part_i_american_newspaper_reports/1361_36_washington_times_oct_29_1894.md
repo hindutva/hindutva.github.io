@@ -2,7 +2,7 @@
 title: LOVE RELIGION'S ESSENCE
 
 ---
-<div>
+
 
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
@@ -10,12 +10,7 @@ title: LOVE RELIGION'S ESSENCE
 Reports](../newspaper_reports_contents.htm) / [American Newspaper
 Reports](american_newspaper_contents.htm) /
 
-[←](35_baltimore_sunday_herald_oct_14_1894.htm)
 
-## LOVE RELIGION'S ESSENCE
-
-(Ray and Wanda Ellis, "Swami Vivekananda in Washington D.C.", *The
-Vedanta Kesari*, 1991, pp. 370-73.)
 
 Vive Kananda, a Brahmin Monk,  
 Preaches at the People's Church
@@ -143,4 +138,4 @@ infinitely more power in love.
 
 [→](37_washington_times_nov_2_1894.htm)
 
-</div>
+

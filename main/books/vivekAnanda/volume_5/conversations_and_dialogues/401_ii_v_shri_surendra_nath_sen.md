@@ -2,13 +2,9 @@
 title: II
 
 ---
-<div>
 
-[←](i_shri_surendra_nath_das_gupta.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Conversations and
-Dialogues](conversations_and_dialogues_contents.htm)
-/ [→](vi_x_shri_priya_nath_sinha.htm)
+
+
 
   
 
@@ -573,4 +569,4 @@ replied, 'there is Turkey and the Island of Crete.'"
 
 Was it but a dream, or is there anything in the above vision? Who knows!
 
-</div>
+

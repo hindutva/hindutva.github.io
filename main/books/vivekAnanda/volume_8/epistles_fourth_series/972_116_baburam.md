@@ -2,17 +2,13 @@
 title: CXVI
 
 ---
-<div>
 
-[←](115_rakhal.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Epistles – Fourth
-Series](epistles_fourth_series_contents.htm) / [→](117_rakhal.htm)
+
+
 
   
 
-[«](../../volume_6/epistles_second_series/140_mother.htm) Chronology
-[»](117_rakhal.htm)
+
 
 ## CXVI
 
@@ -46,4 +42,4 @@ PS. My love to all.
 
 V.
 
-</div>
+

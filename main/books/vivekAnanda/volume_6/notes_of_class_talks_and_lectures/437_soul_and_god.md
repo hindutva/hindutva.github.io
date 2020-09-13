@@ -2,13 +2,9 @@
 title: SOUL AND GOD
 
 ---
-<div>
 
-[←](how_to_become_free.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Notes of Class Talks and
-Lectures](notes_of_class_talks_and_lectures_contents.htm)
-/ [→](the_goal.htm)
+
+
 
   
 
@@ -37,4 +33,4 @@ The idea is very crude.
 The idea of the continuity of life is foolish. We can never get rid of
 death until we get rid of life.
 
-</div>
+

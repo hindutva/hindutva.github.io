@@ -2,12 +2,9 @@
 title: SHIVA IN ECSTASY
 
 ---
-<div>
 
-[←](the_dance_of_shiva.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Writings:
-Poems](writings_poems_contents.htm) / [→](to_shri_krishna.htm)
+
+
 
   
 
@@ -24,4 +21,4 @@ The waters of the Ganga are roaring among his matted
 The great trident is vomiting fire, and the moon on his  
         forehead is fiercely flaming.
 
-</div>
+

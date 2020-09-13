@@ -2,7 +2,7 @@
 title: SWAMI VIVEKANANDA IN AMERICA
 
 ---
-<div>
+
 
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
@@ -10,13 +10,7 @@ title: SWAMI VIVEKANANDA IN AMERICA
 Reports](../newspaper_reports_contents.htm) / [Indian Newspaper
 Reports](indian_newspaper_contents.htm) /
 
-[←](08_the_indian_mirror_dec_1_1895.htm)
-
-## SWAMI VIVEKANANDA IN AMERICA
-
-(*Vivekananda in Indian Newspapers*, pp. 89-90.)
-
-\[*The Indian Mirror* (from the *New York Herald*),
+,
 
 March 25, 1896\]
 
@@ -55,4 +49,4 @@ country, he declares that he is preaching simply philosophy.
 
 [→](10_the_indian_mirror_jun_19_1896.htm)
 
-</div>
+

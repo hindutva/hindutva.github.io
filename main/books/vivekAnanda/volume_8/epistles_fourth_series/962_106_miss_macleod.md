@@ -2,18 +2,14 @@
 title: CVI
 
 ---
-<div>
 
-[←](105_haripada.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Epistles – Fourth
-Series](epistles_fourth_series_contents.htm) / [→](107_rakhal.htm)
+
+
 
   
 
-[«](105_haripada.htm) Chronology [»](107_rakhal.htm)  
-[«](../../volume_5/epistles_first_series/080_joe.htm) Addressee
-[»](125_joe_joe.htm)
+  
+
 
 ## CVI
 
@@ -37,4 +33,4 @@ Yours in the Lord,
 
 VIVEKANANDA.
 
-</div>
+

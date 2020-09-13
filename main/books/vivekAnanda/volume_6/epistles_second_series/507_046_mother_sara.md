@@ -2,18 +2,13 @@
 title: XLVI
 
 ---
-<div>
 
-[←](045_brothers.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Epistles – Second
-Series](epistles_second_series_contents.htm)
-/ [→](047_brother_disciples.htm)
+
+
 
   
 
-[«](../../volume_8/epistles_fourth_series/030_diwanji_saheb.htm)
-Chronology [»](../../volume_9/letters_fifth_series/035_mother.htm)  
+  
 Addressee [»](048_mrs_bull.htm)
 
 ## XLVI
@@ -50,4 +45,4 @@ VIVEKANANDA.
 PS. Kindly write me whether the Guernseys have returned to town or are
 still in Fishkill. — V.
 
-</div>
+

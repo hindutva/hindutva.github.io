@@ -2,7 +2,7 @@
 title: NATIVE INDIAN LECTURER AT PRINCES' HALL
 
 ---
-<div>
+
 
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
@@ -10,11 +10,7 @@ title: NATIVE INDIAN LECTURER AT PRINCES' HALL
 Reports](../newspaper_reports_contents.htm) / [European Newspaper
 Reports](european_newspaper_contents.htm) /
 
-[←](standard_oct_23_1895.htm)
 
-## NATIVE INDIAN LECTURER AT PRINCES' HALL
-
-(*New Discoveries*, Vol. 3, p. 248.)
 
 \[*London Morning Post*, October 23, 1895\]
 
@@ -46,4 +42,4 @@ remarks were listened to with attention by the somewhat small audience.
 
 [→](christian_commonwealth_nov_14_1895.htm)
 
-</div>
+

@@ -2,7 +2,7 @@
 title: A WITTY HINDU
 
 ---
-<div>
+
 
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
@@ -10,11 +10,7 @@ title: A WITTY HINDU
 Reports](../newspaper_reports_contents.htm) / [American Newspaper
 Reports](american_newspaper_contents.htm) /
 
-[←](12_iowa_state_register_dec_1_1893.htm)
 
-## A WITTY HINDU
-
-(*New Discoveries*, Vol. 1, pp. 216-17.)
 
 \[*Minneapolis Journal*, December 15, 1893\]
 
@@ -45,4 +41,4 @@ were asked by persons in the audience.
 
 [→](14_minneapolis_tribune_dec_15_1893.htm)
 
-</div>
+

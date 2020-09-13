@@ -2,13 +2,9 @@
 title: 'VEDANTA IN ITS APPLICATION TO INDIAN LIFE '
 
 ---
-<div>
 
-[←](my_plan_of_campaign.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-3](../volume_3_contents.htm) / [Lectures from Colombo to
-Almora](lectures_from_colombo_to_almora_contents.htm)
-/ [→](the_sages_of_india.htm)
+
+
 
   
 
@@ -598,4 +594,4 @@ at the same time may you never be without work."
 May He who taught such grand ideas to our forefathers ages ago help us
 to get strength to carry into practice His commands!
 
-</div>
+

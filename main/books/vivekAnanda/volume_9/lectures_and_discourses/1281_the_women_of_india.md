@@ -2,17 +2,13 @@
 title: THE WOMEN OF INDIA
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Lectures and
 Discourses](lectures_and_discourses_contents.htm) /
 
-[←](../letters_fifth_series/227_christine.htm)
 
-## THE WOMEN OF INDIA
-
-(*New Discoveries*, Vol. 2, pp. 411-26.)
 
 *The following lecture was delivered at Cambridge, December 17, 1894,
 and recorded by Miss Frances Willard’s stenographer.*
@@ -648,7 +644,7 @@ together".
 
 [→](the_first_step_towards_jnana.htm)
 
-</div>
+
 
 1.  [^](#fn1_1)Since Swami Vivekananda's time there has been more
     research on the spread of the Aryan culture.

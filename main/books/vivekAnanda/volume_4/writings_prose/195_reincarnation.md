@@ -2,12 +2,9 @@
 title: REINCARNATION
 
 ---
-<div>
 
-[←](is_the_soul_immortal.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-4](../volume_4_contents.htm) / [Writings:
-Prose](writings_prose_contents.htm) / [→](on_dr_paul_deussen.htm)
+
+
 
   
 
@@ -494,4 +491,4 @@ or materialism. Which shall we accept?
     Egyptische Gräberwelt, pp. 39, 40, and into French by Maspero,
     Etudes Egyptiennes, vol. I., pp. 181-90.
 
-</div>
+

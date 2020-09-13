@@ -2,15 +2,13 @@
 title: CCXIV
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
 
-[←](213_christine.htm)  
-[←Chronology](213_christine.htm)  
-[←Addressee](213_christine.htm)
+
 
 ## CCXIV
 
@@ -55,4 +53,4 @@ VIVEKANANDA.
 [Addressee→](219_christine.htm)  
 [Chronology→](215_joe.htm)
 
-</div>
+

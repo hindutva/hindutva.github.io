@@ -2,12 +2,9 @@
 title: RAJA-YOGA IN BRIEF
 
 ---
-<div>
 
-[←](dhyana_and_samadhi.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-1](../complete_works_v1_contents.htm)
-/ [Raja-Yoga](raja-yoga_contents.htm) / [→](introduction.htm)
+
+
 
   
 
@@ -188,4 +185,4 @@ nothing discouraged him. But the first man felt that even four more
 births were too long. Only perseverance, like that of the man who was
 willing to wait aeons brings about the highest result.
 
-</div>
+

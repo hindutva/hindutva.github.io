@@ -2,17 +2,13 @@
 title: MACROCOSM AND MICROCOSM
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Writings: Prose and
 Poems](writings_prose_and_poems_contents.htm) /
 
-[←](lecture_notes.htm)
 
-## MACROCOSM AND MICROCOSM
-
-(*The Life of Swami Vivekananda*, Vol. I. p. 250.)
 
 *After his experience of the macrocosm within the microcosm while
 absorbed in meditation under the peepul tree at Kakrighat, in 1890,
@@ -36,4 +32,4 @@ Formless.
 
 [→](footnotes.htm)
 
-</div>
+

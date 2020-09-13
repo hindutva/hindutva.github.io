@@ -2,13 +2,9 @@
 title: VIII
 
 ---
-<div>
 
-[←](vii_sharat_chakravarty.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Conversations and
-Dialogues](conversations_and_dialogues_contents.htm)
-/ [→](ix_sharat_chakravarty.htm)
+
+
 
   
 
@@ -242,4 +238,4 @@ the urge within towards anything to be done, you won't have any peace
 until you see the utmost done about it. Now what you have a mind to have
 done shall be done no doubt."
 
-</div>
+

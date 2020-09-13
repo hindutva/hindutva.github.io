@@ -2,13 +2,9 @@
 title: THE RELIGIONS OF INDIA
 
 ---
-<div>
 
-[←](the_manners_and_customs_of_india.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-2](../volume_2_contents.htm) / [Reports in American
-Newspapers](reports_in_american_newspapers_contents.htm)
-/ [→](sects_and_doctrines_in_india.htm)
+
+
 
   
 
@@ -60,4 +56,4 @@ The speaker brought his lecture to a close by giving an account of the
 Jains, who show remarkable kindness to dumb animals, and whose moral law
 is summed up in the words: "Not to injure others is the highest good."
 
-</div>
+

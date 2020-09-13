@@ -2,13 +2,9 @@
 title: THE HYMN OF SAMADHI
 
 ---
-<div>
 
-[←](the_hymn_of_creation.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-4](../volume_4_contents.htm) / [Translations:
-Poems](translation_poems_contents.htm)
-/ [→](a_hymn_to_the_divine_mother.htm)
+
+
 
   
 
@@ -32,4 +28,4 @@ Lo! 'Tis stopped, ev'n that current flows no more,
 Void merged into void — beyond speech and mind!  
 Whose heart understands, he verily does.
 
-</div>
+

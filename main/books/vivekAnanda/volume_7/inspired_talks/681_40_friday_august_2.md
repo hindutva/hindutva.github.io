@@ -4,12 +4,9 @@ title: 'RECORDED BY MISS S. E. WALDO
   (A DISCIPLE)'
 
 ---
-<div>
 
-[←](39_thursday_august_1.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Inspired
-Talks](inspired_talks_contents.htm) / [→](41_saturday_august_3.htm)
+
+
 
   
 
@@ -100,4 +97,4 @@ Stand on your own Self.
 The dead body resents nothing; let us make our bodies dead and cease to
 identify ourselves with them.
 
-</div>
+

@@ -2,13 +2,9 @@
 title: 'LESSONS ON BHAKTI-YOGA '
 
 ---
-<div>
 
-[←](lessons_on_raja-yoga.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Notes of Class Talks and
-Lectures](notes_of_class_talks_and_lectures_contents.htm)
-/ [→](mother_worship.htm)
+
+
 
   
 
@@ -287,4 +283,4 @@ years ago has the vision been seen, and the unity which lies beyond has
 been recognised; and now the only thing we can do is to fill in these
 glorious outlines.
 
-</div>
+

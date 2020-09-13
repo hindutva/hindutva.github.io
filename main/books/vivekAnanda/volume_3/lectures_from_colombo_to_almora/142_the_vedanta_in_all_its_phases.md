@@ -2,13 +2,9 @@
 title: THE VEDANTA IN ALL ITS PHASES
 
 ---
-<div>
 
-[←](address_of_welcome_presented_at_calcutta_and_reply.htm)
-[Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
-/ [Volume 3](../volume_3_contents.htm) / [Lectures from Colombo to
-Almora](lectures_from_colombo_to_almora_contents.htm)
-/ [→](address_of_welcome_at_almora_and_reply.htm)
+
+
 
   
 
@@ -856,4 +852,4 @@ God."
 "Thus seeing the Lord the same everywhere, he, the sage, does not hurt
 the Self by the self, and so goes to the highest goal."
 
-</div>
+

@@ -2,13 +2,9 @@
 title: PRACTICAL VEDANTA
 
 ---
-<div>
 
-[←](practical_vedanta_part_iii.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-2](../volume_2_contents.htm) / [Practical Vedanta and other
-lectures](practical_vedanta_and_other_lectures_contents.htm)
-/ [→](the_way_to_the_realisation_of_a_universal_religion.htm)
+
+
 
   
 
@@ -559,4 +555,4 @@ be the object of worship.
 
 1.  [^](#txt1)![](practical_vedanta_part_iv.jpg)
 
-</div>
+

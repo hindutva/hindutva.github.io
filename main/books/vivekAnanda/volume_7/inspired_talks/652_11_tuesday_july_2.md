@@ -4,12 +4,9 @@ title: 'RECORDED BY MISS S. E. WALDO
   (A DISCIPLE)'
 
 ---
-<div>
 
-[←](10_monday_july_1.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Inspired
-Talks](inspired_talks_contents.htm) / [→](12_wednesday_july_3.htm)
+
+
 
   
 
@@ -57,4 +54,4 @@ A bit of Mother, a drop, was Krishna, another was Buddha, another was
 Christ. The worship of even one spark of Mother in our earthly mother
 leads to greatness. Worship Her if you want love and wisdom.
 
-</div>
+

@@ -2,15 +2,13 @@
 title: XC
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
 
-[←](089_mrs_funkey.htm)  
-[←Chronology](../../volume_6/epistles_second_series/095_mrs_bull.htm)  
-[←Addressee](088_christina.htm)
+
 
 ## XC
 
@@ -48,4 +46,4 @@ V.
 [Addressee→](091_christina.htm)  
 [Chronology→](../../volume_5/epistles_first_series/061_dr_nanjunda_rao.htm)
 
-</div>
+

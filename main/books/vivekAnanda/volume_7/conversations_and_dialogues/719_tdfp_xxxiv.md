@@ -2,12 +2,9 @@
 title: 'CONVERSATIONS AND DIALOGUE '
 
 ---
-<div>
 
-[←](taa_xxxiii.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Conversations and
-Dialogues](conversations_and_dialogues_contents.htm) / [→](tdt_xxxv.htm)
+
+
 
   
 
@@ -173,4 +170,4 @@ world that. I have to thank you of America for the great attempt you are
 making to break down the barriers of this little world of ours, and hope
 that, in the future, the Lord will help you to accomplish that purpose."
 
-</div>
+

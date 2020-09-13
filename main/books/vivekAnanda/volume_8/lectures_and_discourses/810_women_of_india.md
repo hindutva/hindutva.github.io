@@ -2,13 +2,9 @@
 title: WOMEN OF INDIA
 
 ---
-<div>
 
-[←](six_lessons_on_raja-yoga/raja-yoga_vi.htm)
-[Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
-/ [Volume 8](../volume_8_contents.htm) / [Lectures and
-Discourses](lectures_and_discourses_contents.htm)
-/ [→](my_life_and_mission.htm)
+
+
 
   
 
@@ -600,4 +596,4 @@ your ideal is matter, matter shalt thou be. Behold! Our ideal is the
 Spirit. That alone exists, nothing else exists; and like Him, we live
 for ever."
 
-</div>
+

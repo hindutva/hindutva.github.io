@@ -2,13 +2,9 @@
 title: INDIA
 
 ---
-<div>
 
-[←](the_love_of_god_ii.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Notes of Class Talks and
-Lectures](notes_of_class_talks_and_lectures_contents.htm)
-/ [→](hindus_and_christians.htm)
+
+
 
   
 
@@ -148,4 +144,4 @@ makes itself felt with his auditors, for it manifests itself in the love
 for animate and inanimate things and in the keen insight into the
 mysterious workings of the divine law of harmony and kindly intentions.
 
-</div>
+

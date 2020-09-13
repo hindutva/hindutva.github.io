@@ -2,7 +2,7 @@
 title: THE MAJLIS IN CAMBRIDGE
 
 ---
-<div>
+
 
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
@@ -10,16 +10,7 @@ title: THE MAJLIS IN CAMBRIDGE
 Reports](../newspaper_reports_contents.htm) / [Indian Newspaper
 Reports](indian_newspaper_contents.htm) /
 
-[←](14_the_indian_mirror_dec_16_1896.htm)
-
-## THE MAJLIS IN CAMBRIDGE
-
-(*Vivekananda in Indian Newspapers*, pp. 310-11.)
-
-\[*The Amrita Bazar Patrika*, January 8, 1897\]
-
-. . . The gathering was a unique one, for the Indians met together to
-talk (in the Majlis they all talk), about the successes of Ranjit
+, about the successes of Ranjit
 Sing\[h\] and Atul Chandra Chatterjee. It is a pity the name of
 Professor Bose was not associated with the above two; and we think,
 Swami Vivekananda, who was present on the occasion, also deserved a
@@ -54,4 +45,4 @@ Sinhji"](14_the_indian_mirror_dec_16_1896.htm), p.541.)
 
 [→](16_the_amrita_bazar_patrika_jan_20_1897.htm)
 
-</div>
+

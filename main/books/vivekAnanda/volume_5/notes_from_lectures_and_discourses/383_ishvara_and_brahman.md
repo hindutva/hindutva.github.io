@@ -2,13 +2,9 @@
 title: ISHVARA AND BRAHMAN
 
 ---
-<div>
 
-[←](on_bhakti-yoga.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Notes from Lectures and
-Discourses](notes_from_lectures_and_discourses_contents.htm)
-/ [→](on_jnana-yoga.htm)
+
+
 
   
 
@@ -34,4 +30,4 @@ which nothing can exist; and whatever is real is that principle, or
 Brahman. When I think I am Brahman, I alone exist; so with others.
 Therefore, each one is the whole of that principle."
 
-</div>
+

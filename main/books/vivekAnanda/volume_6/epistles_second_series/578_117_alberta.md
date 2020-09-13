@@ -2,19 +2,14 @@
 title: CXVII
 
 ---
-<div>
 
-[←](116_sisters.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Epistles – Second
-Series](epistles_second_series_contents.htm) / [→](118_mrs_bull.htm)
+
+
 
   
 
-[«](116_sisters.htm) Chronology
-[»](../../volume_8/epistles_fourth_series/086_joe.htm)  
-[«](../../volume_7/epistles_third_series/33_sister.htm) Addressee
-[»](120_alberta.htm)
+  
+
 
 ## CXVII
 
@@ -41,4 +36,4 @@ With all love and blessings,
 
 VIVEKANANDA.
 
-</div>
+

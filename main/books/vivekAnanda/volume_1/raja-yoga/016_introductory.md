@@ -2,12 +2,9 @@
 title: INTRODUCTORY
 
 ---
-<div>
 
-[←](preface.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-1](../complete_works_v1_contents.htm)
-/ [Raja-Yoga](raja-yoga_contents.htm) / [→](the_first_steps.htm)
+
+
 
   
 
@@ -380,4 +377,4 @@ Yogi: He who fasts, he who keeps awake, he who sleeps much, he who works
 too much, he who does no work, none of these can be a Yogi (Gita, VI,
 16).
 
-</div>
+

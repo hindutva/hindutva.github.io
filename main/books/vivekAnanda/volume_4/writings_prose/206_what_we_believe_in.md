@@ -2,17 +2,13 @@
 title: WHAT WE BELIEVE IN
 
 ---
-<div>
 
-[←](a_message_of_sympathy_to_a_friend.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-4](../volume_4_contents.htm) / [Writings:
-Prose](writings_prose_contents.htm) / [→](our_duty_to_the_masses.htm)
+
+
 
   
 
-[«](../../volume_9/letters_fifth_series/011_mother.htm) Chronology
-[»](../../volume_9/letters_fifth_series/012_mother.htm)  
+  
 Addressee [»](../../volume_5/epistles_first_series/015_kidi.htm)
 
 ## WHAT WE BELIEVE IN
@@ -163,4 +159,4 @@ come right.
 
 My blessings on you all, my brave, steadfast, and loving souls.
 
-</div>
+

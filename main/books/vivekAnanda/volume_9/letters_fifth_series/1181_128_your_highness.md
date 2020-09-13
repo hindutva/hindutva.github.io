@@ -2,15 +2,13 @@
 title: CXXVIII
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
 
-[←](127_christina.htm)  
-[←Chronology](../../volume_8/epistles_fourth_series/135_joe.htm)  
-[←Addressee](../../volume_5/epistles_first_series/086_your_highness.htm)
+
 
 ## CXXVIII
 
@@ -75,4 +73,4 @@ VIVEKANANDA
 [Addressee→](../../volume_5/epistles_first_series/087_your_highness.htm)  
 [Chronology→](../../volume_5/epistles_first_series/087_your_highness.htm)
 
-</div>
+

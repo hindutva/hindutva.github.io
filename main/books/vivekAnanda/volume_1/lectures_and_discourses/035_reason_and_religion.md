@@ -2,13 +2,9 @@
 title: REASON AND RELIGION
 
 ---
-<div>
 
-[←](the_vedanta_philosophy.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-1](../complete_works_v1_contents.htm) / [Lectures and
-Discourses](lectures_and_discourses_contents.htm)
-/ [→](vedanta_as_a_factor_in_civilisation.htm)
+
+
 
   
 
@@ -506,4 +502,4 @@ we find the truth for which all religions search, that all this
 knowledge of material sciences is but secondary. That is the only true
 knowledge which makes us one with this Universal God of the Universe.
 
-</div>
+

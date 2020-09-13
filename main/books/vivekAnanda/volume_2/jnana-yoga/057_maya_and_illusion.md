@@ -2,12 +2,9 @@
 title: MAYA AND ILLUSION
 
 ---
-<div>
 
-[←](the_real_nature_of_man.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-2](../volume_2_contents.htm) / [Jnana-Yoga](jnana-yoga_contents.htm)
-/ [→](maya_and_the_evolution_of_the_conception_of_god.htm)
+
+
 
   
 
@@ -519,4 +516,4 @@ who, he thought, was standing outside, is he himself and is in reality
 within. He is the one who is free, but who through limitation thought he
 was bound.
 
-</div>
+

@@ -2,13 +2,9 @@
 title: THE FORMS OF LOVE — MANIFESTATION
 
 ---
-<div>
 
-[←](the_naturalness_of_bhakti-yoga.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-3](../volume_3_contents.htm) / [Para-Bhakti or Supreme
-Devotion](para-bhakti_or_supreme_devotion_contents.htm)
-/ [→](universal_love_and_how_it_leads_to_self-surrender.htm)
+
+
 
   
 
@@ -67,4 +63,4 @@ is sacred and so dear to him. He loves even a piece of cloth belonging
 to the darling of his heart In the same way, when a person loves the
 Lord, the whole universe becomes dear to him, because it is all His.
 
-</div>
+

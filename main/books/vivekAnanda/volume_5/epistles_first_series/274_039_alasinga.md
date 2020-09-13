@@ -2,18 +2,14 @@
 title: XXXIX
 
 ---
-<div>
 
-[←](038_s.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Epistles – First
-Series](epistles_first_series_contents.htm) / [→](040_alasinga.htm)
+
+
 
   
 
-[«](../../volume_8/epistles_fourth_series/042_babies.htm) Chronology
-[»](../../volume_6/epistles_second_series/065_mrs_bull.htm)  
-[«](037_alasinga.htm) Addressee [»](040_alasinga.htm)
+  
+
 
 ## XXXIX
 
@@ -147,4 +143,4 @@ VIVEKANANDA.
 PS. Nobody will come to help you if you put yourself forward as a
 leader. . . . Kill self first if you want to succeed.
 
-</div>
+

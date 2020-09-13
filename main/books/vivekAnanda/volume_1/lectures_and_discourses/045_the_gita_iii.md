@@ -2,12 +2,9 @@
 title: THE GITA III
 
 ---
-<div>
 
-[←](the_gita_ii.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-1](../complete_works_v1_contents.htm) / [Lectures and
-Discourses](lectures_and_discourses_contents.htm) / [→](mohammed.htm)
+
+
 
   
 
@@ -421,4 +418,4 @@ to be unhappy. (Chhândogya, VII. xxiii-xxiv, (adapted)) \[There is
 only\] the One without a second. Therefore be not afraid. Awake, arise,
 and stop not till the goal is reached!
 
-</div>
+

@@ -2,13 +2,9 @@
 title: I
 
 ---
-<div>
 
-[←](../epistles_second_series/168_nivedita.htm)
-[Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
-/ [Volume 6](../volume_6_contents.htm) / [Conversations and
-Dialogues](conversations_and_dialogues_contents.htm)
-/ [→](ii_sharat_chakravarty.htm)
+
+
 
   
 
@@ -291,4 +287,4 @@ Darjipara.
     tradition in Assyrian history about such a king, called Berosus in
     certain ancient genealogies.
 
-</div>
+

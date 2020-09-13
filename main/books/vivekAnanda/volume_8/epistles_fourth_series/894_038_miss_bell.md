@@ -2,19 +2,14 @@
 title: XXXVIII
 
 ---
-<div>
 
-[←](037_sister.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Epistles – Fourth
-Series](epistles_fourth_series_contents.htm) / [→](039_friend.htm)
+
+
 
   
 
-[«](../../volume_5/epistles_first_series/031_ole_bull.htm) Chronology
-[»](../../volume_5/epistles_first_series/032_sister.htm)  
-[«](../../volume_5/epistles_first_series/020_sister.htm) Addressee
-[»](../../volume_5/epistles_first_series/034_sister.htm)
+  
+
 
 ## XXXVIII
 
@@ -46,4 +41,4 @@ With love for all,
 Ever your aff. bro.,  
 VIVEKANANDA.
 
-</div>
+

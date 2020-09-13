@@ -2,13 +2,9 @@
 title: MIRACLES
 
 ---
-<div>
 
-[←](../epistles_first_series/123_dhira_mata.htm)
-[Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
-/ [Volume 5](../volume_5_contents.htm)
-/ [Interviews](interviews_contents.htm)
-/ [→](an_indian_yogi_in_london.htm)
+
+
 
   
 
@@ -87,4 +83,4 @@ thing, whether a coincidence or not, connected with the initiation of
 their disciples, which was suggestive of the one passage in the life of
 Christ. They make their disciples live alone for just forty days.
 
-</div>
+

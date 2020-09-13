@@ -2,13 +2,9 @@
 title: THE SAGES OF INDIA
 
 ---
-<div>
 
-[←](vedanta_in_its_applications_to_indian_life.htm)
-[Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
-/ [Volume 3](../volume_3_contents.htm) / [Lectures from Colombo to
-Almora](lectures_from_colombo_to_almora_contents.htm)
-/ [→](the_work_before_us.htm)
+
+
 
   
 
@@ -639,4 +635,4 @@ all mine, and on me is the responsibility.
     was almost illiterate in the Western sense, he could read and write
     Bengali.
 
-</div>
+

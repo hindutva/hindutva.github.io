@@ -2,13 +2,9 @@
 title: A SONG I SING TO THEE
 
 ---
-<div>
 
-[←](and_let_shyama_dance_there.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-4](../volume_4_contents.htm) / [Translations:
-Poems](translation_poems_contents.htm)
-/ [→](../../volume_5/epistles_first_series/note.htm)
+
+
 
   
 
@@ -217,4 +213,4 @@ Washed with drops of dew, towards the sun."
 1.  [^](#txt1)The name of a fabulous mountain round which the planets
     are said to revolve.
 
-</div>
+

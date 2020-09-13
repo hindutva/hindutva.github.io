@@ -2,13 +2,9 @@
 title: THE SANNYASIN AND THE HOUSEHOLDER
 
 ---
-<div>
 
-[←](the_sannyasin.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Notes from Lectures and
-Discourses](notes_from_lectures_and_discourses_contents.htm)
-/ [→](the_evils_of_adhikarivada.htm)
+
+
 
   
 
@@ -69,4 +65,4 @@ brings confusion. The end should never be lost sight of.
     piecemeal from several houses, so as not to tax the householder, as
     a bee gathers honey from different flowers.
 
-</div>
+

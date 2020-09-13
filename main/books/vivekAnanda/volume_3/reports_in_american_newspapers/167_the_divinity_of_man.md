@@ -2,13 +2,9 @@
 title: THE DIVINITY OF MAN
 
 ---
-<div>
 
-[←](miracles.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-3](../volume_3_contents.htm) / [Reports in American
-Newspapers](reports_in_american_newspapers_contents.htm)
-/ [→](the_love_of_god.htm)
+
+
 
   
 
@@ -215,4 +211,4 @@ him a picture of the heart of Jesus. This he thought a manifestation of
 bigotry. Bigots belong to no religion. They are a singular phenomena
 \[sic\].
 
-</div>
+

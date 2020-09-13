@@ -2,13 +2,9 @@
 title: MAYA AND FREEDOM
 
 ---
-<div>
 
-[←](maya_and_the_evolution_of_the_conception_of_god.htm)
-[Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
-/ [Volume 2](../volume_2_contents.htm)
-/ [Jnana-Yoga](jnana-yoga_contents.htm)
-/ [→](the_absolute_and_manifestation.htm)
+
+
 
   
 
@@ -359,4 +355,4 @@ sufferings, will become deified and show us their real nature, will show
 us that behind everything, as the substance of everything, He is
 standing, and that He is the one real Self.
 
-</div>
+

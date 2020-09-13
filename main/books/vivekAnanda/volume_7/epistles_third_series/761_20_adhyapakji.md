@@ -2,18 +2,14 @@
 title: XX
 
 ---
-<div>
 
-[←](19_adhyapakji.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Epistles – Third
-Series](epistles_third_series_contents.htm) / [→](21_adhyapakji.htm)
+
+
 
   
 
-[«](../../volume_9/letters_fifth_series/017_mother.htm) Chronology
-[»](../../volume_9/letters_fifth_series/018_mother.htm)  
-[«](19_adhyapakji.htm) Addressee [»](21_adhyapakji.htm)
+  
+
 
 ## XX
 
@@ -74,4 +70,4 @@ I go to Chicago tomorrow or day after.
 Yours  
 V.
 
-</div>
+

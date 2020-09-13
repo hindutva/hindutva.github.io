@@ -2,13 +2,9 @@
 title: HINDUISM AND SHRI RAMAKRISHNA
 
 ---
-<div>
 
-[←](on_the_seas_bosom.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Writings: Prose and
-Poems](writings_prose_and_poems_contents.htm)
-/ [→](the_bengali_language.htm)
+
+
 
   
 
@@ -208,4 +204,4 @@ With the conviction firmly rooted in your heart that you are the
 servants of the Lord, His children, helpers in the fulfilment of His
 purpose, enter the arena of work.
 
-</div>
+

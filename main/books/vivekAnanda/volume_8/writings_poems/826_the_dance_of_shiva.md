@@ -2,12 +2,9 @@
 title: THE DANCE OF SHIVA
 
 ---
-<div>
 
-[←](to_my_own_soul.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Writings:
-Poems](writings_poems_contents.htm) / [→](shiva_in_ecstasy.htm)
+
+
 
   
 
@@ -23,4 +20,4 @@ Seven worlds play the rhythm
 As the trembling earth sways almost to dissolution,  
 Lo, the Great God Shiva is dancing.
 
-</div>
+

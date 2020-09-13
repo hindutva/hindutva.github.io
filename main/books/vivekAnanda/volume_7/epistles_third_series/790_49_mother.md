@@ -2,18 +2,14 @@
 title: IL
 
 ---
-<div>
 
-[←](48_mother.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Epistles – Third
-Series](epistles_third_series_contents.htm) / [→](50_mother.htm)
+
+
 
   
 
-[«](48_mother.htm) Chronology
-[»](../../volume_8/epistles_fourth_series/164_mary.htm)  
-[«](48_mother.htm) Addressee [»](50_mother.htm)
+  
+
 
 ## IL
 
@@ -59,4 +55,4 @@ cured?
 
 V.
 
-</div>
+

@@ -2,15 +2,13 @@
 title: CLXXIII
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
 
-[←](172_christina.htm)  
-[←Chronology](172_christina.htm)  
-[←Addressee](172_christina.htm)
+
 
 ## CLXXIII
 
@@ -53,4 +51,4 @@ V.
 [Addressee→](174_christina.htm)  
 [Chronology→](../../volume_8/epistles_fourth_series/181_mary.htm)
 
-</div>
+

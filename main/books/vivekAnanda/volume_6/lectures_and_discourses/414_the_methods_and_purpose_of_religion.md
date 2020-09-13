@@ -2,13 +2,9 @@
 title: THE METHODS AND PURPOSE OF RELIGION
 
 ---
-<div>
 
-[←](../../volume_5/writings_prose_and_poems/the_east_and_the_west.htm)
-[Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
-/ [Volume 6](../volume_6_contents.htm) / [Lectures and
-Discourses](lectures_and_discourses_contents.htm)
-/ [→](the_nature_of_the_soul_and_its_goal.htm)
+
+
 
   
 
@@ -455,4 +451,4 @@ preaches the principle, and the method it leaves to you. Take any path
 you like; follow any prophet you like; but have only that method which
 suits your own nature, so that you will be sure to progress.
 
-</div>
+

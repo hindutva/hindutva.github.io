@@ -2,13 +2,9 @@
 title: THE IMPORTANCE OF PSYCHOLOGY
 
 ---
-<div>
 
-[←](the_nature_of_the_soul_and_its_goal.htm) [Home](../../../index.htm)
-/ [Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Lectures and
-Discourses](lectures_and_discourses_contents.htm)
-/ [→](nature_and_man.htm)
+
+
 
   
 
@@ -157,4 +153,4 @@ classify and arrange in order all the different impressions, thoughts,
 etc., stored up there, and control them. This is the first step. By the
 control of the subconscious mind you get control over the conscious.
 
-</div>
+

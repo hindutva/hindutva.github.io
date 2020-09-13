@@ -2,19 +2,14 @@
 title: LXVI
 
 ---
-<div>
 
-[←](065_mrs_bull.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Epistles – Second
-Series](epistles_second_series_contents.htm) / [→](067_mrs_bull.htm)
+
+
 
   
 
-[«](065_mrs_bull.htm) Chronology
-[»](../../volume_8/epistles_fourth_series/043_alasinga.htm)  
-[«](065_mrs_bull.htm) Addressee
-[»](../../volume_9/letters_fifth_series/059_mother.htm)
+  
+
 
 ## LXVI
 
@@ -41,4 +36,4 @@ Yours,
 
 VIVEKANANDA.
 
-</div>
+

@@ -2,15 +2,13 @@
 title: CLXXIX
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
 
-[←](178_abhedananda.htm)  
-[←Chronology](../../volume_8/epistles_fourth_series/188_dear.htm)  
-[←Addressee](176_sister_christine.htm)
+
 
 ## CLXXIX
 
@@ -42,4 +40,4 @@ VIVEKANANDA.
 [Addressee→](181_christine.htm)  
 [Chronology→](180_mrs_leggett.htm)
 
-</div>
+

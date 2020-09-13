@@ -2,13 +2,9 @@
 title: REPLY TO THE ADDRESS OF WELCOME AT MADRAS
 
 ---
-<div>
 
-[←](the_mission_of_the_vedanta.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-3](../volume_3_contents.htm) / [Lectures from Colombo to
-Almora](lectures_from_colombo_to_almora_contents.htm)
-/ [→](my_plan_of_campaign.htm)
+
+
 
   
 
@@ -205,4 +201,4 @@ yourselves this evening with merely seeing me. I will reserve my speech
 for some other occasion. I thank you very much for your enthusiastic
 welcome.
 
-</div>
+

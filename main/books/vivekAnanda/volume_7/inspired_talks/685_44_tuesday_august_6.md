@@ -4,13 +4,9 @@ title: 'RECORDED BY MISS S. E. WALDO
   (A DISCIPLE)'
 
 ---
-<div>
 
-[←](43_monday_august_5.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Inspired
-Talks](inspired_talks_contents.htm)
-/ [→](../conversations_and_dialogues/from_the_diary_of_a_disciple/scc_i.htm)
+
+
 
   
 
@@ -126,4 +122,4 @@ time, and that will purify you. . . .
 (*Thus ended the beautiful lessons of our beloved Guru. The following
 Monday he left Thousand Island Park and returned to New York.*)
 
-</div>
+

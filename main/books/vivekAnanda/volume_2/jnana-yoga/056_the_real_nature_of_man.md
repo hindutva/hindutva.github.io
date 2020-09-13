@@ -2,12 +2,9 @@
 title: THE REAL NATURE OF MAN
 
 ---
-<div>
 
-[←](the_necessity_of_religion.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-2](../volume_2_contents.htm) / [Jnana-Yoga](jnana-yoga_contents.htm)
-/ [→](maya_and_illusion.htm)
+
+
 
   
 
@@ -542,4 +539,4 @@ is yours. Drive out the superstition that has covered your minds. Let us
 be brave. Know the Truth and practice the Truth. The goal may be
 distant, but awake, arise, and stop not till the goal is reached.
 
-</div>
+

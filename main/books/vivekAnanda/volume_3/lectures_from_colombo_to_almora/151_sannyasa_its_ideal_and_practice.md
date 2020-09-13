@@ -2,13 +2,9 @@
 title: 'SANNYASA: ITS IDEAL AND PRACTICE'
 
 ---
-<div>
 
-[←](the_influence.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-3](../volume_3_contents.htm) / [Lectures from Colombo to
-Almora](lectures_from_colombo_to_almora_contents.htm)
-/ [→](what_have_i_learnt.htm)
+
+
 
   
 
@@ -93,4 +89,4 @@ without mercy. No disobedient members here, you must turn them out.
 There must not be any traitors in the camp. You must be as free as the
 air, and as obedient as this plant and the dog.
 
-</div>
+

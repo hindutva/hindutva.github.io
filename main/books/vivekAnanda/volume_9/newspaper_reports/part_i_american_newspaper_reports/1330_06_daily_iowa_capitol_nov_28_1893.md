@@ -2,7 +2,7 @@
 title: "ALL RELIGIONS ARE TRUE\n SUCH IS THE MESSAGE BROUGHT FROM INDIA"
 
 ---
-<div>
+
 
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
@@ -10,13 +10,7 @@ title: "ALL RELIGIONS ARE TRUE\n SUCH IS THE MESSAGE BROUGHT FROM INDIA"
 Reports](../newspaper_reports_contents.htm) / [American Newspaper
 Reports](american_newspaper_contents.htm) /
 
-[←](05_daily_cardinal_nov_21_1893.htm)
 
-## ALL RELIGIONS ARE TRUE SUCH IS THE MESSAGE BROUGHT FROM INDIA
-
-BY A HINDU MONK
-
-(*New Discoveries*, Vol. 1, pp. 200-202.)
 
 \[*Daily Iowa Capitol*, November 28, 1893\]
 
@@ -90,4 +84,4 @@ our church organizations. He was his own priest, bishop and pope. . . .
 
 [→](07_iowa_state_register_nov_28_1893.htm)
 
-</div>
+

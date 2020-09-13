@@ -2,7 +2,7 @@
 title: PARLIAMENT OF RELIGIONS IN CHICAGO
 
 ---
-<div>
+
 
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
@@ -10,11 +10,7 @@ title: PARLIAMENT OF RELIGIONS IN CHICAGO
 Reports](../newspaper_reports_contents.htm) / [Indian Newspaper
 Reports](indian_newspaper_contents.htm) /
 
-[←](02_the_indian_mirror_nov_28_1893.htm)
 
-## PARLIAMENT OF RELIGIONS IN CHICAGO
-
-(*Vivekananda in Indian Newspapers*, pp. 5-6.)
 
 \[*The Indian Mirror*, December 7, 1893\]
 
@@ -64,4 +60,4 @@ Hinduism"](../../../volume_1/addresses_at_the_parliament/v1_c1_paper_on_hinduism
 
 [→](04_the_indian_mirror_jun_14_1894.htm)
 
-</div>
+

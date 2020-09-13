@@ -2,13 +2,9 @@
 title: THE RELIGION OF BUDDHA
 
 ---
-<div>
 
-[←](less_doctrine_and_more_bread.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-2](../volume_2_contents.htm) / [Reports in American
-Newspapers](reports_in_american_newspapers_contents.htm)
-/ [→](all_religions_are_good.htm)
+
+
 
   
 
@@ -105,4 +101,4 @@ was the first missionary religion of the world but it was one of the
 teachings of Buddhism not to antagonize any other religion. Sects weaken
 their power for good by making war on each other."
 
-</div>
+

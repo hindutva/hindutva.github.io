@@ -2,12 +2,9 @@
 title: RELIGION NOT THE CRYING NEED OF INDIA
 
 ---
-<div>
 
-[←](v1_c1_paper_on_hinduism.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-1](../complete_works_v1_contents.htm) / [Addresses at The Parliament of
-Religions](addresses_at_the_parliament.htm) / [→](v1_c1_buddhism.htm)
+
+
 
   
 
@@ -31,4 +28,4 @@ I came here to seek aid for my impoverished people, and I fully realised
 how difficult it was to get help for heathens from Christians in a
 Christian land.
 
-</div>
+

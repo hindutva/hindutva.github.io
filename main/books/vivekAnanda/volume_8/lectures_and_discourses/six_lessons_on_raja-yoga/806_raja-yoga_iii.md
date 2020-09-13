@@ -4,14 +4,9 @@ title: 'RAJA YOGA
   THIRD LESSON'
 
 ---
-<div>
 
-[←](raja-yoga_ii.htm) [Home](../../../../index.htm) /
-[Complete-Works](../../../complete_works.htm) / [Volume
-8](../../volume_8_contents.htm) / [Lectures and
-Discourses](../lectures_and_discourses_contents.htm) / [Six Lessons on
-Raja-Yoga](six_lessons_on_raja-yoga_contents.htm)
-/ [→](raja-yoga_iv.htm)
+
+
 
   
 
@@ -102,4 +97,4 @@ the Kundalini be awakened. Until it does, imagine it does: try to feel
 the currents and try to force them through the Sushumna. This hastens
 their action.
 
-</div>
+

@@ -2,13 +2,9 @@
 title: LAW AND FREEDOM
 
 ---
-<div>
 
-[←](on_the_vedanta_philosophy.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Notes from Lectures and
-Discourses](notes_from_lectures_and_discourses_contents.htm)
-/ [→](the_goal_and_the_methods_of_realisation.htm)
+
+
 
   
 
@@ -163,4 +159,4 @@ time. If that is so, add power, and so diminish time. Remember the case
 of the professor who learnt the secret of the development of marble and
 who made marble in twelve years, while it took nature centuries.
 
-</div>
+

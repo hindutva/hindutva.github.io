@@ -4,12 +4,9 @@ title: 'RECORDED BY MISS S. E. WALDO
   (A DISCIPLE)'
 
 ---
-<div>
 
-[←](22_sunday_july_14.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Inspired
-Talks](inspired_talks_contents.htm) / [→](24_tuesday_july_16.htm)
+
+
 
   
 
@@ -34,4 +31,4 @@ Aryans, and those of Southern India were the most civilised. Women with
 them stood higher than men. They subsequently divided, some going to
 Egypt, others to Babylonia, and the rest remaining in India.
 
-</div>
+

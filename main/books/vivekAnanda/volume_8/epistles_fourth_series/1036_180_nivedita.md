@@ -2,19 +2,14 @@
 title: CLXXX
 
 ---
-<div>
 
-[←](179_nivedita.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Epistles – Fourth
-Series](epistles_fourth_series_contents.htm) / [→](181_mary.htm)
+
+
 
   
 
-[«](../../volume_9/letters_fifth_series/170_abhedananda.htm) Chronology
-[»](../../volume_9/letters_fifth_series/171_christina.htm)  
-[«](../../volume_9/letters_fifth_series/167_margot.htm) Addressee
-[»](../../volume_6/epistles_second_series/159_nivedita.htm)
+  
+
 
 ## CLXXX
 
@@ -38,4 +33,4 @@ Steady, child, don't be bought by gold or anything else, and we win!
 
 VIVEKANANDA.
 
-</div>
+

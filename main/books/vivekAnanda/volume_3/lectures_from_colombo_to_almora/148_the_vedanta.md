@@ -2,13 +2,9 @@
 title: THE VEDANTA
 
 ---
-<div>
 
-[←](bhakti_2.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-3](../volume_3_contents.htm) / [Lectures from Colombo to
-Almora](lectures_from_colombo_to_almora_contents.htm)
-/ [→](vedantism_2.htm)
+
+
 
   
 
@@ -1248,4 +1244,4 @@ words of the Lord Krishna:
 are firm-fixed on the sameness of everything, for God is pure and the
 same to all; therefore, such are said to be living in God."
 
-</div>
+

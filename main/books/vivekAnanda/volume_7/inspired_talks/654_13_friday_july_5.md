@@ -4,12 +4,9 @@ title: 'RECORDED BY MISS S. E. WALDO
   (A DISCIPLE)'
 
 ---
-<div>
 
-[←](12_wednesday_july_3.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Inspired
-Talks](inspired_talks_contents.htm) / [→](14_saturday_july_6.htm)
+
+
 
   
 
@@ -49,4 +46,4 @@ upon my-lips," (Hindu invocation).
 "That Mother whose voice is in the thunder, come Thou in me! Kali, Thou
 time eternal, Thou force irresistible, Shakti, Power!"
 
-</div>
+

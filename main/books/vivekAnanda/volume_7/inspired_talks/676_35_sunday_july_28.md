@@ -4,12 +4,9 @@ title: 'RECORDED BY MISS S. E. WALDO
   (A DISCIPLE)'
 
 ---
-<div>
 
-[←](34_saturday_july_27.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Inspired
-Talks](inspired_talks_contents.htm) / [→](36_monday_july_29.htm)
+
+
 
   
 
@@ -78,4 +75,4 @@ Get rid of all these delusions and be at peace. Whom to worship? Who
 worships? All is the Atman. To speak, to think is superstition. Repeat
 over and over, "I am Atman", "I am Atman". Let everything else go.
 
-</div>
+

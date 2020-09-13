@@ -2,13 +2,9 @@
 title: 'CONVERSATIONS AND DIALOGUE '
 
 ---
-<div>
 
-[←](mrs_wright_xxxii.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Conversations and
-Dialogues](conversations_and_dialogues_contents.htm)
-/ [→](tdfp_xxxiv.htm)
+
+
 
   
 
@@ -160,4 +156,4 @@ gentleman who had listened attentively to the words of the stranger.
 Vive Kananda discussed further in the same strain until the call
 terminated as the hour for the Hindu's lecture approached.
 
-</div>
+

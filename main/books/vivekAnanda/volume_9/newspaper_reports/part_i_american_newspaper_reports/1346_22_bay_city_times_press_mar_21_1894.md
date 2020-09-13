@@ -2,7 +2,7 @@
 title: A HINDOO MONK
 
 ---
-<div>
+
 
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
@@ -10,13 +10,7 @@ title: A HINDOO MONK
 Reports](../newspaper_reports_contents.htm) / [American Newspaper
 Reports](american_newspaper_contents.htm) /
 
-[←](21_detroit_evening_news_mar_21_1894.htm)
 
-## A HINDOO MONK
-
-(*New Discoveries*, Vol. 2, pp. 6-7. Cf. “Swami Vivekananda on India”,
-([*Complete Works*, II:
-479-81.](../../../volume_2/reports_in_american_newspapers/swami_vivekananda_on_india.htm))
 
 \[*Bay City Times Press*, March 21, 1894\]
 
@@ -42,4 +36,4 @@ Saginaw tonight.
 
 [→](23_saginaw_evening_news_mar_21_1894.htm)
 
-</div>
+

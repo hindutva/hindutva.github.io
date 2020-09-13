@@ -2,14 +2,9 @@
 title: CONVERSATIONS AND DIALOGUES
 
 ---
-<div>
 
-[←](scc_xxi.htm) [Home](../../../../index.htm) /
-[Complete-Works](../../../complete_works.htm) / [Volume
-7](../../volume_7_contents.htm) / [Conversations and
-Dialogues](../conversations_and_dialogues_contents.htm) / [From the
-Diary of a Disciple](from_the_diary_of_a_disciple_contents.htm)
-/ [→](scc_xxiii.htm)
+
+
 
   
 
@@ -83,4 +78,4 @@ temple, though they knew that I was a man who had returned from the
 West. On the contrary, they very cordially took me into the holy
 precincts and helped me to worship the Mother to my heart's content."
 
-</div>
+

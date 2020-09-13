@@ -4,18 +4,14 @@ title: CXXXII
 ---
  
 
-<div>
 
-[←](131_akhandananda.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Epistles – Second
-Series](epistles_second_series_contents.htm) / [→](133_mrs_bull.htm)
+
+
 
   
 
-[«](../../volume_8/epistles_fourth_series/100_shashi.htm) Chronology
-[»](../../volume_5/epistles_first_series/080_joe.htm)  
-[«](131_akhandananda.htm) Addressee [»](136_akhandananda.htm)
+  
+
 
 ## CXXXII
 
@@ -69,4 +65,4 @@ good did he achieve?
 Yours affly.,  
 VIVEKANANDA.
 
-</div>
+

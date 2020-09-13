@@ -2,13 +2,9 @@
 title: BREATHING
 
 ---
-<div>
 
-[←](the_soul_and_god.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-1](../complete_works_v1_contents.htm) / [Lectures and
-Discourses](lectures_and_discourses_contents.htm)
-/ [→](practical_religion_breathing_and_meditation.htm)
+
+
 
   
 
@@ -353,4 +349,4 @@ worse. He laughs at it.
 this address was delivered on 29 March 1900 under the title "The Science
 of Breathing". — Ed.\]
 
-</div>
+

@@ -2,18 +2,14 @@
 title: CLII
 
 ---
-<div>
 
-[←](151_dhira_mata.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Epistles – Fourth
-Series](epistles_fourth_series_contents.htm) / [→](153_mary.htm)
+
+
 
   
 
-[«](../../volume_6/epistles_second_series/151_margot.htm) Chronology
-[»](../../volume_8/epistles_fourth_series/153_mary.htm)  
-[«](151_dhira_mata.htm) Addressee [»](154_dhira_mata.htm)
+  
+
 
 ## CLII
 
@@ -84,4 +80,4 @@ friends.
 Ever your son,  
 VIVEKANANDA.
 
-</div>
+

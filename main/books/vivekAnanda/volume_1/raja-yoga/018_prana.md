@@ -2,12 +2,9 @@
 title: PRANA
 
 ---
-<div>
 
-[←](the_first_steps.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-1](../complete_works_v1_contents.htm)
-/ [Raja-Yoga](raja-yoga_contents.htm) / [→](the_psychic_prana.htm)
+
+
 
   
 
@@ -410,4 +407,4 @@ called physical science, and that part which tries to control the
 manifestations of the Prana as mental force by mental means is called
 Raja-Yoga.
 
-</div>
+

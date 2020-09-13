@@ -2,13 +2,9 @@
 title: DISCIPLESHIP
 
 ---
-<div>
 
-[←](buddhas_message.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Lectures and
-Discourses](lectures_and_discourses_contents.htm)
-/ [→](is_vedanta_the_future.htm)
+
+
 
   
 
@@ -495,4 +491,4 @@ He realises. He crosses the ocean of life, goes beyond. He crosses this
 terrible ocean: and in mercy, without a thought of gain or praise, he in
 his turn helps others to cross.
 
-</div>
+

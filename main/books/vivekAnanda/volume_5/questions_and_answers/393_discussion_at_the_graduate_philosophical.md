@@ -2,13 +2,9 @@
 title: I
 
 ---
-<div>
 
-[←](../notes_from_lectures_and_discourses/the_aim_of_raja-yoga.htm)
-[Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
-/ [Volume 5](../volume_5_contents.htm) / [Questions and
-Answers](questions_and_answers_contents.htm)
-/ [→](twentieth_century_club.htm)
+
+
 
   
 
@@ -482,4 +478,4 @@ has all that we call knowledge. When he wants to realise that
 consciousness of knowledge, he has to go a step lower. Knowledge is a
 lower state; it is only in Maya that we can have knowledge.
 
-</div>
+

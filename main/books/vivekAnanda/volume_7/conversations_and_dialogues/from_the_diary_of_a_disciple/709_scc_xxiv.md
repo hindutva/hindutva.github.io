@@ -2,14 +2,9 @@
 title: CONVERSATIONS AND DIALOGUES
 
 ---
-<div>
 
-[←](scc_xxiii.htm) [Home](../../../../index.htm) /
-[Complete-Works](../../../complete_works.htm) / [Volume
-7](../../volume_7_contents.htm) / [Conversations and
-Dialogues](../conversations_and_dialogues_contents.htm) / [From the
-Diary of a Disciple](from_the_diary_of_a_disciple_contents.htm)
-/ [→](scc_xxv.htm)
+
+
 
   
 
@@ -126,4 +121,4 @@ besides that. 'Who serves Jiva, serves God indeed'." After some pause
 Swamiji, addressing the disciple, said, "What I have told you today,
 inscribe in your heart. See that you do not forget it."
 
-</div>
+

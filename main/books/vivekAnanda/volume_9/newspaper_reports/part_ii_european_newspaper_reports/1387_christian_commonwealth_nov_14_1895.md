@@ -2,7 +2,7 @@
 title: THE CHRISTIAN COMMONWEALTH
 
 ---
-<div>
+
 
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
@@ -10,20 +10,7 @@ title: THE CHRISTIAN COMMONWEALTH
 Reports](../newspaper_reports_contents.htm) / [European Newspaper
 Reports](european_newspaper_contents.htm) /
 
-[←](london_morning_post_oct_23_1895.htm)
-
-## THE CHRISTIAN COMMONWEALTH
-
-(*New Discoveries*, Vol. 3, pp. 267-69.)
-
-\[*Christian Commonwealth*, November 14, 1895\]
-
-South Place Chapel Lecture
-
-"The Swami Vivekananda" enlightened the congregation at South-place
-Chapel last Sunday morning on "The Basis of Vedanta Morality." (A
-lecture delivered in London, England, on November 10, 1895, of which
-there is no verbatim transcript available.) . . .
+ . . .
 
 The Swami explained that in the system of morality which he was
 expounding actions were not inspired by any hope of reward, here or
@@ -41,4 +28,4 @@ ultimate consequences of all actions. . . .
 
 [→](the_queen_nov_23_1895.htm)
 
-</div>
+

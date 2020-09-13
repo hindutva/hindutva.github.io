@@ -2,18 +2,14 @@
 title: XIII
 
 ---
-<div>
 
-[←](012_sister.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Epistles – First
-Series](epistles_first_series_contents.htm) / [→](014_alasinga.htm)
+
+
 
   
 
-[«](../../volume_9/letters_fifth_series/030_mother.htm) Chronology
-[»](../../volume_8/epistles_fourth_series/026_sister.htm)  
-[«](011_alasinga.htm) Addressee [»](014_alasinga.htm)
+  
+
 
 ## XIII
 
@@ -131,4 +127,4 @@ Ever yours affectionately,
 
 VIVEKANANDA.
 
-</div>
+

@@ -2,13 +2,9 @@
 title: MEDITATION
 
 ---
-<div>
 
-[←](concentration.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-4](../volume_4_contents.htm) / [Lectures and
-Discourses](lectures_and_discourses_contents.htm)
-/ [→](the_practice_of_religion.htm)
+
+
 
   
 
@@ -348,4 +344,4 @@ existence. Nothing else exists.
     the highest centre of consciousness in the brain, where he meditates
     on his oneness with the supreme Spirit.
 
-</div>
+

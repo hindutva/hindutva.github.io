@@ -2,7 +2,7 @@
 title: ON EDUCATION
 
 ---
-<div>
+
 
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
@@ -10,11 +10,7 @@ title: ON EDUCATION
 Reports](../newspaper_reports_contents.htm) / [Indian Newspaper
 Reports](indian_newspaper_contents.htm) /
 
-[←](09_the_indian_mirror_mar_25_1896.htm)
 
-## ON EDUCATION
-
-(*Vivekananda in Indian Newspapers*, p. 101.)
 
 \[*The Indian Mirror*, June 19, 1896\]
 
@@ -47,4 +43,4 @@ these lectures will be published later on.
 
 [→](11_the_brahmavadin_jul_18_1896.htm)
 
-</div>
+

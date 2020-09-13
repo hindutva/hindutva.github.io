@@ -2,20 +2,14 @@
 title: LXXXVII
 
 ---
-<div>
 
-[←](086_your_highness.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Epistles – First
-Series](epistles_first_series_contents.htm) / [→](088_your_highness.htm)
+
+
 
   
 
-[«](../../volume_9/letters_fifth_series/128_your_highness.htm)
-Chronology
-[»](../../volume_9/letters_fifth_series/129_your_highness.htm)  
-[«](../../volume_9/letters_fifth_series/128_your_highness.htm) Addressee
-[»](../../volume_9/letters_fifth_series/129_your_highness.htm)
+  
+
 
 ## LXXXVII
 
@@ -43,4 +37,4 @@ Ever yours in the Lord,
 
 VIVEKANANDA.
 
-</div>
+

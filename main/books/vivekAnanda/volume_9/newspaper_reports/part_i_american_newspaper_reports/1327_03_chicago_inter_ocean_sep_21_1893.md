@@ -2,7 +2,7 @@
 title: RELIGION NOT THE CRYING NEED OF INDIA
 
 ---
-<div>
+
 
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
@@ -10,19 +10,7 @@ title: RELIGION NOT THE CRYING NEED OF INDIA
 Reports](../newspaper_reports_contents.htm) / [American Newspaper
 Reports](american_newspaper_contents.htm) /
 
-[←](02_chicago_record_sep_11_1893.htm)
 
-## RELIGION NOT THE CRYING NEED OF INDIA
-
-(*New Discoveries*, Vol. 1, pp. 123-26.)
-
-*\[A verbatim transcript of the address, delivered at the*
-
-*Parliament of Religions, September 20, 1893\]*
-
-(Cf. ["Religion Not the Crying Need of India", *Complete Works*, I:
-20](../../../volume_1/addresses_at_the_parliament/v1_c1_crying_need.htm)
-, for select quotations from the full address.)
 
 \[*Chicago Inter Ocean,* September 21, 1893\]
 
@@ -113,4 +101,4 @@ approach to the millennium. . . .
 
 [→](04_ny_critic_nov_11_1893.htm)
 
-</div>
+

@@ -2,20 +2,14 @@
 title: LX
 
 ---
-<div>
 
-[←](059_alasinga.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Epistles – First
-Series](epistles_first_series_contents.htm)
-/ [→](061_dr_nanjunda_rao.htm)
+
+
 
   
 
-[«](059_alasinga.htm) Chronology
-[»](../../volume_7/epistles_third_series/31_alasinga.htm)  
-[«](059_alasinga.htm) Addressee
-[»](../../volume_7/epistles_third_series/31_alasinga.htm)
+  
+
 
 ## LX
 
@@ -39,4 +33,4 @@ Yours with love,
 
 VIVEKANANDA.
 
-</div>
+

@@ -2,19 +2,14 @@
 title: XCIX
 
 ---
-<div>
 
-[←](098_mrs_bull.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Epistles – Second
-Series](epistles_second_series_contents.htm) / [→](100_shashi.htm)
+
+
 
   
 
-[«](../../volume_8/epistles_fourth_series/076_mary.htm) Chronology
-[»](../../volume_7/epistles_third_series/36_miss_noble.htm)  
-[«](098_mrs_bull.htm) Addressee
-[»](../../volume_9/letters_fifth_series/094_mrs_bull.htm)
+  
+
 
 ## XCIX
 
@@ -49,4 +44,4 @@ together, and shall of course do all that I can to help it on in the
 line he suggests.  . . . I think it very probable that he will come over
 with Saradananda.
 
-</div>
+

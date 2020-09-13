@@ -2,14 +2,9 @@
 title: JNANA YOGA - V
 
 ---
-<div>
 
-[←](jnana-yoga_iv.htm) [Home](../../../../index.htm) /
-[Complete-Works](../../../complete_works.htm) / [Volume
-8](../../volume_8_contents.htm) / [Lectures and
-Discourses](../lectures_and_discourses_contents.htm) / [Discourses on
-Jnana-Yoga](discourses_on_jnana-yoga_contents.htm)
-/ [→](jnana-yoga_vi.htm)
+
+
 
   
 
@@ -110,4 +105,4 @@ I identify myself with the Atman, I and Thou art one.
 
 Therefore the Jnani strives to realise the Self and nothing else.
 
-</div>
+

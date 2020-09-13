@@ -2,18 +2,14 @@
 title: CXVIII
 
 ---
-<div>
 
-[←](117_alberta.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Epistles – Second
-Series](epistles_second_series_contents.htm) / [→](119_frankincense.htm)
+
+
 
   
 
-[«](../../volume_9/letters_fifth_series/101_miss_noble.htm) Chronology
-[»](../../volume_5/epistles_first_series/073_madam.htm)  
-[«](113_mrs_bull.htm) Addressee [»](122_mrs_bull.htm)
+  
+
 
 ## CXVIII
 
@@ -39,4 +35,4 @@ Yours,
 
 VIVEKANANDA.
 
-</div>
+

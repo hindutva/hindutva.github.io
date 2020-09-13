@@ -2,13 +2,9 @@
 title: BHAKTI
 
 ---
-<div>
 
-[←](vedic_teaching_in_theory_and_practice.htm)
-[Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
-/ [Volume 3](../volume_3_contents.htm) / [Lectures from Colombo to
-Almora](lectures_from_colombo_to_almora_contents.htm)
-/ [→](the_common_bases_of_hinduism.htm)
+
+
 
   
 
@@ -279,4 +275,4 @@ Preserver, we can offer Him external worship, but when we get beyond all
 that and think Him to be Love Incarnate, seeing Him in all things and
 all things in Him, it is then that supreme Bhakti is attained.
 
-</div>
+

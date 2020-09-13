@@ -2,11 +2,9 @@
 title: THE POWERS OF THE MIND
 
 ---
-<div>
 
-[←](work_and_its_secret.htm) [Home](../../index.htm) /
-[Complete-Works](../complete_works.htm) / [Volume
-2](volume_2_contents.htm) / [→](hints_on_practical_spirituality.htm)
+
+
 
   
 
@@ -436,4 +434,4 @@ lectures, for it is life; and life can only convey life. If there are
 any amongst you who are really determined to learn it, I shall be very
 glad to help them.
 
-</div>
+

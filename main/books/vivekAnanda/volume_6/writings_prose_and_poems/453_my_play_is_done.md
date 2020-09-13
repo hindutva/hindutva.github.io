@@ -2,12 +2,9 @@
 title: MY PLAY IS DONE
 
 ---
-<div>
 
-[←](the_story_of_boy_gopala.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Writings: Prose and
-Poems](writings_prose_and_poems_contents.htm) / [→](the_cup.htm)
+
+
 
   
 
@@ -96,4 +93,4 @@ Let never more delusive dreams
 My play is done, O Mother,  
             break my chains and make me free!
 
-</div>
+

@@ -2,19 +2,14 @@
 title: XXXV
 
 ---
-<div>
 
-[←](034_sister.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Epistles – First
-Series](epistles_first_series_contents.htm) / [→](036_sister.htm)
+
+
 
   
 
-[«](034_sister.htm) Chronology
-[»](../../volume_9/letters_fifth_series/050_mother.htm)  
-[«](033_alasinga.htm) Addressee
-[»](../../volume_7/epistles_third_series/27_alasinga.htm)
+  
+
 
 ## XXXV
 
@@ -44,4 +39,4 @@ Yours ever with blessings,
 
 VIVEKANANDA.
 
-</div>
+

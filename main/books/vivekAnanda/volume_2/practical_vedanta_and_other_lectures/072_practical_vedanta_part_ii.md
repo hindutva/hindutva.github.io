@@ -2,13 +2,9 @@
 title: PRACTICAL VEDANTA
 
 ---
-<div>
 
-[←](practical_vedanta_part_i.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-2](../volume_2_contents.htm) / [Practical Vedanta and other
-lectures](practical_vedanta_and_other_lectures_contents.htm)
-/ [→](practical_vedanta_part_iii.htm)
+
+
 
   
 
@@ -574,4 +570,4 @@ discontent and dissatisfaction, for we know that Truth is within us, we
 have It as our birthright, and we have only to manifest It, and make It
 tangible.
 
-</div>
+

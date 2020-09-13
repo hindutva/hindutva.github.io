@@ -3,12 +3,9 @@ title: "THE MISSIONARY WORK OF THE FIRST HINDU\nSANNYASIN TO THE WEST \nAND\nHIS
   OF REGENERATION OF INDIA"
 
 ---
-<div>
 
-[←](the_abroad_and_the_problems_at_home.htm) [Home](../../../index.htm)
-/ [Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Interviews](interviews_contents.htm)
-/ [→](reawakening_of_hinduism.htm)
+
+
 
   
 
@@ -238,4 +235,4 @@ devotes himself to attending the Swami and taking down his lectures in
 shorthand. He is in every sense a true "disciple", saying that he hopes
 to be with the Swami till his death.
 
-</div>
+

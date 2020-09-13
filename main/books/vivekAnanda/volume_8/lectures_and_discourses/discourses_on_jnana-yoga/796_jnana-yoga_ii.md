@@ -2,14 +2,9 @@
 title: JNANA YOGA - II
 
 ---
-<div>
 
-[←](jnana-yoga_i.htm) [Home](../../../../index.htm) /
-[Complete-Works](../../../complete_works.htm) / [Volume
-8](../../volume_8_contents.htm) / [Lectures and
-Discourses](../lectures_and_discourses_contents.htm) / [Discourses on
-Jnana-Yoga](discourses_on_jnana-yoga_contents.htm)
-/ [→](jnana-yoga_iii.htm)
+
+
 
   
 
@@ -121,4 +116,4 @@ as it has no existence apart from the past and the future. It is all one
 complete whole, the idea of time being merely a condition imposed upon
 us by the form of our understanding.
 
-</div>
+

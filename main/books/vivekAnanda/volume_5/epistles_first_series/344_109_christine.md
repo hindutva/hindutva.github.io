@@ -2,19 +2,14 @@
 title: CIX
 
 ---
-<div>
 
-[←](108_mary.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Epistles – First
-Series](epistles_first_series_contents.htm) / [→](110_mary.htm)
+
+
 
   
 
-[«](108_mary.htm) Chronology
-[»](../../volume_9/letters_fifth_series/201_sister_christine.htm)  
-[«](../../volume_9/letters_fifth_series/200_christina.htm) Addressee
-[»](../../volume_9/letters_fifth_series/201_sister_christine.htm)
+  
+
 
 ## CIX
 
@@ -37,4 +32,4 @@ Ever yours in the Lord,
 
 VIVEKANANDA.
 
-</div>
+

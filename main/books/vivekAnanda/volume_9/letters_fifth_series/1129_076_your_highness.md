@@ -2,14 +2,13 @@
 title: LXXVI
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
 
-[←](075_christina.htm)  
-[←Chronology](075_christina.htm)
+
 
 ## LXXVI
 
@@ -37,4 +36,4 @@ VIVEKANANDA
 [→](077_sir.htm)  
 [Chronology→](077_sir.htm)
 
-</div>
+

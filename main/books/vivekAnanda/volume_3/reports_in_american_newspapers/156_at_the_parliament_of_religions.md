@@ -2,13 +2,9 @@
 title: AT THE PARLIAMENT OF RELIGIONS
 
 ---
-<div>
 
-[←](hindus_at_the_fair.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-3](../volume_3_contents.htm) / [Reports in American
-Newspapers](reports_in_american_newspapers_contents.htm)
-/ [→](personal_traits.htm)
+
+
 
   
 
@@ -120,4 +116,4 @@ a string of pearls." "Holy, perfect and pure men are seen in all creeds,
 therefore they all lead to the same truth — for how can nectar be the
 outcome of poison?"
 
-</div>
+

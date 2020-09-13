@@ -2,19 +2,14 @@
 title: XLIII
 
 ---
-<div>
 
-[←](042_kidi.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Epistles – First
-Series](epistles_first_series_contents.htm) / [→](044_mrs_sturges.htm)
+
+
 
   
 
-[«](../../volume_8/epistles_fourth_series/048_sister.htm) Chronology
-[»](../../volume_9/letters_fifth_series/061_mother.htm)  
-[«](../../volume_8/epistles_fourth_series/043_alasinga.htm) Addressee
-[»](049_alasinga.htm)
+  
+
 
 ## XLIII
 
@@ -74,4 +69,4 @@ Ever yours with love,
 
 VIVEKANANDA.
 
-</div>
+

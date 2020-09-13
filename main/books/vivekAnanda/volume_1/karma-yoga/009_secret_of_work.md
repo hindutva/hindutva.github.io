@@ -2,12 +2,9 @@
 title: THE SECRET OF WORK
 
 ---
-<div>
 
-[←](each_is_great.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-1](../complete_works_v1_contents.htm)
-/ [Karma-Yoga](karma-yoga_contents.htm) / [→](what_is_duty.htm)
+
+
 
   
 
@@ -325,4 +322,4 @@ difficult task than to be an ideal Sannyasin; the true life of work is
 indeed as hard as, if not harder than, the equally true life of
 renunciation.
 
-</div>
+

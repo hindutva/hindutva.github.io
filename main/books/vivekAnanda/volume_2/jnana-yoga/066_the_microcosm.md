@@ -2,12 +2,9 @@
 title: 'THE COSMOS: THE MICROCOSM'
 
 ---
-<div>
 
-[←](the_macrocosm.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-2](../volume_2_contents.htm) / [Jnana-Yoga](jnana-yoga_contents.htm)
-/ [→](immortality.htm)
+
+
 
   
 
@@ -434,4 +431,4 @@ are ready to spring upon you like tigers, so also there is the inspiring
 hope that the good thoughts and good deeds are ready with the power of a
 hundred thousand angels to defend you always and for ever.
 
-</div>
+

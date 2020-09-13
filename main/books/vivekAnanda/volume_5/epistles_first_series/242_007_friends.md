@@ -2,17 +2,13 @@
 title: VII
 
 ---
-<div>
 
-[←](006_haripada.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Epistles – First
-Series](epistles_first_series_contents.htm) / [→](008_alasinga.htm)
+
+
 
   
 
-[«](006_haripada.htm) Chronology
-[»](../../volume_8/epistles_fourth_series/015_diwanji_saheb.htm)  
+  
 
 ## VII
 
@@ -110,4 +106,4 @@ public favourite. I cut a few lines from that magazine also.
 
 V.
 
-</div>
+

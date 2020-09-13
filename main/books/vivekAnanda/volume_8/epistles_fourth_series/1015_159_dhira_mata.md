@@ -2,18 +2,14 @@
 title: CLIX
 
 ---
-<div>
 
-[←](158_dhira_mata.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Epistles – Fourth
-Series](epistles_fourth_series_contents.htm) / [→](160_joe.htm)
+
+
 
   
 
-[«](158_dhira_mata.htm) Chronology
-[»](../../volume_8/epistles_fourth_series/160_joe.htm)  
-[«](158_dhira_mata.htm) Addressee [»](163_dhira_mata.htm)
+  
+
 
 ## CLIX
 
@@ -100,4 +96,4 @@ immediately; the trust and things have time enough for them.
 Ever your son,  
 VIVEKANANDA.
 
-</div>
+

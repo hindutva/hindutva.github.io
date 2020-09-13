@@ -2,18 +2,14 @@
 title: CXLV
 
 ---
-<div>
 
-[←](144_mary.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Epistles – Fourth
-Series](epistles_fourth_series_contents.htm) / [→](146_sturdy.htm)
+
+
 
   
 
-[«](../../volume_9/letters_fifth_series/148_christina.htm) Chronology
-[»](../../volume_9/letters_fifth_series/149_christina.htm)  
-[«](144_mary.htm) Addressee [»](149_mary.htm)
+  
+
 
 ## CXLV
 
@@ -103,4 +99,4 @@ harder, deeper, and more terrible one.
 
 V.
 
-</div>
+

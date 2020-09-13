@@ -2,12 +2,9 @@
 title: THE SONG OF THE SANNYÂSIN
 
 ---
-<div>
 
-[←](nirvanashaktam.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-4](../volume_4_contents.htm) / [Writings:
-Poems](writings_poems_contents.htm) / [→](peace.htm)
+
+
 
   
 
@@ -117,4 +114,4 @@ Has All become, the All is "I" and Bliss.
 Know thou art That, Sannyâsin bold! Say —  
                                            "Om Tat Sat, Om!"
 
-</div>
+

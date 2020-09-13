@@ -2,13 +2,9 @@
 title: EVOLUTION
 
 ---
-<div>
 
-[←](the_cause_of_illusion.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Notes from Lectures and
-Discourses](notes_from_lectures_and_discourses_contents.htm)
-/ [→](buddhism_and_vedanta.htm)
+
+
 
   
 
@@ -76,4 +72,4 @@ through our own ignorance, through impatience; we are in too great a
 hurry. The highest manifestation of strength is to keep ourselves calm
 and on our own feet.
 
-</div>
+

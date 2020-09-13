@@ -2,7 +2,7 @@
 title: ON THE BRAHMO SAMAJ
 
 ---
-<div>
+
 
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
@@ -10,11 +10,7 @@ title: ON THE BRAHMO SAMAJ
 Reports](../newspaper_reports_contents.htm) / [American Newspaper
 Reports](american_newspaper_contents.htm) /
 
-[←](11_daily_iowa_capitol_nov_30_1893.htm)
 
-## ON THE BRAHMO SAMAJ
-
-(*New Discoveries*, Vol. 1, p. 215.)
 
 \[*Iowa State Register*, December 1, 1893\]
 
@@ -29,4 +25,4 @@ he might have to say.
 
 [→](13_minneapolis_journal_dec_15_1893.htm)
 
-</div>
+

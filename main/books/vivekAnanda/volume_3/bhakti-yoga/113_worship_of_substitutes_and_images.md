@@ -2,12 +2,9 @@
 title: WORSHIP OF SUBSTITUTES AND IMAGES
 
 ---
-<div>
 
-[←](the_mantra_om_word_and_wisdom.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-3](../volume_3_contents.htm) / [Bhakti-Yoga](bhakti-yoga_contents.htm)
-/ [→](the_chosen_ideal.htm)
+
+
 
   
 
@@ -95,4 +92,4 @@ therefore, such use of images, or graves, or temples, or tombs, is real
 idolatry; it is in itself neither sinful nor wicked — it is a rite — a
 Karma, and worshippers must and will get the fruit thereof.
 
-</div>
+

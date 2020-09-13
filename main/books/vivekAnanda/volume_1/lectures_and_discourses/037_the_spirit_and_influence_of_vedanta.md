@@ -2,13 +2,9 @@
 title: THE SPIRIT AND INFLUENCE OF VEDANTA
 
 ---
-<div>
 
-[←](vedanta_as_a_factor_in_civilisation.htm) [Home](../../../index.htm)
-/ [Complete-Works](../../complete_works.htm) / [Volume
-1](../complete_works_v1_contents.htm) / [Lectures and
-Discourses](lectures_and_discourses_contents.htm)
-/ [→](steps_of_hindu_philosophic_thought.htm)
+
+
 
   
 
@@ -172,4 +168,4 @@ universal brotherhood, and that man alone is a Vedantist.
 
 Such are some of the practical historical results of the Vedanta.
 
-</div>
+

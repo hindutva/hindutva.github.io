@@ -2,23 +2,13 @@
 title: CXXV
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
 
-[←](124_miss_macleod_mrs_bull.htm)  
-[←Chronology](../../volume_6/epistles_second_series/142_friend.htm)
-
-## CXXV
-
-*To Mr. J. J. Goodwin's mother*
-
-*\[On receiving news of the untimely death of Josiah J. Goodwin, Swami
-Vivekananda sent the following paragraph along with the poem "Requiescat
-in Pace" (This poem has been previously published in [Complete
-Works](../../volume_4/writings_poems/requiescat_in_pace.htm)* , IV.*) to
+ to
 the newspapers as well as to Goodwin's mother.\]*
 
 ALMORA
@@ -41,4 +31,4 @@ born, as it were, to live only for others.
 [→](126_your_highness.htm)  
 [Chronology→](../../volume_8/epistles_fourth_series/129_sturdy.htm)
 
-</div>
+

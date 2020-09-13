@@ -2,13 +2,9 @@
 title: COSMOLOGY
 
 ---
-<div>
 
-[←](soul_nature_and_god.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-2](../volume_2_contents.htm) / [Practical Vedanta and other
-lectures](practical_vedanta_and_other_lectures_contents.htm)
-/ [→](a_study_of_the_sankhya_philosophy.htm)
+
+
 
   
 
@@ -316,4 +312,4 @@ we all see the same things? Because we all have; similar parts of the
 cosmic mind. Those who have like minds will see like things, and those
 who have not will not see alike.
 
-</div>
+

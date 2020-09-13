@@ -2,12 +2,9 @@
 title: KRISHNA
 
 ---
-<div>
 
-[←](privilege.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-1](../complete_works_v1_contents.htm) / [Lectures and
-Discourses](lectures_and_discourses_contents.htm) / [→](the_gita_i.htm)
+
+
 
   
 
@@ -268,4 +265,4 @@ Therefore, salutations unto you, whose footstool is worshipped by
 angels! Salutations unto you leaders of the human race! Salutations unto
 you great teachers! You leaders have our salutations for ever and ever!
 
-</div>
+

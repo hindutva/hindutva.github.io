@@ -2,13 +2,9 @@
 title: THE VEDANTA PHILOSOPHY AND CHRISTIANITY
 
 ---
-<div>
 
-[←](introduction_to_jnana-yoga.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Lectures and
-Discourses](lectures_and_discourses_contents.htm)
-/ [→](worshipper_and_worshipped.htm)
+
+
 
   
 
@@ -99,4 +95,4 @@ while they will. Every one acts according to his own nature. We are all
 in process of growth. From this standpoint one man is not better than
 another.
 
-</div>
+

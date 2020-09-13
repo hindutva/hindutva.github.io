@@ -2,13 +2,13 @@
 title: CHAPTER III
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Excerpts from Sister
 Nivedita's Book](excerpts_from_sister_niveditas_book_contents.htm) /
 
-[←](chapter_ii.htm)
+
 
 ## CHAPTER III
 
@@ -449,7 +449,7 @@ mentioned amongst the disciples again.
 
 [→](chapter_iv.htm)
 
-</div>
+
 
 1.  [^](#fn1_1)In the original manuscript of the book Sister Nivedita
     added the following note:   "In obedience to the beloved wish of S.

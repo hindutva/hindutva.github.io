@@ -2,13 +2,9 @@
 title: THE LOVE OF GOD - II
 
 ---
-<div>
 
-[←](the_love_of_god_i.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Notes of Class Talks and
-Lectures](notes_of_class_talks_and_lectures_contents.htm)
-/ [→](india.htm)
+
+
 
   
 
@@ -79,4 +75,4 @@ flock of sheep. They do not embrace God because they need Him. Most
 persons are unconscious atheists who self-complacently think that they
 are devout believers.
 
-</div>
+

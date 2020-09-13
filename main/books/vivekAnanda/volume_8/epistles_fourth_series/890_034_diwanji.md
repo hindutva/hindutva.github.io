@@ -2,26 +2,14 @@
 title: XXXIV
 
 ---
-<div>
 
-[←](033_diwanji_saheb.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Epistles – Fourth
-Series](epistles_fourth_series_contents.htm) / [→](035_sister.htm)
+
+
 
   
 
-[«](033_diwanji_saheb.htm) Chronology
-[»](../../volume_4/writings_prose/reply_to_the_calcutta_address.htm)  
-[«](033_diwanji_saheb.htm) Addressee
-
-## XXXIV
-
-541 DEARBORN AVENUE,  
-CHICAGO,  
-*November*(?)*, 1894*.
-
-DEAR DIWANJI (Shri Haridas Viharidas Desai),
+  
+,
 
 Your letter pleased me extremely. I, of course, understand the joke, but
 I am not the baby to be put off with a joke; now take more.
@@ -115,4 +103,4 @@ With prayers and blessings,
 
 VIVEKANANDA.
 
-</div>
+

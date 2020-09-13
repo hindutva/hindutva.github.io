@@ -4,12 +4,9 @@ title: 'RECORDED BY MISS S. E. WALDO
   (A DISCIPLE)'
 
 ---
-<div>
 
-[←](05_wednesday_june_26.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Inspired
-Talks](inspired_talks_contents.htm) / [→](07_friday_june_28.htm)
+
+
 
   
 
@@ -91,4 +88,4 @@ motive except God. Dare to come to Truth even through hell.
     separate from it should go by the name of Matter. Hence the Swami
     says, "Matter is only externalised thought."
 
-</div>
+

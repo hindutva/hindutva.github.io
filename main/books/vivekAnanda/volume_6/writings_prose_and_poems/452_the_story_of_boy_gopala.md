@@ -2,12 +2,9 @@
 title: THE STORY OF THE BOY GOPALA
 
 ---
-<div>
 
-[←](historical_evolution_of_india.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Writings: Prose and
-Poems](writings_prose_and_poems_contents.htm) / [→](my_play_is_done.htm)
+
+
 
   
 
@@ -234,4 +231,4 @@ distance:
 "Gopala, thy mother's and thy love and faith brought Me to thee; but
 tell thy teacher, he will have to wait a long while yet."
 
-</div>
+

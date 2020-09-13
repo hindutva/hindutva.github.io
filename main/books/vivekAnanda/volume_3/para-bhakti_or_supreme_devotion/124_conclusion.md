@@ -2,12 +2,9 @@
 title: CONCLUSION
 
 ---
-<div>
 
-[←](human_representations_of_the_divine_ideal_of_love.htm)
-[Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
-/ [Volume 3](../volume_3_contents.htm) / [Para-Bhakti or Supreme
-Devotion](para-bhakti_or_supreme_devotion_contents.htm) [→](../lectures_from_colombo_to_almora/first_public_lecture_in_the_east_%28colombo%29.htm)
+
+
 
   
 
@@ -58,4 +55,4 @@ become one with the Infinite. Man himself is transfigured in the
 presence of this Light of Love, and he realises at last the beautiful
 and inspiring truth that Love, the Lover, and the Beloved are One.
 
-</div>
+

@@ -2,13 +2,9 @@
 title: FUNDAMENTALS OF RELIGION
 
 ---
-<div>
 
-[←](a_plan_of_work_for_india.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-4](../volume_4_contents.htm) / [Writings:
-Prose](writings_prose_contents.htm)
-/ [→](../writings_poems/kali_the_mother.htm)
+
+
 
   
 
@@ -322,4 +318,4 @@ beyond both the mind and body which is free and
 
 (*incomplete*)
 
-</div>
+

@@ -2,18 +2,14 @@
 title: LXXII
 
 ---
-<div>
 
-[←](071_rakhal.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Epistles – Second
-Series](epistles_second_series_contents.htm)
-/ [→](073_brother_disciples.htm)
+
+
 
   
 
-[«](071_rakhal.htm) Chronology [»](073_brother_disciples.htm)  
-[«](055_akhandananda.htm) Addressee [»](085_akhandananda.htm)
+  
+
 
 ## LXXII
 
@@ -68,4 +64,4 @@ Yours affectionately,
 
 VIVEKANANDA.
 
-</div>
+

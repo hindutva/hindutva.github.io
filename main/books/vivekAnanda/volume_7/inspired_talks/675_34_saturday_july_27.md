@@ -4,12 +4,9 @@ title: 'RECORDED BY MISS S. E. WALDO
   (A DISCIPLE)'
 
 ---
-<div>
 
-[←](33_friday_july_26.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-7](../volume_7_contents.htm) / [Inspired
-Talks](inspired_talks_contents.htm) / [→](35_sunday_july_28.htm)
+
+
 
   
 
@@ -100,4 +97,4 @@ good and moral and hold no property, and they are what they are because
 from their birth they are taught that they are above law, above
 punishment. They feel themselves to be "twice-born", to be sons of God.
 
-</div>
+

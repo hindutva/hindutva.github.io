@@ -2,13 +2,9 @@
 title: FRAGMENTARY NOTES ON THE RAMAYANA
 
 ---
-<div>
 
-[←](the_practice_of_religion.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Notes of Class Talks and
-Lectures](notes_of_class_talks_and_lectures_contents.htm)
-/ [→](notes_taken_down_in_madras.htm)
+
+
 
   
 
@@ -59,4 +55,4 @@ Sita never returned injury.
 
 "Be Sita!"
 
-</div>
+

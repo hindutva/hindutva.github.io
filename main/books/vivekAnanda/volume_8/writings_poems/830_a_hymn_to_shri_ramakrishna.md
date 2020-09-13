@@ -2,12 +2,9 @@
 title: A HYMN TO SHRI RAMAKRISHNA
 
 ---
-<div>
 
-[←](a_hymn_to.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Writings:
-Poems](writings_poems_contents.htm) / [→](no_one_to_blame.htm)
+
+
 
   
 
@@ -63,4 +60,4 @@ active (for the good of humanity) and whose actions were all superhuman.
 
 Hail, O Lord of Men! Victory unto You!
 
-</div>
+

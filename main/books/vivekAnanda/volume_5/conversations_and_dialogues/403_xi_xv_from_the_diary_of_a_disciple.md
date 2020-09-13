@@ -2,13 +2,9 @@
 title: XI
 
 ---
-<div>
 
-[←](vi_x_shri_priya_nath_sinha.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Conversations and
-Dialogues](conversations_and_dialogues_contents.htm)
-/ [→](../sayings_and_utterances.htm)
+
+
 
   
 
@@ -933,7 +929,7 @@ Without this will the Motherland be really benefited by your simply
 crying as you do nowadays, "We won't touch you!; We won't take him back
 into our caste!"? Never, my boy!
 
-</div>
+
 
 1.  [^](#txt1)There was once a fight between Shiva and Rama. Shiva was
     the Guru of Rama, and Rama was the Guru of Shiva. They fought but

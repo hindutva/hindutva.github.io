@@ -2,19 +2,14 @@
 title: XCV
 
 ---
-<div>
 
-[←](094_marie.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Epistles – Fourth
-Series](epistles_fourth_series_contents.htm) / [→](096_miss_noble.htm)
+
+
 
   
 
-[«](../../volume_6/epistles_second_series/129_rakhal.htm) Chronology
-[»](../../volume_9/letters_fifth_series/110_badri_sah.htm)  
-[«](../../volume_6/epistles_second_series/126_miss_noble.htm) Addressee
-[»](096_miss_noble.htm)
+  
+
 
 ## XCV
 
@@ -61,4 +56,4 @@ With all love,
 Yours in the Truth,  
 VIVEKANANDA.
 
-</div>
+

@@ -2,15 +2,13 @@
 title: CLI
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
 
-[←](150_christina.htm)  
-[←Chronology](150_christina.htm)  
-[←Addressee](150_christina.htm)
+
 
 ## CLI
 
@@ -55,4 +53,4 @@ VIVEKANANDA.
 [Addressee→](152_christina.htm)  
 [Chronology→](152_christina.htm)
 
-</div>
+

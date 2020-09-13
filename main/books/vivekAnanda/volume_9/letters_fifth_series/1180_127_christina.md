@@ -2,15 +2,13 @@
 title: CXXVII
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
 
-[←](126_your_highness.htm)  
-[←Chronology](../../volume_8/epistles_fourth_series/134_haripada.htm)  
-[←Addressee](118_christina.htm)
+
 
 ## CXXVII
 
@@ -57,4 +55,4 @@ VIVEKANANDA
 [Addressee→](132_christina.htm)  
 [Chronology→](../../volume_5/epistles_first_series/086_your_highness.htm)
 
-</div>
+

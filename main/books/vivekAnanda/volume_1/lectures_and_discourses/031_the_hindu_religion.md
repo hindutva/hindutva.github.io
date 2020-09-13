@@ -2,13 +2,9 @@
 title: THE HINDU RELIGION
 
 ---
-<div>
 
-[←](soul_god_and_religion.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-1](../complete_works_v1_contents.htm) / [Lectures and
-Discourses](lectures_and_discourses_contents.htm)
-/ [→](what_is_religion.htm)
+
+
 
   
 
@@ -121,4 +117,4 @@ progress.
 the Pouch Gallery in Clinton Avenue, on the 30th December, 1894.
 Reproduced from the *Brooklyn Standard Union.*)
 
-</div>
+

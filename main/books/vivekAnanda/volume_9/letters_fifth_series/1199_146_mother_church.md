@@ -2,15 +2,13 @@
 title: CXLVI
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
 
-[←](145_christina.htm)  
-[←Chronology](../../volume_8/epistles_fourth_series/144_mary.htm)  
-[←Addressee](095_mother.htm)
+
 
 ## CXLVI
 
@@ -60,4 +58,4 @@ VIVEKANANDA
 [Addressee→](147_mother.htm)  
 [Chronology→](147_mother.htm)
 
-</div>
+

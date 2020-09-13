@@ -2,13 +2,9 @@
 title: VEDANTA AS A FACTOR IN CIVILISATION
 
 ---
-<div>
 
-[←](reason_and_religion.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-1](../complete_works_v1_contents.htm) / [Lectures and
-Discourses](lectures_and_discourses_contents.htm)
-/ [→](the_spirit_and_influence_of_vedanta.htm)
+
+
 
   
 
@@ -118,4 +114,4 @@ external to my eye which I perceive, but an external something plus the
 mental image formed. Thus even the materialist is driven to metaphysics
 in the last extremity.
 
-</div>
+

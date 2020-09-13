@@ -2,15 +2,13 @@
 title: CCII
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
 
-[←](201_sister_christine.htm)  
-[←Chronology](201_sister_christine.htm)  
-[←Addressee](201_sister_christine.htm)
+
 
 ## CCII
 
@@ -53,4 +51,4 @@ V.
 [Addressee→](203_christine.htm)  
 [Chronology→](../../volume_5/epistles_first_series/110_mary.htm)
 
-</div>
+

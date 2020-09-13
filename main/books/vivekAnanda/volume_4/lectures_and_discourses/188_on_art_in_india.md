@@ -2,13 +2,9 @@
 title: ON ART IN INDIA
 
 ---
-<div>
 
-[←](the_basis_for_psychic_or_spiritual_research.htm)
-[Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
-/ [Volume 4](../volume_4_contents.htm) / [Lectures and
-Discourses](lectures_and_discourses_contents.htm)
-/ [→](is_india_a_benighted_country.htm)
+
+
 
   
 
@@ -50,4 +46,4 @@ sculpture. Whatever is done now is merely an attempt at imitation.
 Everything now in India hinges on the question of how little a man
 requires to live upon.
 
-</div>
+

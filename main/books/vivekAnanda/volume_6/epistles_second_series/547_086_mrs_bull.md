@@ -2,18 +2,14 @@
 title: LXXXVI
 
 ---
-<div>
 
-[←](085_akhandananda.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Epistles – Second
-Series](epistles_second_series_contents.htm) / [→](087_alberta.htm)
+
+
 
   
 
-[«](../../volume_5/epistles_first_series/054_alasinga.htm) Chronology
-[»](087_alberta.htm)  
-[«](084_mrs_bull.htm) Addressee [»](088_mrs_bull.htm)
+  
+
 
 ## LXXXVI
 
@@ -32,4 +28,4 @@ Yours with love,
 
 VIVEKANANDA.
 
-</div>
+

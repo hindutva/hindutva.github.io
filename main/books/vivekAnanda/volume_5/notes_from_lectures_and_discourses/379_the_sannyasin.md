@@ -2,13 +2,9 @@
 title: THE SANNYASIN
 
 ---
-<div>
 
-[←](on_language.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Notes from Lectures and
-Discourses](notes_from_lectures_and_discourses_contents.htm)
-/ [→](the_sannyasin_and_the_householder.htm)
+
+
 
   
 
@@ -36,4 +32,4 @@ A Sannyasin cannot belong to any religion, for his is a life of
 independent thought, which draws from all religions; his is a life of
 realisation, not merely of theory or belief, much less of dogma.
 
-</div>
+

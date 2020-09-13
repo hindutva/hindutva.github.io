@@ -2,12 +2,9 @@
 title: THE REAL AND THE APPARENT MAN
 
 ---
-<div>
 
-[←](the_atman_its_bondage_and_freedom.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-2](../volume_2_contents.htm) / [Jnana-Yoga](jnana-yoga_contents.htm)
-/ [→](../practical_vedanta_and_other_lectures/practical_vedanta_part_i.htm)
+
+
 
   
 
@@ -774,4 +771,4 @@ breathe will say with every one of its pulsations, "Thou art That". And
 the whole universe with its myriads of suns and moons, through
 everything that speaks, with one voice will say, "Thou art That".
 
-</div>
+

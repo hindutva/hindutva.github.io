@@ -2,13 +2,9 @@
 title: INDIA'S MESSAGE TO THE WORLD
 
 ---
-<div>
 
-[←](the_social_conference_address.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-4](../volume_4_contents.htm) / [Writings:
-Prose](writings_prose_contents.htm)
-/ [→](stray_remarks_on_theosophy.htm)
+
+
 
   
 
@@ -317,4 +313,4 @@ assimilation of the various elements of which the nation is composed.
 The assimilation of different races into one has been the common task in
 the life of every nation.
 
-</div>
+

@@ -2,12 +2,9 @@
 title: BUDDHISTIC INDIA
 
 ---
-<div>
 
-[←](reports_in_american_newspapers/the_women_of_india.htm)
-[Home](../../index.htm) / [Complete-Works](../complete_works.htm) /
-[Volume 3](volume_3_contents.htm)
-/ [→](../volume_4/addresses_on_bhakti-yoga/the_preparation.htm)
+
+
 
   
 
@@ -851,4 +848,4 @@ revived. Buddhism died out of India. It left its mark on their charity,
 its animals, etc. in India; and Vedantism is reconquering India from one
 end to the other.
 
-</div>
+

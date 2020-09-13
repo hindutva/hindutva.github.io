@@ -2,12 +2,9 @@
 title: SAYINGS AND UTTERANCES
 
 ---
-<div>
 
-[←](conversations_and_dialogues/xi_xv_from_the_diary_of_a_disciple.htm)
-[Home](../../index.htm) / [Complete-Works](../complete_works.htm) /
-[Volume 5](volume_5_contents.htm)
-/ [→](writings_prose_and_poems/reason_faith_and_love.htm)
+
+
 
   
 
@@ -497,4 +494,4 @@ evidence to the predominant nature and ideal of the owner thereof. This
 sort of expressive architecture I have seen nowhere else except in
 Italy."
 
-</div>
+

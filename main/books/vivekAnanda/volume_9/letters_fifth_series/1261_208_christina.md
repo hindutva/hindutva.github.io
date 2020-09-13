@@ -2,15 +2,13 @@
 title: CCVIII
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
 
-[←](207_margo.htm)  
-[←Chronology](207_margo.htm)  
-[←Addressee](206_christina.htm)
+
 
 ## CCVIII
 
@@ -78,4 +76,4 @@ VIVEKANANDA.
 [Addressee→](209_christine.htm)  
 [Chronology→](209_christine.htm)
 
-</div>
+

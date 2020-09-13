@@ -2,13 +2,9 @@
 title: THE STORY OF JADA BHARATA
 
 ---
-<div>
 
-[←](thoughts_on_the_gita.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-4](../volume_4_contents.htm) / [Lectures and
-Discourses](lectures_and_discourses_contents.htm)
-/ [→](the_story_of_prahlada.htm)
+
+
 
   
 
@@ -128,4 +124,4 @@ him and departed. He then resumed the even tenor of his previous life.
 When Bharata left the body, he was freed for ever from the bondage of
 birth.
 
-</div>
+

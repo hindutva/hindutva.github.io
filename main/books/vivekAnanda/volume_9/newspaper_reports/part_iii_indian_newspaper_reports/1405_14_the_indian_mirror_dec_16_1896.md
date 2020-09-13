@@ -2,7 +2,7 @@
 title: THE BANQUET FOR RANJIT SINJHI
 
 ---
-<div>
+
 
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
@@ -10,11 +10,7 @@ title: THE BANQUET FOR RANJIT SINJHI
 Reports](../newspaper_reports_contents.htm) / [Indian Newspaper
 Reports](indian_newspaper_contents.htm) /
 
-[←](13_maha-bodhi_society_nov_1896.htm)
 
-## THE BANQUET FOR RANJIT SINJHI
-
-(*New Discoveries*, Vol. 4, pp. 479-80.)
 
 \[*The Indian Mirror*, December 16, 1896\]
 
@@ -48,4 +44,4 @@ remaining text of this report.\]
 
 [→](15_the_amrita_bazar_patrika_jan_8_1897.htm)
 
-</div>
+

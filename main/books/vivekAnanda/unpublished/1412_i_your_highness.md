@@ -2,16 +2,13 @@
 title: I
 
 ---
-<div>
 
-[←](../volume_9/newspaper_reports/part_iii_indian_newspaper_reports/20_the_indian_social_reformer_jun_16_1901.htm)
-[Home](../../index.htm) / [Complete-Works](../complete_works.htm) /
-[Unpublished](unpublished_contents.htm) / [→](ii_your_highness.htm)
+
+
 
   
 
-[«](../volume_8/epistles_fourth_series/011_alasinga.htm) Chronology
-[»](../volume_6/epistles_second_series/038_doctor.htm)  
+  
 Addressee [»](ii_your_highness.htm)
 
 ## I
@@ -124,4 +121,4 @@ C/o. M. Bhattacharya Esq.
 Assistant Accountant General  
 Mt. St. Thome, Madras
 
-</div>
+

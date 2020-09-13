@@ -2,15 +2,13 @@
 title: CLXXIV
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
 
-[←](173_christina.htm)  
-[←Chronology](../../volume_8/epistles_fourth_series/182_mary.htm)  
-[←Addressee](173_christina.htm)
+
 
 ## CLXXIV
 
@@ -61,7 +59,7 @@ VIVEKANANDA.
 [Addressee→](176_sister_christine.htm)  
 [Chronology→](175_mrs_hansbrough.htm)
 
-</div>
+
 
 1.  [^](#fn1_1)Newport is a fashionable seaside resort on the
     Narrangansett River, in Rhode Island. Dr. Kate Stanton

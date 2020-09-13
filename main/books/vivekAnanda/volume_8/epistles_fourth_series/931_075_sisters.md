@@ -2,21 +2,17 @@
 title: LXXV
 
 ---
-<div>
 
-[←](074_sturdy.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Epistles – Fourth
-Series](epistles_fourth_series_contents.htm) / [→](076_mary.htm)
+
+
 
   
 
-[«](074_sturdy.htm) Chronology
-[»](../../volume_9/letters_fifth_series/091_christina.htm)  
-[«](073_sisters.htm) Both Sisters [»](077_babies.htm)  
-[«](073_sisters.htm) Mary or Harriet Hale [»](076_mary.htm)  
-[«](073_sisters.htm) Harriet Hale [»](077_babies.htm)  
-[«](073_sisters.htm) Mary Hale [»](076_mary.htm)
+  
+  
+  
+  
+
 
 ## LXXV
 
@@ -55,4 +51,4 @@ Sam and sister Locke.
 
 V.
 
-</div>
+

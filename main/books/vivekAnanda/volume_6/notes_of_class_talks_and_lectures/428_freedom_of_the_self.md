@@ -2,13 +2,9 @@
 title: FREEDOM OF THE SELF
 
 ---
-<div>
 
-[←](unselfish_work_is_true_renunciation.htm) [Home](../../../index.htm)
-/ [Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Notes of Class Talks and
-Lectures](notes_of_class_talks_and_lectures_contents.htm)
-/ [→](notes_on_vedanta.htm)
+
+
 
   
 
@@ -31,4 +27,4 @@ But the "I" behind the will is free; and this is the Self. "I am free" —
 that is the basis on which to build and live. And freedom means
 immortality.
 
-</div>
+

@@ -2,12 +2,9 @@
 title: KALI THE MOTHER
 
 ---
-<div>
 
-[←](../writings_prose/fundamentals_of_religion.htm)
-[Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
-/ [Volume 4](../volume_4_contents.htm) / [Writings:
-Poems](writings_poems_contents.htm) / [→](angels_unawares.htm)
+
+
 
   
 
@@ -43,4 +40,4 @@ Who dares misery love,
         Dance in Destruction's dance,  
              To him the Mother comes.
 
-</div>
+

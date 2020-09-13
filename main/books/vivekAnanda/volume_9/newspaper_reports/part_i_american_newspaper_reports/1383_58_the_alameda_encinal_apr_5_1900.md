@@ -2,7 +2,7 @@
 title: TRUE RELIGION
 
 ---
-<div>
+
 
 [Home](../../../../index.htm) /
 [Complete-Works](../../../complete_works.htm) / [Volume
@@ -10,19 +10,7 @@ title: TRUE RELIGION
 Reports](../newspaper_reports_contents.htm) / [American Newspaper
 Reports](american_newspaper_contents.htm) /
 
-[←](57_oakland_tribune_feb_26_1900.htm)
 
-## TRUE RELIGION
-
-(*New Discoveries*, Vol. 6, pp. 405-6.)
-
-\[*The Alameda Encinal*, April 5, 1900\]
-
-Hindu Philosopher Gives His Ideas
-
-Last evening the Swami Vivekananda gave the first of a series of three
-public lectures at Tucker Hall on "The Development of Religious Ideas."
-(Of which no verbatim transcript is available.)
 
 The speaker dwelt briefly on the similarity of ideas in the minds of
 orthodox Christians, Mohammedans and Hindus with regard to the origin of
@@ -53,4 +41,4 @@ we are surrounded. . . .
 
 [→](../part_ii_european_newspaper_reports/european_newspaper_contents.htm)
 
-</div>
+

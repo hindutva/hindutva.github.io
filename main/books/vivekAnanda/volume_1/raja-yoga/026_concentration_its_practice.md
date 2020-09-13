@@ -2,12 +2,9 @@
 title: 'CONCENTRATION: ITS PRACTICE'
 
 ---
-<div>
 
-[←](concentration_its_spiritual_uses.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-1](../complete_works_v1_contents.htm) /
-[Raja-Yoga](raja-yoga_contents.htm) / [→](powers.htm)
+
+
 
   
 
@@ -1100,4 +1097,4 @@ alone one begins to feel joy in being born; then one can truthfully say,
 "Blessed am I that I was born." When that control of the organs is
 obtained, we feel how wonderful this body really is.
 
-</div>
+

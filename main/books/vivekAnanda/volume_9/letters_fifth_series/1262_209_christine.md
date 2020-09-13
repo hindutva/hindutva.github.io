@@ -2,15 +2,13 @@
 title: CCIX
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
 
-[←](208_christina.htm)  
-[←Chronology](208_christina.htm)  
-[←Addressee](208_christina.htm)
+
 
 ## CCIX
 
@@ -57,4 +55,4 @@ VIVEKANANDA.
 [Addressee→](210_christine.htm)  
 [Chronology→](210_christine.htm)
 
-</div>
+

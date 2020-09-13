@@ -2,13 +2,9 @@
 title: A STUDY OF THE SANKHYA PHILOSOPHY
 
 ---
-<div>
 
-[←](cosmology.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-2](../volume_2_contents.htm) / [Practical Vedanta and other
-lectures](practical_vedanta_and_other_lectures_contents.htm)
-/ [→](sankhya_and_vedanta.htm)
+
+
 
   
 
@@ -341,4 +337,4 @@ and reach a perfect solution, and yet all the glory really belongs to
 the Sankhya. It is very easy to give a finishing touch to a building
 when it is constructed.
 
-</div>
+

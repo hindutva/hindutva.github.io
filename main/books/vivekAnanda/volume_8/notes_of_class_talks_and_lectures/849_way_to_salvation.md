@@ -2,13 +2,9 @@
 title: WAY TO SALVATION
 
 ---
-<div>
 
-[←](the_reality_and_the_shadow.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Notes of Class Talks and
-Lectures](notes_of_class_talks_and_lectures_contents.htm)
-/ [→](the_people_of_india.htm)
+
+
 
   
 
@@ -68,4 +64,4 @@ mothers, brothers and sisters, all that is in the world and only pray to
 God that He grant you something of His love, then you have found
 salvation.
 
-</div>
+

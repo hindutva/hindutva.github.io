@@ -2,15 +2,13 @@
 title: CV
 
 ---
-<div>
+
 
 [Home](../../../index.htm) / [Complete-Works](../../complete_works.htm)
 / [Volume 9](../volume_9_contents.htm) / [Letters – Fifth
 Series](letters_fifth_series_contents.htm) /
 
-[←](104_gentlemen.htm)  
-[←Chronology](../../volume_6/epistles_second_series/122_mrs_bull.htm)  
-[←Addressee](102_christina.htm)
+
 
 ## CV
 
@@ -52,4 +50,4 @@ VIVEKANANDA.
 [Addressee→](115_christina.htm)  
 [Chronology→](../../volume_7/epistles_third_series/38_sharat_chandra.htm)
 
-</div>
+

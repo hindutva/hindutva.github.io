@@ -2,13 +2,9 @@
 title: UNITY
 
 ---
-<div>
 
-[←](i_am_that_i_am.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-8](../volume_8_contents.htm) / [Notes of Class Talks and
-Lectures](notes_of_class_talks_and_lectures_contents.htm)
-/ [→](the_worship_of_the_divine_mother.htm)
+
+
 
   
 
@@ -73,4 +69,4 @@ the witness, the same eternal witness of all. I see, therefore nature
 exists. I do not see, therefore she does not. Not one of us could see or
 speak if this infinite unity were broken for a moment.
 
-</div>
+

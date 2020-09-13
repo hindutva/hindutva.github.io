@@ -2,13 +2,9 @@
 title: THE PREPARATION
 
 ---
-<div>
 
-[←](../../volume_3/buddhistic_india.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-4](../volume_4_contents.htm) / [Addresses on
-Bhakti-Yoga](addresses_on_bhakti-yoga_contents.htm)
-/ [→](the_first_steps.htm)
+
+
 
   
 
@@ -282,4 +278,4 @@ a reaction.
 
 These, according to Ramanuja, are the preparations for Bhakti.
 
-</div>
+

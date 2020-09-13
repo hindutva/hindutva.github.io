@@ -2,13 +2,9 @@
 title: THE REALITY AND SHADOW
 
 ---
-<div>
 
-[←](on_jnana-yoga.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-6](../volume_6_contents.htm) / [Notes of Class Talks and
-Lectures](notes_of_class_talks_and_lectures_contents.htm)
-/ [→](how_to_become_free.htm)
+
+
 
   
 
@@ -38,4 +34,4 @@ illusion.
 He who knows the Real sees in Maya not illusion, but reality. He who
 knows not the Real sees in Maya illusion and thinks it real.
 
-</div>
+

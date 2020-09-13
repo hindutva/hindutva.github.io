@@ -2,19 +2,14 @@
 title: XLVII
 
 ---
-<div>
 
-[←](046_friend.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-5](../volume_5_contents.htm) / [Epistles – First
-Series](epistles_first_series_contents.htm) / [→](048_friend.htm)
+
+
 
   
 
-[«](../../volume_6/epistles_second_series/070_alberta.htm) Chronology
-[»](../../volume_9/letters_fifth_series/063_mother.htm)  
-[«](../../volume_4/writings_prose/reply_to_the_maharaja_of_khetri.htm)
-Addressee [»](083_your_highness.htm)
+  
+
 
 ## XLVII
 
@@ -40,4 +35,4 @@ will vanish. . . .
 
 VIVEKANANDA.
 
-</div>
+

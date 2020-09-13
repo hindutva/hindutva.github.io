@@ -2,12 +2,9 @@
 title: TO THE AWAKENED INDIA
 
 ---
-<div>
 
-[←](angels_unawares.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-4](../volume_4_contents.htm) / [Writings:
-Poems](writings_poems_contents.htm) / [→](requiescat_in_pace.htm)
+
+
 
   
 
@@ -78,4 +75,4 @@ The Truth! Be one with it! Let visions cease,
 Or, if you cannot, dream but truer dreams,  
 Which are Eternal Love and Service Free.
 
-</div>
+

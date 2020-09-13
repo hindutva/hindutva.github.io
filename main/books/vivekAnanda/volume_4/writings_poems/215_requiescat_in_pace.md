@@ -2,12 +2,9 @@
 title: REQUIESCAT IN PACE
 
 ---
-<div>
 
-[←](to_the_awakened_india.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-4](../volume_4_contents.htm) / [Writings:
-Poems](writings_poems_contents.htm) / [→](hold_on_yet_a_while.htm)
+
+
 
   
 
@@ -30,4 +27,4 @@ And one with That which comes as Death and Life;
 Thou helpful one! unselfish e'er on earth,  
 Ahead! still help with love this world of strife!
 
-</div>
+

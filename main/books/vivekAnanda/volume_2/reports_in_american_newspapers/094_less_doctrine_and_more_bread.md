@@ -2,13 +2,9 @@
 title: LESS DOCTRINE AND MORE BREAD
 
 ---
-<div>
 
-[←](sects_and_doctrines_in_india.htm) [Home](../../../index.htm) /
-[Complete-Works](../../complete_works.htm) / [Volume
-2](../volume_2_contents.htm) / [Reports in American
-Newspapers](reports_in_american_newspapers_contents.htm)
-/ [→](the_religion_of_buddha.htm)
+
+
 
   
 
@@ -69,4 +65,4 @@ tends to expansion for life and contraction for death. It is the same in
 religion. Do good by helping others without ulterior motives. The moment
 this ceases contraction and death follow."
 
-</div>
+
