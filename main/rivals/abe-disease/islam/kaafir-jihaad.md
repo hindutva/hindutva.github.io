@@ -49,19 +49,22 @@ title: War on infiedels
 
 - Ibn Khaldun \[[IMG](http://i.imgsafe.org/63eaa8e442.png)\]  
     
-### women
-- Precedent and history
-    - Muhammad himself practiced this. 
-    - Early muslim expansion into central Asia offers several gory examples ([M](http://www.indiafacts.co.in/isis-caliphate-lessons-earliest-mohammedan-invasions-central-asia/)).
-    - Boko Haram captures schoolgirls of Nigeria (2014) and forces them to Islam + marriage with jihadis ([wiki](https://en.wikipedia.org/wiki/Chibok_schoolgirls_kidnapping)).
-    - Islamic State sells captured Yazidi women in Iraq (2014) \[[Guardian](http://www.theguardian.com/world/2014/aug/11/yazidis-tormented-fears-for-women-girls-kidnapped-sinjar-isis-slaves)\].
-- Theological justification
-    - Kuwaiti Political Activist Salwa Al Mteiri ([1](https://www.youtube.com/watch?v=x7Sc2uoJ5f8), [2](https://www.youtube.com/watch?v=BoBcFWUTze0))
-    - "Professor" Suad Saleh of Al-Azhar University [YT](https://www.youtube.com/watch?v=Hj-Bx4SYufA).
-- Mob practices
-    - " In taḥarrush, They surround the victim in circles. The men in the inner circle are the ones who physically abuse the woman, the next circle are the spectators, while the mission of the third circle is to distract and divert attention to what's going on."
-        - "[A 2013 study](http://harassmap.org/en/wp-content/uploads/2013/03/Reconceptualizing-Sexual-Harassment-in-Egypt.pdf) informs us that 98% of foreign women who visit Egypt have been sexually molested: http://harassmap.org/…/Reconceptualizing-Sexual-Harassment-… . Local women only fare marginally better: 83% of Egyptian women are molested."
-        - "Muslim gangs of 500-1,000 men had targeted German women in Cologne on New Year's Eve in a brutal enactment of taḥarrush in which 90 women were sexually assaulted. One should've seen this coming. " \[[FB](https://www.facebook.com/KalavaiVenkat/posts/1669293833350986), [S](http://speisa.com/modules/articles/index.php/item.2374/german-police-it-s-an-arab-rape-game-called-taharrush-and-now-it-has-come-to-europe.html), [YT1](https://www.youtube.com/watch?time_continue=21&v=gMGQAbEA23Q)\]
+### Women
+#### Precedent and history
+- Muhammad himself practiced this. 
+- Early muslim expansion into central Asia offers several gory examples ([M](http://www.indiafacts.co.in/isis-caliphate-lessons-earliest-mohammedan-invasions-central-asia/)).
+- Boko Haram captures schoolgirls of Nigeria (2014) and forces them to Islam + marriage with jihadis ([wiki](https://en.wikipedia.org/wiki/Chibok_schoolgirls_kidnapping)).
+- Islamic State sells captured Yazidi women in Iraq (2014) \[[Guardian](http://www.theguardian.com/world/2014/aug/11/yazidis-tormented-fears-for-women-girls-kidnapped-sinjar-isis-slaves)\].
+
+#### Theological justification
+- Kuwaiti Political Activist Salwa Al Mteiri ([1](https://www.youtube.com/watch?v=x7Sc2uoJ5f8), [2](https://www.youtube.com/watch?v=BoBcFWUTze0))
+- "Professor" Suad Saleh of Al-Azhar University [YT](https://www.youtube.com/watch?v=Hj-Bx4SYufA).
+
+#### Mob practices
+- " In taḥarrush, They surround the victim in circles. The men in the inner circle are the ones who physically abuse the woman, the next circle are the spectators, while the mission of the third circle is to distract and divert attention to what's going on."
+- "[A 2013 study](http://harassmap.org/en/wp-content/uploads/2013/03/Reconceptualizing-Sexual-Harassment-in-Egypt.pdf) informs us that 98% of foreign women who visit Egypt have been sexually molested: http://harassmap.org/…/Reconceptualizing-Sexual-Harassment-… . Local women only fare marginally better: 83% of Egyptian women are molested."
+- "Muslim gangs of 500-1,000 men had targeted German women in Cologne on New Year's Eve in a brutal enactment of taḥarrush in which 90 women were sexually assaulted. One should've seen this coming. " \[[FB](https://www.facebook.com/KalavaiVenkat/posts/1669293833350986), [S](http://speisa.com/modules/articles/index.php/item.2374/german-police-it-s-an-arab-rape-game-called-taharrush-and-now-it-has-come-to-europe.html), [YT1](https://www.youtube.com/watch?time_continue=21&v=gMGQAbEA23Q)\]
+
 #### Consequences
 - Increased practice of suicide (assisted or otherwise) to prevent women from being taken as sex slaves.
 - In India, this led to increased jIvahara (jowhar)/ sati.
