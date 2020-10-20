@@ -5,7 +5,7 @@ title: S.P.Q.R
 ## Cause of rise
 Why did Rome expand from a small city state to an empire which spanned 3 continents?
 
-In the Roman republic, every notable person seeking greater power and reputation had to gain military victories. This meant that positive ambition was never in short supply.
+In the Roman republic, every notable person seeking greater power and reputation had to gain military victories. This meant that positive ambition was never in short supply. Political advancement (highly competitive) being heavily tied to military triumphs; led to stronger will to repeatedly keep up the wars.
 
 ## Leaders
 ### Gaius Julius Caesar
