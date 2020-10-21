@@ -689,9 +689,9 @@ And yet that Karma Yogi, that sufferer, never lost his confidence, never gave wa
 
 But this is only about the Andamans. When he was transferred from this jail to a jail in India, he had to undergo hardships still more terrible. Fate had in store for him untold suffering in comparison with which what he had got in the Andamans was almost nothing. He was reserved by Providence to face them.
 
-### CHAPTER VII
+## CHAPTER VII
 
-#### Riots in Punjab and Gujarat. (1919-1920)
+### Riots in Punjab and Gujarat. (1919-1920)
 
 The war had ended and its reaction on India was just coming to a close, when news came in the Andamans about riots in Punjab and Gujarat. We were taken by surprise to read that news. In the tremendous upheaval of the great war and its repercussion on the world, nothing cataclysmic could happen in India. And now these riots - on a day after the fair, an uprising of sleepers awakened and struggling for commotion, after the tide had turned! Ahmedabad, Viramgaon, and Delhi and towns in the Punjab rioting, for what? Presently were drafted in this prison martial law convicts from the Punjab and Gujarat. No Muslim political convicts had yet been reported to the Andamans. But in this batch from Gujarat and Punjab there were a few Muslim political convicts as well. All of them had sentences passed on them which ranged from two years' rigorous imprisonment to transportation for life.
 
@@ -699,7 +699,7 @@ In 1911, when I was transported to the Andamans, on board a steamer, in a chalan
 
 With all this, freedom has not come nearer. And it will demand tremendous sacrifice on the part of her people and an amount of suffering to accompany it, till India can hope to be free. That is the price of her victory.
 
-#### Naland Vihar
+### Naland Vihar
 
 This was the lesson of my preaching to all prisoners in the Andamans. And that made them stand up against any hardship that felt upon them. The newcomers were all drawn from the villages. They were all uneducated, ignorant people but no whit less patriotic on that account. I began to tell them that now that they were to be in prison for a number of years, it was up to them to add knowledge to fair patriotism. Let them enforce their love for their country with rational sentiment behind it Let them read, let them study, let them grasp and understand, so that patriotism would not be with them a vague sentiment or a mere emotion. The prison was a university for such study. It was our 'Naland Vihar' a Buddhist temple of study and retirement. Train yourself, discipline yourself aad acquire learning. And I and my old colleagues began to instruct them accordingly. We started with alphabets for these newcomers - shop-keepers, farmers, and villagers, all of them. Some of them were Gujaratis, and I procured books for them in Gujarati. Others were Punjabis and I made them read through Gurumukhi, The rest took their lessons in Hindusthani. I mixed with them partly in the morning and partly in the evening, and used my time with them in imparting lessons Every chawl was humming with life. And all our members applied themselves seriously to that task. Most of them had heard my name and that counted much with them.
 
@@ -713,7 +713,7 @@ During the course of instruction, I had, sometime, very strange and unwelcome ex
 
 Several times I had to run after them with slate, pencil and horn-book, to make them learn. Some systematically avoided me as a pest. I remember giving a lesson in Gujarati alphabet to a forty-year-old peasant, from that province, Jiva by name, forty times before he could learn it. The rest of them burst with laughter, but the best of it was that Jiva had learnt the lesson. They were so dull, so averse and so ignorant. But they had, all of them, hearts of gold. Pure, devoted, simple, humble and obedient they were, except in learning what I wanted them to learn, and what I insisted on teaching them. They had wounds from bulletshots, all of them, which now survived as stains or scars. I always used to pass my hand gently on these scars and say with pride, "Behold our soldiers and the medals they wear. They are more precious in my eyes than medals of gold. They are more honestly won than those, and will last for ever.
 
-#### Exit Mr. Barrie
+### Exit Mr. Barrie
 
 Where was Mr. Barrie when all these changes were going on in this prison, in all the bustle of its political prisoners? Where was now, the demi-god of Port Blair, who once made the political prisoners look down when he looked up, and look up when he looked down, who roared and fumed every moment of the waking hour, and insulted him every moment of his life? Where was he? Nowhere. He was the jailor, he was in his office, like dead stone, harmful if one clashed his head against it; otherwise immovable and harmless. Ten years of endless wrangling, of strikes of newspaper cries and controversies, his loss of prestige, the grief that it had brought him, had tired him out completely. The superior officers had also adopted towards the political prisoners, considering their growing number, their consolidation and their defiant attitude, the policy of let-alonism, of tolerating them as an inevitable nuisance. Where we could hardly meet together and talk in a company of four, now we hold open meetings of twenty-five and more, and defy any-one to stop or disperse us. Mr. Barrie saw this, but wanted the petty officers to refrain from any action. "Let them not gather together and hold their meetings under our very nose, and that is enough. Give them light work, do not do anything and let them not do anything that may raise a commotion and a storm. And that will do. Let those devils do what they like. See that you manage them for yourself." That was the tone of his advice to them.
 
