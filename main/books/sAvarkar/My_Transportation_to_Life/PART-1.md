@@ -3,7 +3,7 @@ title = "PART-1"
 
 +++
 
-## CHAPTER I
+## CH I
 
 ### The Gaol At Dongri, Bombay
 
@@ -115,7 +115,7 @@ It must be a month now that I was serving my sentence in this gaol. All the same
 
 down to the gate of the prison and I saw the prison van drawn up before it. I was put inside, the shutters were down, the door was closed, and I could see nothing around me. Only the rumbling and rolling sound of the carriage wheels told me that I was moving to some place outside the prison I had left behind. Suddenly the van came to a standstill. I was let down, and, behold! I was in front of another prison-gate. I passed through all the ceremonial of a prisoner to be freshly ushered into its sanctum! I was put into the cell assigned to me for my stay in the new place. This gaol was drearier and more lonely than the one I had left behind. I saw in the distance a warder coming in my direction. Dinner was served. The warder, who put me in this gaol, was not an Indian. He was a foreigner. Casting his look round about him, the European sergeant who had brought me here, bid me good day. I asked hint in a low voice where I was, what prison it was. The sergeant spelt the word for me so that the warder in charge may not know what he was saying to me. The word he spelt was "Byculla."
 
-## CHAPTER II In The Gaol At Byculla
+## CH II In The Gaol At Byculla
 
 While climbing up to my cell in the Byculla prison I felt that I had to go one step higher in solitariness and dejection. For the cell here was more gloomy and far lonelier than the one I had occupied at Dongri. At Dongri I had no other person near about me, but the noise of the outer world fell upon my ears. I had, besides, a book or two to read, and some sundry articles about me. Here everything of that kind was gone. No noise was heard here of the humming world without. Not a soul moved here, and articles of daily use were not here, so that I had no companionship here of any kind whatsoever. For want of these, I felt here completely isolated in mind and body and hence more lonely and deserted than ever. I surveyed my room. There was nothing in it to see and inspect. I paced up and down. What must be the condition of my fellow-conspirators and of the revolutionary society we had formed? What plan must we work out for its future? - These thoughts occupied my mind at the moment.
 
@@ -139,7 +139,7 @@ The dinner so early to day? How was it? The prison meant the strictest regimenta
 
 I finished my dinner. The verses that I had scrawled on the prison-wall with the help of a pointed stone, I read rapidly, and treasured them up in my memory. I rubbed off the scored lines as hurriedly as I had read them. I did not desire to leave any trace of them behind me. Hardly had I finished the job, when the Havildar at the door called out "Come away". He opened the door and let me out. The gaoler handed me over to the European sergeant as if I was some goods or chattel to carry over. Motor, station, railway, and station once again! That was all I knew of it. The station where they got me down was Thana. And my destination from there was to be the gaol at Thana.
 
-## CHAPTER III
+## CH III
 
 ### At Thana
 
@@ -215,7 +215,7 @@ At last the procession passed through the main gate. The gaoler came forth to in
 
 On the following day, I was ushered into the presence of a Committee which was to examine me. It was to say if I was fit in body and mind, by age and several other things, to be transported to the Andamans. A kindly Officer said to me at the time, "If you would really not go there, I shall try my very best, use all my influence, to keep you here. I shall not fail you." I said to him, "I am very grateful to you for your kind wishes. But it is not in the power of the Government of Bombay to keep me back in India. And I would not trouble you and you need not trouble yourself where we know we are helpless." I was then examined by the Committee. The Officer was present at the examination. I had high fever; nevertheless, I was weighed and the board reported that I was fit to be carried over. And I was ordered to proceed to the Andamans. I took my bedding under the arm-pit, I carried my utensils in my hand, and I walked on to the place reserved for the chalan. I crossed the threshold and entered the eastern wing of the old fortification. This was the threshold of my entry into the Andamans. India lost me and I lost India. I was definitely bound for the Andamans.
 
-## CHAPTER IV
+## CH IV
 
 ### On The Way
 
@@ -277,7 +277,7 @@ Yes, climbing into that steamer to be transported for life was like putting a li
 
 countrymen that they were-more than that the consciousness that my transportation was to mean a death-in-life for me, could give me. If but a single one out of these my compatriots was to tell me, “Go, my brother, go, I and others like me swear that we shall make India free and fulfil your yow", I would have felt my funeral pier as soft as a bed strewn with flowers.
 
-## CHAPTER V
+## CH V
 
 ### The Black Sea
 
@@ -327,7 +327,7 @@ But the present? What is your state today? Dream, an empty dream, a foolish drea
 
 The sea was calm, snoring like a giant Hie boat was slowing down like the pulse of a dying man. The sun overhead was burning like a furnace. The weather was unbearably warm. We were very dose to the Andamans. The travellers and officers behaved with me now as perfect strangers. They were reticent and curt. They kept themselves at a distance. The shadow of transportation had extended itself to cover and darkenmycountenance.
 
-## CHAPTER VI
+## CH VI
 
 ### The Andamans
 
@@ -403,7 +403,7 @@ In every division of this island, barracks are built and a factory is attached t
 
 remote prisoner-ancestors. Today these later generations contain some well-educated and decent persons. The last stage was to build a big and self-contained prison-house where prisoners from India could be straightaway confined for a stipulated period and freed or not freed in live their own lives on the island, according to the sweet will of the Officers in charge. The local criminals were also confined in this jail. This prison has come to be known all over the place as Silver Jail or Cellular Jail wherein it was meant that Political prisoners should spend their long term in solitary confinement, and not a sound of their groans and agonies was to reach from it to the world without. But providence had willed it otherwise. And today it is the political prisoner's cry that is heard resounding on the shoresofIndia.
 
-## CHAPTER VII
+## CH VII
 
 ### We reach Andamans
 
@@ -429,7 +429,7 @@ I had almost recovered from this maelstrom of emotion when I beheld a stout, cor
 
 "So far so good, act as I like, and I shall prove myself useful to you. Jamadar, take him in, and show him up to his room on the top floor of barrack number seven. Lock him up."
 
-## CHAPTER VIII
+## CH VIII
 
 ### The First Week in my cell
 
@@ -529,7 +529,7 @@ The whole crowd was enjoying the scene and the Pathan was having the worst of it
 
 steal the curd-milk- coconut." I gave him a sound thrashing." "Well done". I answered, "a thief, and, at that, one who would thieve again, and also in prison! He deserved what he got". The Pathan and myself knew well who the thief was, and who gave the thrashing.
 
-## CHAPTER IX EARLY HISTORY OF THE POLITICAL PRISONERS
+## CH IX EARLY HISTORY OF THE POLITICAL PRISONERS
 
 ### The Cult of the Bomb
 
@@ -657,7 +657,7 @@ My speech did not go home to their hearts as it should have done; for many of th
 
 No sooner had I finished what I had to say to them, than the petty officer and the warden raised a howl near me saying, "Babu, what is coming over you? If Mr. Barrie were to know that you were talking to them, he is sure to make a public example of us. Come away, we respect you. But if you are to continue like this, then............." They pulled me from that place, and locked me back in my own cell.
 
-## CHAPTER X
+## CH X
 
 ### I see my elder brother
 
@@ -681,7 +681,7 @@ led by the charioteer Shri Krishna, and by the warrior Rama,- heroes of Hind, an
 
 Such was. the letter I wrote to my brother and saw that it reached him safely. It heartened him; and it gave me new zest, new hope, and new courage, to do the work I did. 
 
-## CHAPTER XI
+## CH XI
 
 ### I am put on the Oil-Mill
 
@@ -719,7 +719,7 @@ Not only did I make up my mind to die bravely, but I persuaded all my friends an
 
 While working at the oil-mill and with all the fatigue that the work involved for body and mind, I had one compensation in it and that was the chance I got there to talk to my political friends. These came to me either by connivance of their Jamadars and wardens, or by eluding their watch. They kept on talking to me as long as they could safely do so. Most of that conversation took place after five in the evening while others were busy arranging for our dinner, and during the hurry and bustle of that business. We gathered together then on the resting place of the reservoir in front of us. One of us kept the watch and the rest engaged themselves in talk. We had free and candid exchange of opinion on the question which had all along occupied our minds and for which we had sacrificed our lives. The talk went on like a fresh breeze through our souls and thoroughly revived us. The fire that had smouldered blazed once more. Insults and humiliations were welcomed as acts of grace. What we had suffered paled into insignificance, and what was to come we resolved to face as "the stern daughter of the voice of God", would dictate it to us. These moments of freedom from the harrowing teeth of the Kolu were, indeed, blessings from that Goddess. Most of the political prisoners of my time were not more than twenty-five years old. I found their education defective and incomplete. They had read nothing of history, politics and economics. It was not a strange experience, and that did not diminish aught from their patriotism and self-sacrifice. On the other hand, I felt a sort of respect for them because they had suffered so much for the cause inspired by noble motive and thorough disinterestedness. If only they had added adequate knowledge to their sterling enthusiasm, they would have better fitted themselves to advance the cause so near to their heart. I, therefore, resolved to make up the defect in them by proper study and wise guidance. First, it was necessary to awaken in them this desire for study and guidance. And my conversation with them had this principal object behind it. I began my work as soon as I was set to my new labour on the oil-mill. Some of them had begun to despair that their life had gone in vain. I had to draw them out of this 'slough of despond'. I quoted to them examples from history. Those who had doubts, I gave reasons to overcome that doubt. Those who were merely caught in the whirl-wind of agitation, I convinced why it was right to do what they had done. I thus succeeded in reinforcing their will and confirming their zeal. After the tiresome and soul-killing toil of the day, the evening meeting was a happy, though brief, respite to them all. They talked freely, they imagined boldly; they revelled in happy dreams of the future; and they recovered the balance of their minds and the poise of their souls. Their courage to face and to endure was deepened; its blinted edge had recovered its sharpness; and, when they dispersed, they went away, each to his cell, taking leave of one another, like happy and loving brothers. It was there that I enrolled them and other prisoners of the settlement as members of my "Abhinava Bharat". It was here that they took their solemn oath to be true to the cause and serve it ever with their lives.
 
-## CHAPTER XII
+## CH XII
 
 ### Consolidation and Propaganda in the Andamans
 
@@ -803,7 +803,7 @@ These obstacles to learning were external; but there was one great internal obst
 
 I said, "Every one who presumes to think of his own country, to dabble in politics, and to aspire to political leadership, must needs possess full and deep knowledge of subjects like politics, economics and constitutional history. To be wanting in such knowledge is to spell yourself inefficient and unfit for responsible self-government, or for high administrative offices in it. As in religion so in politics, action with knowledge is the key to salvation. At present you are working out the nation's destiny by self- immolation and service which are apparent failures. But if this service and self-immolation are to fructify in success and commonwealth, then here it is: when you have plenty of time before you, a number of years to be passed in enforced idleness, you must add knowledge to service and vision to self-sacrifice. Heroism, to do or die, is not enough. It must be illumined by deep learning ripening into wisdom." I exhorted them finally to cast off gloom and despondency, and apply themselves to knowledge which was their proper work there.
 
-## CHAPTER XIII
+## CH XIII
 
 ### Correspondence with India and means of information
 
@@ -891,7 +891,7 @@ The political prisoners during the first three years of my stay in this jail had
 
 It was through this new source that we learnt before long that it was Mr. Barrie's invention, pure and simple, that The Bengali was prosecuted for publishing Hotilal's letter and its press was confiscated in consequence. And he had spread the news through his minions to demoralise political prisoners in his charge. A few days after, we procured a cutting from the Paper itself and we learnt that it was the first paper in India to publish the news that I, as a convict in this prison, was put upon the hard work of turning the oil-mill. The news was, thereafter, published in American Papers. And our workers of the Abhinava Bharat in that part of the world improvised a cartoon and circularised it in the press there, and distributed its copies all over the States. I shall narrate its effect on India when I deal with the story of convicts in the Lahore Conspiracy Case since their arrival in this settlement.
 
-## CHAPTER XIV
+## CH XIV
 
 ### The Coronation Ceremony of 1911 and its shadow on the prison in the Andamans
 
@@ -945,7 +945,7 @@ These words fell from the lips of every young prisoner when he had heard that go
 
 I was not in the least sorry that the capital of India was removed to Delhi. For whenever we discussed among ourselves which should be the future capital of India, I had always expressed my preference for Ujjain. But I never failed to add that though from the standpoint of history, culture, industry and art as also from its geographical position and military importance, I regarded that city as the best- fitted in the whole of India to be its capital, I had no objection to Delhi taking that place, and I felt that the probability was more in favour of Delhi than Ujjain. According to my conjecture and forecast, Delhi had become the capital of India, and I felt no regret for the fact. Of course, personally it would have pleased me to see Ujjain as the capital of India. 
 
-## CHAPTER XV
+## CH XV
 
 ### The prisoner's food in the Andamans
 
@@ -1005,7 +1005,7 @@ In addition to bad, insufficient, and sometimes unhealthy food, we had to suffer
 
 And this was not the rule only for the prisoners inside but also for those who were sent to work outside. Other Officers treated these batches no better than Mr. Barrie himself. Sometime these were made to take their meal standing. Their clothes were wet with rain, their bodies shivered with cold, and they held their plates in one hand and dined with another all the while standing, and the drops of rain falling on the bread and rice in their plates. And this mode of serving and eating was not an exception but the rule with the prisoners working outside the jail and in different parts of the island settlement. Those alone escaped from this imposition who had the privilege given them to cook for themselves and eat independent ofthe rest. But no political prisoner, detailed for work outside, was ever given that freedom. He had to suffer all along and yet he did not shrink from the struggle to relieve the misery of his fellow-prisoners in and out of the prison-walls of the Silver Jail. The political prisoners suffered continuously and exceptionally; they incurred the severe displeasure of their custodians, but they did not give up till they had seen that things were changing for the better in the prison where they had to serve the longest term of incarceration. Besides this hardship of the sun and the rain over their heads, they had another grievance and that was the petty officer who never gave them sufficient time to finish their meals. The time given was very brief, and, as soon as it was up, the petty officer went round shouting, "The time is up, get up." And the prisoners had to stand up and leave, whether or not they had finished the food in their plates. The remainder had to be thrown into the dust-bin. If they refrained or hesitated, the petty officer would rush into the line, brandishing his stick, and knock the plates out of their hands, and he would also give a blow or two to some of them. Stragglers were then hauled up before the jailor and the Superintendent invariably punished them. It took us five years of persistence and agitation to change all this. The prisoners were gradually allowed to sit in the shade, to take their meals without unnecessary hurry and bustle; they were seldom semi-starved and the 'Zulum' of the petty officer, the Jamadar and the jailor on the top of them had almost come to an end. At the end of the fifth or the sixth year of my prison-life, Mr. Barrie had almost ceased to address us as scoundrels, or to say to us that we were sent there for work and not for eating. All his rigour and hauteur had gone for nothing and he had become soft as putty. This is the record of years reckoning up to 1914-I6 from the day I went into the prison in 1910. We shall see presently to what further development this change in food had led. It was almost the beginning of the end.
 
-## CHAPTER XVI
+## CH XVI
 
 ### Suicide, Mental derangement, arrests, the second and the third strike
 
