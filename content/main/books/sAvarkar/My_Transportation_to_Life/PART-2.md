@@ -2,7 +2,7 @@
 title = "PART-2"
 
 +++
-## CHAPTER I
+## CH I
 
 ### Consolidation and propaganda in the Andamans
 
@@ -68,7 +68,7 @@ Another advantage of training ordinary Hindu prisoners was that as soon as they 
 
 forced to undertake the work of improving them without their knowledge. Otherwise, there was no need for secrecy in such a laudable enterprise.
 
-## CHAPTER II
+## CH II
 
 The "Shuddhi" movement in the Andamans
 
@@ -245,7 +245,7 @@ I always used to assert, while engaged on these activities, that both the Shuddh
 
 This was the motive inspiring my agitation in the Andamans. I began my work of Shuddhi in the year 1913 and fought my first battle in its favour in the same year. From that date to 1920-21, I did that work in the Andamans; from 1921-24 I continued it in my prison-days in India; and from my release in 1924, I have been pursuing it to this day. And I have invariably carried it on in the interests of freedom Justice and fair-play for all. I have no hatred in my heart for the Christian, the Mussulman, and the heathen, or for those whom they style as primitive barbarians. I do not look down upon any one of them with scorn and contempt. I only oppose that section of it vehemently, which is oppressive and violent towards another. For I believe firmly that the Shuddhi movement itself will build a bridge of permanent union between the Hindus and the Muslims, and will bring good to both and lasting advantage to India as a whole.
 
-## CHAPTER III
+## CH III
 
 ### The World War (1914) and its menace to the Andamans
 
@@ -409,7 +409,7 @@ But even in this daily suspense and anxiety, we felt gratified that the war had 
 
 We swung like a pendulum between smiles and tears; and yet did not fail to rise above the darkness of despair and peep at the dawn that was sure to follow it. To end with the words ofthe poet, we ever "painted on the midnight sky of sorrow, the golden morrow."
 
-## CHAPTER IV (1914-1918)
+## CH IV (1914-1918)
 
 ### Political prisoners again flood the Andamans!
 
@@ -505,7 +505,7 @@ All this brought on a rapid decline in my health while my general work and the h
 
 Just then a Bengali prisoner, an M. A. of the Calcutta University, honest and intelligent, had to strike work for his delicate constitution did not enable him to complete his daily quota of two pounds of picked oakum, while the authorities insisted that he must complete it. He suffered punishment for it from time to time and at last it came to caning him. The University graduate bore the caning with patience and fortitude as the officers gave it with obstinate and contemptible ill-will. This tussle went on for months and though it was unsupportable for the individual, other political prisoners benefited by it, for, deterred by his example, the officers could not compel them to do excessive work, much less put them on the Kolu. Just then matters came to a crisis and we had all to go on the fourth strike.
 
-## CHAPTER V
+## CH V
 
 ### The Fourth Strike and my ill-health
 
@@ -625,7 +625,7 @@ The only hope that now remained to many of us in this prison hanged round the sl
 
 But for me! What was my good fortune? As in the past, so now onwards! Not a day’s reduction in my sentence- no mention of my release or transfer anywhere.
 
-## CHAPTER VI
+## CH VI
 
 ### On Death-Bed
 
@@ -689,7 +689,7 @@ And yet that Karma Yogi, that sufferer, never lost his confidence, never gave wa
 
 But this is only about the Andamans. When he was transferred from this jail to a jail in India, he had to undergo hardships still more terrible. Fate had in store for him untold suffering in comparison with which what he had got in the Andamans was almost nothing. He was reserved by Providence to face them.
 
-## CHAPTER VII
+## CH VII
 
 ### Riots in Punjab and Gujarat. (1919-1920)
 
@@ -819,7 +819,7 @@ This discussion between the commission and myself took place about 1919-1920. I 
 
 Suffice if to say here it will give me great pleasure to see my vision of the Andamans since I stepped on its shores in 1910, and my suggestions all along, to turn it into a reality, as the report from a newspaper, which I have quoted above, goes to show that it will be so. I may, however, remark that in order to make the Andamans a naval and an air base for the future defence of India, it is not necessary to cancel it as a prison-settlement, of course, on the lines indicated by me in my written statement and my oral evidence before the jail commission. If both the plans were properly correlated end vigorously carried out, they would largely contribute both to the prosperity and military strength of the Andamans. That was the opinion I held in 1919-2O, and that is what I hold and maintain even today. 
 
-## CHAPTER VIII
+## CH VIII
 
 ### Amnesty and political prisoners
 
@@ -901,7 +901,7 @@ As a foreman I was in charge of the big oil-depot of the factory. In the prison-
 
 What the job meant and what I made of it had better be told in an independent and a new chapter.
 
-## CHAPTER IX
+## CH IX
 
 ### The spread of Hindi in the Andamans
 
@@ -965,7 +965,7 @@ The Andamans which knew no other language than Urdu, and where Hindu girls talki
 
 But the full fruition of that agitation was yet to come. And for it Hindi and Nagari must spread throughout the education centres of those islands. I made but a beginning. What its sequel has been we shall see as we go on.
 
-## CHAPTER X
+## CH X
 
 ### Miniature Hindu Raj
 
@@ -1110,7 +1110,7 @@ I add only two sentences to this disquisition without referring in detail to oth
 
 I had pointed out even then to my fellow-prisoners how far this chameleon would go, what would be the extern of its jump. I had warned them how the alliance of non-cooperation with the Khilafat agitation was bound to end in disaster, that it was sure to raise in the country a wave of fanaticism and plunge the whole movement into conflagration, with its consequences to the country too terrible to imagine. I continued impressing the fact upon my colleagues and fellow-prisoners as long as I was in the Andamans.
 
-## CHAPTER XI I meet my family again
+## CH XI I meet my family again
 
 ### Last days In the Andamans
 
@@ -1212,7 +1212,7 @@ We both got up from our seats full of adoration and worship We folded our hands 
 
 “Bande Mataram!”
 
-## CHAPTER XII
+## CH XII
 
 As we alighted from the steamer and touched the port at Calcutta we were put in the lock up at the Alipore jail. The fear that I had felt on leaving Andamans in the morning had but proved too true. Myself and my brother were put in different cells. Wearing our prison-garments and holding our bedding under the arm-pit and our pots and pans in one hand, we were both marching together like thieves directed by our escort of sepoys, when my elder brother was directed along a side passage by the sepoy in charge, and I was taken in different direction by another. Then I felt that I and my brother were parted for good one from the other.
 
@@ -1330,6 +1330,7 @@ A few days after this incident, news came that my brother hail been let off from
 
 That very year, I believe- though I do not remember correctly at the moment- the Congress session at Coconada adopted a resolution demanding my release. The resolution was moved from the chair and was passed nem con It was a moral gain for all the efforts of my younger brother and for similar agitation of patriots in full sympathy with all the political convicts in the country , I was transferred from the Andamans to Ratnagiri in 1921 and in 1923, I was removed from that place to the Yeravada Jail. That is at least my impression. I cannot be too sure about the dates I had no opportunity and no time to check the dates. I must say about the whole narrative, that there may be discrepancies, here and there about the dates, though in general they may be pretty accurate.
 
+## CH XIII
 ### Meeting with friends from the Andamans
 
 This was my second visit to Yeravada Jail. First I was put there in 1910 and for the second time now 1923. In those days the prison was full of convicts sentenced in the Mulshi Satyagraha case. They came and they went, all of them political prisoners. Some were punished with whipping. Those who had remained behind used to tell me of their severe ordeal in the Yeravada jail. There were in it prisoners hailing from Sindh and Dharwar who had taken part in the Non-cooperation and the Khilafat movements. Hindus and Muslims, political convicts they were all of them. The most wonderful fact of them all was that I met there my friends from the Andamans whom the Government of India had ordered back to India. Sikhs of the Lahore case and several others on transportation for life to the Andamans I met in the prison. I was strictly forbidden from inter-course with any of them, though I managed secretly to see them, and it gave me as much joy as I would have felt to meet the members of my own family and my near relatives. With tearful eyes, we greeted one another. In the Andamans we had suffered together. Any one of us could have won freedom in a day by the betrayal of our friends, by giving away the secrets of our society, or by putting the noose round the neck of fellow convicts. But God had saved us from such evil temptation. We revolutionaries had stood our ground bearing tortures as painful as a row of elephants pricked in the head by the good of their rider. They stand rooted to the spot under its severest blows, so we stood up firm and unshaken, to all the mental and physical pain inflicted upon us. We could not take a step forward. We would not go a step backward, so we stood obstinately where we were planted. No doubt we were cornered and at bay. And all around us were hurled "slings and arrows" of misfortune. The newcomers - the non-cooperators and the Khilafatists looked down upon these seasoned soldiers, these fighters and revolutionaries, as sinners, because they were members of secret societies, and conspirators, fhe Non-co-operators and the Khilafatists had not seen even two years of prison-life. They were raw, vainglorious men, and they bragged of their suffering before those who had passed through ten years or more of transportation for life in the Silver Jail of the Andamans - the brave Sikhs who had never winced under the severest hardships! They vaunted of their worthless 'Satyagraha' and of their short imprisonment for it before these terrorists and presumed to despise them!
@@ -1434,7 +1435,7 @@ The greetings that I received from the whole country, as I came back alive to th
 
 Therefore, as I had invoked the Goddess with the words "That another image", in order to fortify myself against the intending shadow of death-sentence and to be prepared to swallow the cup of poison it was holding out to my lips, I now recall the same Goddess to my mind with deep gratitude for my survival and bowing my head take final leave of her. I pray that the heavenly Goddess may go back, for the time being to her abode.
 
-## CHAPTER XIV
+## CH XIV
 
 Dear Reader
 
