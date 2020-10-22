@@ -26,7 +26,9 @@ Where there are heroes, villains are no surprise. Many were self-professed ghAzi
 - kAlA-pahAD, formerly ferocious oriya general rAjIv lochan ray who converted to islam because of fury at orthodox blockage of desire to marry the paThan sultan's daughter, who raided jagannAtha-purI, supposedly murdered by gajapati remnants (such as princess sAmbhaleshvarI).  
 
 - [awrangzib](http://en.wikipedia.org/wiki/Aurangzeb), [impozer](http://www.aurangzeb.info/) of jizya, destroyer of temples (बिन्दु-माधव [ट्१](../../../images/snippets/awrangzeb-bindu-mAdhav-edict.jpg)).
-- Tippu sultAn, who pillaged and converted people at sword point in kEraLa. \[Sandeep [Dec 2014](http://www.dailyo.in/opinion/why-tipu-sultan-was-a-false-hero/story/1/1278.html).\]
+- TIpu sultAn, named after sufi fuckeer dIpu mastAn auliya, who pillaged and converted people at sword point in kEraLa. \[Sandeep [Dec 2014](http://www.dailyo.in/opinion/why-tipu-sultan-was-a-false-hero/story/1/1278.html).\]
+  - He had 3 wives, and an unverifiable number of concubines. Each wife/concubine on an average had  children 2-3 children. The concubines included: sisters of Vira Raja of Coorg, who were childless and were recovered by him; daughter of "kAlA" paNDit bishnopant of Nargund, a relative of pUrNayya. Their later fate in vellore (6 years) and kolkota (150 yrs, 12 sons, 3 daughters, retinue of 300 initially) - [FB](https://www.facebook.com/1243378402394524/posts/3181115768620768/). 
+- pUrNayya, from a deshastha family settled for generations in TN, who ably assisted Haidar and TIpu despite their outrages on hindus and brAhmaNa-s (including his relative's daughter); and sought to enthrone Fateh Haider after TIpu, mildly resisting British attempts to restore the vaDiyars.
 - daud sayed gilAni aka David Coleman Headley, opportunistic and ideologically motivated spy for lashkar-e-tayyaba and ISI, US-double agent, who [cased out](http://video.pbs.org/video/2169905444) locations for the Dec 2008 mumbai attacks.  
 
 
