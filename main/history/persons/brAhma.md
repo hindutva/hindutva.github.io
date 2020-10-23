@@ -86,6 +86,7 @@ Many scholars are known only by their magnificent work, for others, we have more
 - bhAskararAya makhIndra, of stunning scholastic achievements, restorer of temples, reviver of traditions, who took as wife the daughter of the mAdhva he routed in debate, who taught chandrasEna jAdava saMskRtam \[[M](http://manasataramgini.wordpress.com/2004/05/17/the-great-bhaskararaya-makhindra/)\].  
 
 - samartha rAmadAsa, bold spiritual and practical [inspirer](http://manasataramgini.wordpress.com/2004/05/23/sant-ramadas-letter-to-sambhaji/) of shivAji. (Letter to sambhAjI [KC](http://kalchiron.blogspot.com/2014/06/advice-by-ramdas-swamy-to-sambhaji.html).)  
+- *Brahmendra Swami**, the Guru of Shahu, of Bajirao, of Chimaji, of the Angres and thousands of the rank and file. The Swami had practiced severe austerities in his early life and developed wonderful Yogic powers, as of going into samadhic trance for a full month every year and living buried underground during that period, traveled far and wide, like Ramdas. He inspired the marATha-s to curb the siddis.
 
 - achyuta pishAraDi, of a temple service clan oft considered of shUdra descent, a mathematician, sanskrit grammarian, and teacher of melpattuuru nArAyaNa bhaTTatiri the poet.
     - "Pisharodys do not need to wear the sacred thread nor perform puja in temples as per the tradition, but act only as advisors. They do not cremate the dead body being a sanyasi, instead do the burial as samadhi, as the person has been charcterised with all sanyasi qualities. "
