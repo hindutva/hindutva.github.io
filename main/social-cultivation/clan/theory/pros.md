@@ -11,6 +11,12 @@ title: Pros
 ### brAhmaNa regimentation
 - A brAhmaNa varNa fully dedicated to conserving Arya ideals is a great advantage to the memeplex- see vaidika-brAhmaNa-glue part of [this](../../ethnic-shifts/Arya-consolidation//).
 
+### Skill transmission and self-worth
+Via MT:
+
+> I posit that they realized a few important things: Handicrafts and specialist knowledge (e.g. sheep-rearing or farming) are hard to transmit. When people stop handicrafts and production they tend to go astray and are prone to janakopa. People who feel no self-worth tend towards counter-religion (probably the Iranian experience had taught them somethings). Crafts and labor provide a sense of self-worth. Higher religion is not for everyone. Thus, their system was one which privileged society over the individual for most part for in their times loss of social stability was literally extinction (Remember there was nothing romantic about predatory hunter-gatherers).
+
+
 ## Formalization of a natural phenomenon
 
 Amalgamation of tribes glued together by the Arya brAhmaNa-s.
@@ -27,7 +33,9 @@ See "Persistent elite dominance" secion in the [practice-comparison](../practice
 Not to deny exceptions (eg: Narendra Modi), of course, but as a general rule. 
 
 ## Plausibility of competitive edge
-- "It is indeed true that having the whole population fighting provides numerical advantage. It appears in chimps there is no particular soldier caste.  ... Now certain ‘Kriegstaat’-societies indeed take that route. For example, the Mongols were one such. ...  Now a society which has alternative structure when under stress will transform into this Kriegstaat pattern. We saw that with Mahārāṇa Pratāpa. We saw it on even larger scales with the Marāthā-s. ... But in the long run it is a more diversified economy that allows the effective conduct of war. Thus, it means other castes performing their specialized roles and channeling the fruits of the diversified economy to the war machine, which itself is primarily performed a dedicated caste. At a basic level this might mean farmers who can produce food, a essential to field large armies but it can involve various other specialized sub-groups. When the Marāthā-s transformed into a Kriegstaat, that seems to have drawn people away from these specialized guilds. That is where the English won. They could still maintain a large body of seemingly ‘useless’ knowledge-producers, like a Darwin and a Maxwell, for each of whom there were lesser tinkerers who could ultimately supply key technological innovations to the system that kept edge on the English war-machine. The success of this type of specialization in nature is simply evident in the world conquest of the ants, bees and termites." \[[MT17](https://manasataramgini.wordpress.com/2017/12/06/of-lives-of-men-of-times-of-men-iii/)\]
+> It is indeed true that having the whole population fighting provides numerical advantage. It appears in chimps there is no particular soldier caste.  ... Now certain ‘Kriegstaat’-societies indeed take that route. For example, the Mongols were one such. ...  Now a society which has alternative structure when under stress will transform into this Kriegstaat pattern. We saw that with Mahārāṇa Pratāpa. We saw it on even larger scales with the Marāthā-s. ... But in the long run it is a more diversified economy that allows the effective conduct of war. Thus, it means other castes performing their specialized roles and channeling the fruits of the diversified economy to the war machine, which itself is primarily performed a dedicated caste. At a basic level this might mean farmers who can produce food, a essential to field large armies but it can involve various other specialized sub-groups. When the Marāthā-s transformed into a Kriegstaat, that seems to have drawn people away from these specialized guilds. That is where the English won. They could still maintain a large body of seemingly ‘useless’ knowledge-producers, like a Darwin and a Maxwell, for each of whom there were lesser tinkerers who could ultimately supply key technological innovations to the system that kept edge on the English war-machine. The success of this type of specialization in nature is simply evident in the world conquest of the ants, bees and termites.
+> \[[MT17](https://manasataramgini.wordpress.com/2017/12/06/of-lives-of-men-of-times-of-men-iii/)\]
+
 - "Agent-based simulation results show that in constant environments, unequal access to resources can be demographically destabilizing, resulting in the outward migration and spread of such societies even when population size is relatively small. In variable environments, stratified societies spread more and are also better able to survive resource shortages by sequestering mortality in the lower classes. The predictions of our simulation are provided modest support by a range of existing empirical studies. In short, the fact that stratified societies today vastly outnumber egalitarian societies may not be due to the transformation of egalitarian norms and structures, but may instead reflect the more rapid migration of stratified societies and consequent conquest or displacement of egalitarian societies over time." \[[PLOS12](http://journals.plos.org/plosone/article?id=10.1371/journal.pone.0024683)\]  
 - The division of power inherent in the jAti/ varNa system enabled India to resist and weather brutal invasions, as posited in the "Politics .." section.
 - The distribution of risks and abilities is not independent of birth - so relying just on estimated personality qualities (= reliance on guNa-dharma) may not suffice.
@@ -57,6 +65,15 @@ Not to deny exceptions (eg: Narendra Modi), of course, but as a general rule.
 - The dharmashAstra-s have different recommendations (particularly with regards to AchAra, prAyashcitta, daNDa) for people belonging to different varNa-s. Other factors (according to texts like daNDa-viveka) that determined the punishment included sex, wealth etc..
     - For example, higher varNa-s get higher punishment in almost all cases (excepting adultery and defamation), limited to loss of limb in case of women and brAhmaNa-s; according to manu, kAtyAyana and vyAsa. \[[PVK](http://i.imgur.com/AnkLxKR.jpg), [FB](https://www.facebook.com/photo.php?fbid=10153134112067989&set=a.10151672801737989.1073741826.689472988&type=1&permPage=1)\]
 - So, the determination of varNa was essential (jAti providing an essential clue in this determination).
+
+## Social stability
+Via MT:
+
+> For the strands of early Hindu ancestry the, steppe ārya-s and the mysterious Harappan people, social organization and stability was a life and death matter. On the steppes, especially in the warlike early IE age, there was no place for undisciplined tribes. They would simply be destroyed by another and their land taken over. It was the fire where the beginnings of the dharmaśāstra were forged. 
+>
+> Similarly, while we know little of what the Harappans said to each other, we know that they had a complex and hierarchical society needed for the kind of production and material conversion they carried out. This was beginning of the jāti system. 
+>
+> ... In a sense, they were practical anthropologists who had at hand a problem of integrating the old Harappans into their own varṇa model. Hence, they were interested in their careful classification and suggesting anthropological theories (even if simplistic and cliched) for the multitude of jāti-s.
 
 ## Ritual purity.
 - Some occupations were considered unclean and untouchable. Eg: Skinning dead animals, ferrying sewage. This violated popular notions of ritual purity in several paths of hindu self-cultivation.
