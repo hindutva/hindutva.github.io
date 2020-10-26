@@ -1,5 +1,5 @@
 +++
-title = "Conflict with individualism"
+title = "Contrast with individualism"
 +++
 
 Via MT:
