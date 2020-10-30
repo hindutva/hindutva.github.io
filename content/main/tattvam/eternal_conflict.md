@@ -1,5 +1,5 @@
 +++
-title = "Eternal conflict"
+title = "Conflict सङ्ग्रामः"
 +++
 
 The conflict between Good (eg. dharma) and Evil (eg. counter religions) is endless.
