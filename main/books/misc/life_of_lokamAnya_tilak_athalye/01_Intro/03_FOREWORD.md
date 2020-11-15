@@ -1,41 +1,7 @@
 +++
-title = "01 Intro"
+title = "03 FOREWORD"
 
 +++
-## Publication details
-THE LIFE OF LOKAMANYA TILAK  
-WITH A FOREWORD BY C. R. DAS  
-PRESIDENT-ELECT   
-36TH NATIONAL CONGRESS  
-BY  
-D. V. ATHALYE   
-Late Head-Master M. J. High School   
-VIRAMGAM  
-1921  
-Printed at the Jagaddhitecchu Press, 507, Shanwar,  
-Poona by K. R. Gondhalekar  
-and  
-Published at 550, Sadashiv Peth, Poona  
-By Annasahib Chiploonkar,  
-
-RESPECTFULLY DEDICATED   
-TO  
-MAHATMA GANDHI  
-INDIA'S  
-SAINT AND LEADER  
-
-मम प्रतिज्ञां च निबोध सत्याम् ।  
-वृणे धर्मम् अमृताज् जीविताच् च ॥  
-राज्यं च पुत्रांश् च यशो धनं च ।  
-सर्व न सत्यस्य कलामुपैति ॥  
-महाभारत
-
-## Web links for proofreading.
-On [archive.org](https://archive.org/details/in.ernet.dli.2015.42892) .
-
-
-
-## FOREWORD 
 
 When the author asked me to write out a 
 foreword when I was in Bombay in the 
@@ -114,7 +80,7 @@ Calcutta, 1-12-21.
 
 
 
-##PREFACE 
+#PREFACE 
 
 
 
@@ -236,34 +202,3 @@ an eternal source of inspiration.
 
 जयो नामेतिहासोऽयं श्रोतव्यो विजिगीषुभिः।  
 (Signed D V Athaye) 
-
-## CONTENTS 
-- Mr. Blunt 
-- The First Ordeal 
-- The School and the College 
-- TiLAK AND Social Reform 
-- tilak and the congress — i 
-- The Honourable and 1 
-- The Lokamanya 
-- The School of Moderation 
-- The Fiery Cross 
-- The New Party 
-- Tilak and the Congress — II 
-- Towards Repression . . 
-- The Country's Misfortune 
-- Rip Van Winkle ! 
-- The Great Home-ruler 
-- Responsible Government 
-- The Mission to England 
-- Tilak — V — Chirol 
-- Responsive Co-operation 
-- The End 
-- The Man . . 
-- In the Editorial Chair 
-- Tilak the Scholar 
-- Lokamanya Tilak and Mahatma Gandhi 
-- General Reflections . . 
-- APPENDICES 
-  - The Orion .. .. .. •• 
-  - The Arctic Home in the Vedas •• 
-
