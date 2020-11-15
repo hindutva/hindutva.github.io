@@ -371,7 +371,7 @@ friend recalling those three years of Bombay-life
 says " I shared Mr. Tilak's room while both of us 
 were students of Law at Bombay ; and I don't remember a single occasion when he gave expression to any 
 unworthy thought."+++(5)+++ Happy the youth which, like a 
-lotus, can grow, unsulUed and uncontaminated, in the 
+lotus, can grow, unsullied and uncontaminated, in the 
 muddy water of worldly life and which, the moment it 
 is full blown is dedicated to the service of the Mother- 
 land. For such sacred worship, only the freshest, the 
