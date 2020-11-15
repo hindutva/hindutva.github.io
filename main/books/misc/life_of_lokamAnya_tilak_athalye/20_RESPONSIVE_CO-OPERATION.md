@@ -59,8 +59,8 @@ t'j'The immediate task before him, on his return from
 London, was, so to organise public opinion as to give a 
 definite verdict on the Government of India Act. 
 There was barely one month. He consulted his friends 
-and associates in other parts of India. Very Uttle dan- 
-ger of opposition was anticipated. The Uttle content- 
+and associates in other parts of India. Very little dan- 
+ger of opposition was anticipated. The little content- 
 ment or rejoicing that existed was to be found only in 
 the Moderate circles. The redoubtable Mrs. Besant 
 was, of course, expected to put up a strong fight ; but 
@@ -157,7 +157,7 @@ lasting for nearly five hours in the open sessions, Messrs.
 Gandhi, Das, Tilak, Pal, Malaviya come to a compro- 
 mise " and the Resolution concluded declaring that 
 India should work the Govermnet of India Act so as to 
-secure the early estabUshment of full responsible govern- 
+secure the early establishment of full responsible govern- 
 ment. 
 
 In supporting the Resolution, Mr. Tilak made an ex- 
@@ -220,7 +220,7 @@ Mr. Paranjpye opposed it by publishing " a catalogue
 of Mr. Tilak's sins of commission and omission." The 
 attack failed ; the address was duly given and though 
 Mr. Parajpye was challenged to personally lead the op- 
-position at the pubUc meeting, he wavered at the last 
+position at the public meeting, he wavered at the last 
 moment and remained absent. 
 
 

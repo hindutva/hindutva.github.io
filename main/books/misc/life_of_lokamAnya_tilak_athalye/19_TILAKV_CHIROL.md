@@ -56,7 +56,7 @@ tiently bore all the pricks of his position, buoyed up
 by the faith, that, the day of reckoning must come, 
 sooner or later, and the misunderstandings that pre- 
 judiced the powers that be, must ultimately melt like 
-a mist. The pubUcation of the " Indian Unrest " by 
+a mist. The publication of the " Indian Unrest " by 
 Sir Valentine Chirol, afforded Mr. Tilak the necessary 
 opportunity of vindicating his loyalty and proving to 
 the satisfaction of the world, the righteousness of his 
@@ -65,7 +65,7 @@ attacking Sir. Valentine Chirol's book, Mr. Tilak's
 chief object was surely to show how very prejudiced was 
 the medium through which the Bureaucracy looked at 
 him; for, in truth, " The Indian Unrest " — so far, at 
-least, as it described the personaUty of Mr. Tilak — 
+least, as it described the personality of Mr. Tilak — 
 was a systematic exposition of the theories contained 
 in the confidential papers of the Government concern- 
 ing Mr. Tilak. 
@@ -97,7 +97,7 @@ sion meant nothing more cruel than the application of
 surgery to diseased growths j" " and as " it is impossi- 
 ble that we should ever concede to India the rights of 
 Self-Go vemment, § " Sir Valentine suggested some 
-minor changes of poUcy for the permanence of the 
+minor changes of policy for the permanence of the 
 British Rule and the well-being of India. 
 
 Compare the wealth and abundance of Sir Valentine 
@@ -197,7 +197,7 @@ instances of oppression in the Kesari, the Rashtramat^
 t^lS LOKAMANYA TILAK 
 
 and the KaL and other newspaers. I think that by 
-kilUng Sahibs we people can get justice. I never got 
+killing Sahibs we people can get justice. I never got 
 injustice myself, nor did any one, I know of. I now 
 regret killing Mr. Jackson. I killed a good man care- 
 lessly.' 

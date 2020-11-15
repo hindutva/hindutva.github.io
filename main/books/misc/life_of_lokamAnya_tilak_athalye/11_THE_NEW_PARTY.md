@@ -257,7 +257,7 @@ Indian manufactures, to boycott British goods.
 
 But the greatest contribution made by the movement 
 to the political life of the country was the fixing of the 
-goal of aU our endeavours. Ours is perhaps the first in- 
+goal of all our endeavours. Ours is perhaps the first in- 
 stance in the history of the vv^orld, where for a couple of 
 generations, the children of the soil did believe their con- 
 querors to be their deliverers. Mr. Tilak was the first 
@@ -274,7 +274,7 @@ it sedition, the latter probably thought pretty much in
 the same way and refused to take part in it. It was re- 
 served for the anti-partition agitation to place before 
 the country a definite ideal, freed from the confusing 
-verbiage that characterised our thought tiU 1905. Mr. 
+verbiage that characterised our thought till 1905. Mr. 
 Tilak's ideal thus became the ideal of the country and it 
 was ** imposed " upon the National Congress by no less 
 a personage than Dadabhai Naoroji. Neither Mr. Tilak 
@@ -311,7 +311,7 @@ with an undue sense of the power of the Government
 and an inordinate consciousness of India's weakness. 
 Hr. Tilak thought otherwise. He said : — 
 
-" We do not beUeve in philanthrophy in PoHtics. 
+" We do not believe in philanthrophy in PoHtics. 
 There is no instance in history where a foreign nation 
 has ruled another without any expectations of profit. 
 We beHeve in Lord Morley and in the genuineness of his 

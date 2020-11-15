@@ -90,7 +90,7 @@ tSz LOKAMANYA TDLAK
 bring about the ruin of the country. If both parties start 
 mth this assumption, if both are wilhng to accept the 
 existence of difference of opinions as inevitable, and as 
-constituting a healthy sign in the body poUtic, there 
+constituting a healthy sign in the body politic, there 
 would be less room for misunderstandings. Both the 
 parties should realise that only in Unity there is safety 
 and that this unity they have to keep in spite of acute 
@@ -109,7 +109,7 @@ to them, still their influence and prestige is not to be
 despised. If these are the advantages, which one gets 
 from the other, there are some inevitable disadvantages 
 also. The Nationahsts have generally to bear the 
-brunt of poUtical fight, but the rewards of the poUtical 
+brunt of political fight, but the rewards of the political 
 warfare go invariably to the Moderates. By their asso- 
 ciation with the Nationalists, the Moderates do sometime 
 receive official taunts and frowns. When taken to taskp 
@@ -154,7 +154,7 @@ alist Daily (Marathi). The Paper — Rashtra-Mat — came
 out in June (1908) and in its very short career, justified 
 its existence by bravely fighting for the National cause. 
 About the end of February (1908) Mr. Tilak started on, 
-what he intended to make, a long tour throughout aU 
+what he intended to make, a long tour throughout all 
 
 "^ Undelivered Presidential Address. Since the above lines 
 were written. Dr. Ghose, alas, has passed away. He lived to 
@@ -287,21 +287,21 @@ would be a mistake to suppose, that this movement
 was merely impulsive. Years since, it had been in ex- 
 istence ; the Swadeshi movement, which in its wider 
 significance was a movement for the reconstruction of 
-the National Life, made it powerful. EspeciaUy in 
+the National Life, made it powerful. Especially in 
 Thana, Belgaum and Ahmednagar, systematic efforts 
 had been made to check the evil of drink. It was, 
 however, reserved, for the picketng movement to make 
 *' Temperance " which in Indian Vernaculars always 
 means total abstinence, a hve issue. Within less than 
 a fortnight, it was estimated that the sale of liquor in 
-Poona City was aU but stopped. It was impossible 
+Poona City was all but stopped. It was impossible 
 that the keepers of the liquor shops would take this 
 agitation lying down. They tried their best to put 
 obstacles in the way of the Volunteers. But cautious, 
 tactful and well-disciplined that the volunteers were, 
 they worked in spite of rebufifs, insults and provoca- 
 tions. The experiences of the Swadeshi picketing at 
-Calcutta had taught them not to court any coUision 
+Calcutta had taught them not to court any collision 
 with the Police ; and in their well-meant efforts, they 
 could rely upon the support and advice of three differ- 
 ent sections of people, the Nationalists, the Moderates 

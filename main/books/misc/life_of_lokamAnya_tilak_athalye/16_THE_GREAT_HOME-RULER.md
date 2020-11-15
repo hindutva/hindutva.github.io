@@ -137,7 +137,7 @@ But Mr. Tilak did not like that matters should rest
 here. He wanted to carry the case right up to the 
 British Democracy and explain to it the state of things 
 in India. He knew that if he could only convince the 
-British pubUc that the military resources of India were 
+British public that the military resources of India were 
 abundant and could well be availed of for the speedy 
 termination of the War, not only would India get the 
 military training denied to her these hundred years and 
@@ -171,7 +171,7 @@ as the Government had their own ideas in the
 matter, the Home Rulers were invited to the 
 Conference only to hear an ill-advised homily deli- 
 vered to them by His Excellency the Governor (Lord 
-WiUingdon). 
+Willingdon). 
 
 It will be thus seen that Mr. Tilak strenuously at- 
 tempted to help the Government in their hour of need 

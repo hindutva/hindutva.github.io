@@ -71,7 +71,7 @@ tion of a class of well-trained clerks, obedient, loyal,
 30 LOKAMANYA TILAK 
 
 appointed duties. But they would try their best to 
-discourage manUness, virihty and patriotism. 
+discourage manliness, virihty and patriotism. 
 
 If these statements are not now regarded as parado- 
 xical the credit is due, among others to Mr. Tilak and 
@@ -122,7 +122,7 @@ ment to transfer the whole of secondary education {and
 College education, if possible) to popular control. He 
 regarded the spread of education as a preparation for 
 the national struggle. He saw that though the Bureau^ 
-crats were not wiUing to entrust to the children of the 
+crats were not willing to entrust to the children of the 
 soil an iota of real political or military power, still they 
 could be persuaded to part with educational control if 
 we were persistent and enterprising enough. They 

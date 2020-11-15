@@ -134,7 +134,7 @@ his right of reply. Finding that this right, so precious-
 to an accused, especially in a trial by Jury, was thus 
 taken away, Mr. Tilak put in 71 cutting from different 
 papers, to show how his own articles formed part of a 
-poUtical controversy. 
+political controversy. 
 
 In his written Statement, Mr. Tilak accepted full res- 
 ponsibility for the incriminating articles, gave his own 
@@ -293,7 +293,7 @@ take the same view of the matter. I am charged spe-
 cifically with attempting to cause excitement, not 
 through-out India, but among the Marathi-speaking 
 population. I do not stand alone in my views. Papers 
-of aU parties in the Marathi-speaking community have 
+of all parties in the Marathi-speaking community have 
 taken the same view of the matter. This absolves me 
 from any evil intention. If there is no personal preju- 
 dice against me, these articles will show that I was not 

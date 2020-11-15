@@ -62,7 +62,7 @@ of stone, those of bronze and those of iron, representing
 three different stages of civilisation in the progress of 
 man in pre-historic times. Of these three different ages, 
 the oldest or the Stone age is further divided into the 
-PalaeoUthic and the Neolithic period or the old and the 
+Palaeolithic and the Neolithic period or the old and the 
 new Stone age. 
 
 The Geologist takes up the history of the earth at the 
@@ -129,7 +129,7 @@ bable.
 It has been a fashion to speak of the Polar regions as 
 characterised by light and darkness of six months each ; 
 but this statement is only roughly true. The Pole is 
-merely a point and aU the inhabitants of the original 
+merely a point and all the inhabitants of the original 
 ancient Home, if there was one near the North Pole, 
 could not have lived precisely at this single point. We 
 must, therefore, distinguish between the characterestics 
@@ -346,7 +346,7 @@ words are quite clear. Mr. Griffith tries to explain this
 APPENDIX B 397 
 
 difficulty by thinking that the poet here refers to an 
-ecUpse. But during an eclipse, the sun is covered with ♦ 
+eclipse. But during an eclipse, the sun is covered with ♦ 
 the dark shadow of the earth and is not besides sta- 
 tionary. Sayana twists the meaning. But we need 
 not be impatient to escape from the natural meaning 
@@ -376,7 +376,7 @@ seven horsed and in V, 45, 9 and his seven wheeled
 chariot is said to be drawn by seven bay steeds (I, 50, 8). 
 The Atharva-Veda speaks of the " seven bright rays of 
 the Sun (VII, 107, i). Sayana is unable to account for 
-the number seven as appUed to the rays. The cue to 
+the number seven as applied to the rays. The cue to 
 understand the legend can be had from Shatapatha 
 
 
