@@ -3,21 +3,18 @@ title = "24 TILAK THE SCHOLAR"
 
 +++
 
-To me it {i e. The Arctic Home in the Vedas) is significant 
-because it appeared in the midst of the author's direst persecu 
-tion when money reputation, influence and everything were 
-at stake, and few men would have had the courage to spare 
+> To me it (i e. The Arctic Home in the Vedas) is significant 
+because it appeared in the midst of the author's direst persecution when money reputation, influence and everything were at stake, and few men would have had the courage to spare 
 a thought either for sacred books or Arctic Circles. 
-
-H. W. Nevinson. 
+> 
+> H. W. Nevinson. 
 
 The scholar in politics is either a remarkable failure or an extraordinary success. In the scholar's 
 temperament, hesitency, lack of strong will-power, im- 
 patience and petulance usually form the chief mgrcdi- 
 ents. His knowledge of men is limited ; his grasp of 
 actualities is imperfect. He has no resourcefulness, 
-very little courage or presence of mind. His person- 
-ality is weak and he is very rarely a ruler of men. The 
+very little courage or presence of mind. His personality is weak and he is very rarely a ruler of men. The 
 failure as an administrator of M. Guizot, the celebrated 
 philosopher-historian is a striking illustration of the 
 danger of appointing men of letters at the helm of 
@@ -26,14 +23,8 @@ action. His wonderful and luminous scholarship and
 his versatile and comprehensive genius formed merely 
 the back-ground of a strong-willed, fiery, masterful, 
 soldierly personality. His scholarship illuminated his 
-political leadership with a lustre as rare as it was daz- 
-zling ; his political leadership gave his scholarl37 work 
+political leadership with a lustre as rare as it was dazzling ; his political leadership gave his scholarly work 
 a prestige and a significance totally absent in the efforts 
-
-
-
-TILAK THE SCHOLAR 335 
-
 of mere scholars. If a scholar in politics is a rarity, a 
 scholar-politician finding his way to gaol is still more so; 
 and that, such a man should have lifted his thoughts 

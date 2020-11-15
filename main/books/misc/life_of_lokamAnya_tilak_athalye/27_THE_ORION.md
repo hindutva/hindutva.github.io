@@ -10,35 +10,20 @@ establish his theories. The Gita-Rahasya being com-
 paratively a recent production is too well-known 
 to require any summary. ) 
 
-Oriental scholars have advanced vague and uncer- 
-tain conjectures about the age and character of the 
-Vedas. Prof. Max Muller has divided the Vedic liter- 
-ature into four arbitrary periods, the Chhandas, Mantra, 
-Brahmana and Sutra and by assigning two hundred 
+Oriental scholars have advanced vague and uncertain conjectures about the age and character of the Vedas. Prof. Max Muller has divided the Vedic literature into four arbitrary periods, the Chhandas, Mantra, Brahmana and Sutra and by assigning two hundred 
 years for each period he arrives at about 1200 B.C. 
 as the latest date at which the Vedic hymns have been 
 composed. As opposed to this linguistic method of 
-ascertaining the age of the Vedas, there is the astronomi- 
-cal method which though condemned by European 
-scholars as inaccurate and conjectural, can, if properly 
-applied, lead us to good results. The Vedas, the Brah- 
-manas and the Sutras contain numerous allusions and 
+ascertaining the age of the Vedas, there is the astronomical method which though condemned by European scholars as inaccurate and conjectural, can, if properly 
+applied, lead us to good results. The Vedas, the Brahmanas and the Sutras contain numerous allusions and 
 references to astronomical facts. There are several 
 sacrificial hymns in the Rig-veda. Now, no sacrificial 
 system could be developed without the knowledge of 
 months, seasons and the year. It appears that 
-the Vedic Rishis kept up their calender by perform- 
-ing the corresponding round of sacrifices on the 
-
-
-
-APPENDIX A 379 
-
-sacred fire that constantly burnt in their houses ; and 
+the Vedic Rishis kept up their calender by performing the corresponding round of sacrifices on the sacred fire that constantly burnt in their houses ; and 
 as they were not only the sacrificers of the community 
 but were also its time-keepers, these two functions 
-appear to have blended into one by assigning the com- 
-mencement of the several sacrifices to the leading days 
+appear to have blended into one by assigning the commencement of the several sacrifices to the leading days 
 of the year on the natural ground that if the sacrifices 
 were to be performed, they must be performed on the 
 principal days of the year. Samvatsara and Yajna 
@@ -68,11 +53,6 @@ have determined the position of the sun in the
 ecliptic by observing, every morning, the fixed 
 star nearest to it. Under such system, the year 
 would naturally be over when the sun returned to the 
-
-
-
-3 So LOKAMANYA TILAK 
-
 same fixed star. The solar year, therefore, mentioned 
 in the Vedic works, must be considered as sidereal and 
 not tropical. The difference between the sidereal and 
@@ -106,21 +86,15 @@ tinct terms that Vasanta, Grishma and Varsha were
 the seasons of the Devas. It is impossible therefore 
 to maintain that the Devayana or the Uttarayana 
 -ever commenced with the winter-solstice, for in 
-
-
-
-APPENDIX A 381 
-
 neither hemisphere the winter-solstice marks the 
-beginning of the spring, the first of the Deva sea- 
-sons. It is difhcult to definitely ascertain the 
+beginning of the spring, the first of the Deva seasons. It is difficult to definitely ascertain the 
 time when the commencement of the year was changed 
 from the vernal equinox to the winter solstice. When 
 this change was made, Uttarayana must have gradually 
 come to denote the first half of the new year, i.e., the 
 period from the winter to the summer solstice especially 
-as the word was capable of being understood as " turn- 
-ing towards the North from the Southern- most point.*^ 
+as the word was capable of being understood as " turning towards the North from the Southern- most point.
+
 All our present calenders are prepared on the sup- 
 position that the Vernal equinox still coincides with the 
 end of Revati and our enumeration of the Nakshatras 
@@ -129,28 +103,18 @@ ceded about 18° from Revati. This position of the
 Vernal equinox was true at about 490 A.D. when 
 probably the present system was introduced. Let us 
 now see if we can trace back the position of the Vernal 
-equinox amongst the fixed circle of stars. From Vara- 
-hamihira, we know that before the Hindus began to 
-make their measurements from the Vernal equinox in Re- 
-vati, there existed a system in which the year commenced 
+equinox amongst the fixed circle of stars. From Varahamihira, we know that before the Hindus began to 
+make their measurements from the Vernal equinox in Revati, there existed a system in which the year commenced 
 with the winter solstice in the month of Magha and the 
 Vernal equinox was in the last quarter of Bharani or the 
-beginning of the Krittikas. TheVedanga- Jyotish, the old- 
+beginning of the Krittikas. The Vedanga- Jyotish, the old- 
 est astronomical work in Sanskrit, gives the follow- 
 ing positions of the solstice and the equinoxes : — 
 
-(i) The winter solstice in the beginning of Shra- 
-vishtha (divisional). 
-
-(2) The Vernal equinox in 10° of Bharani. 
-
-(3) The summer solstice in the middle of Ashlesha, 
-
-(4) The autumnal equinox in 3° 20' of Vishakha. 
-
-
-
-382 LOKAMANYA TILAK 
+- (i) The winter solstice in the beginning of Shravishtha (divisional). 
+- (2) The Vernal equinox in 10° of Bharani. 
+- (3) The summer solstice in the middle of Ashlesha, 
+- (4) The autumnal equinox in 3° 20' of Vishakha. 
 
 From these data, astronomers have calculated that 
 the solstitial colure occupied the above position be- 
@@ -159,21 +123,17 @@ in the Taittiriya Samhita and the Taittiriya Brahmana
 where the Krittikas occupy the first place in the list of 
 the Nakshatras. We must, therefore, presume that 
 the Vernal equinox coincided with the Krittikas when 
-the Taittiriya vSamhita was compiled. The Taittiriya 
+the Taittiriya Samhita was compiled. The Taittiriya 
 Brahmana (i 5, 2, 7) says that the Nakshatras are the 
 houses of Gods and that the Nakshatras of the Devas 
 begin with the Krittikas. The Shatapatha Brahmana 
 expressly states that the Sun was to be considered as 
 moving amongst and protecting the Devas, when he 
-turned to the North, in the three seasons, of spring, sum- 
-mer and rains. This, therefore, at once fixes the posi- 
-tion of the Krittikas at the beginning of the Devayana 
+turned to the North, in the three seasons, of spring, summer and rains. This, therefore, at once fixes the position of the Krittikas at the beginning of the Devayana 
 or the vernal equinox at the time when these works 
 were compiled. The Taittiriya Samhita expressly states 
 that the winter solstice fell in Magha. From all these, 
-we conclude that the Krittikas coincided with the Ver- 
-nal equinox when the Taittiriya Samhita was compiled 
-{2350 B.C.) 
+we conclude that the Krittikas coincided with the Vernal equinox when the Taittiriya Samhita was compiled 2350 B.C. 
 
 The passage in the Taittiriya Samhita which states 
 that the winter solstice fell in Magha also refers to the 
@@ -185,17 +145,10 @@ cording a tradition about these two full-moon days
 being once considered as the first days of the year. If 
 the year commenced with winter solstice with the 
 Phalguni full-moon, the Vernal equinox must have been 
-
-
-
-APPENDIX A 383 
-
-in the Mrigashiras (Orion) The word Agrhaayani (Syn. 
-for Mrigashiras), suggests the same tale. With the Vernal 
-equinox near the asterism of Mrigashiras, the autumnal 
+in the Mrigashiras (Orion) The word Agrhaayani (Syn. for Mrigashiras), suggests the same tale. With the Vernal equinox near the asterism of Mrigashiras, the autumnal 
 equinox would be in Mula which was so called because 
 its acronycal rising marked the commencement of the 
-year. Again with the winter solstice occuring on the 
+year.+++(4)+++ Again with the winter solstice occuring on the 
 Phalguni full-moon day, the summer solstice fell on 
 the Bhadrapadi full moon so that the dark half of 
 Bhadrapada was the first fortnight in the Pitriyana, 
@@ -224,9 +177,6 @@ have been appropriately described as separating the
 regions of Gods and Yama, the Devayana and the Pritri- 
 yana or the Northern and the Southern hemisphere. 
 
-
-
-384 LOKAMANYA TILAK 
 
 Later, it is actually called the celestial river and we are 
 further told that the land of the blessed is to be reached 
@@ -261,11 +211,6 @@ foamy weapon with which Indra killed Namuchi is noth-
 ing but a reference tot he Milky Way, The attributes of 
 Rudra, chasing of the antelope, his bearing of the Ganges 
 in his matted hair and fondness for the burning ground 
-
-
-
-APPENDIX A 385 
-
 and appearance as a Kirata or hunter — all these can be 
 accounted for by placing Rudra just below the Milky 
 Way or the celestial Ganges at the gates of the Pitriyana 
@@ -299,12 +244,6 @@ moon at the solstice, the Vernal equinox would be in
 Punarvasu. The presiding deity of Punarvasu is 
 Aditi and we are told that Aditi had been blessed with 
 a boon that all sacrifices must commence and end with 
-25 
-
-
-
-386 LOKAMANVA TILAK 
-
 her (Aitareya Brahmana 1-7 and the Taittiriya Samhita 
 vi 1-5-1,). The story begins with the statement that 
 the Sacrifice (the mysterious Sacrificial personage) went 
@@ -338,12 +277,7 @@ Therefore, the oldest period in the Aryan civilisation
 may be called the Aditi or the pre-Orion period and we 
 may roughly assign 6000 — 4000 B.C. as its limits. 
 Then there was the Orion period roughly extending 
-
-
-
-APPENDIX A 387 
-
-■from 4000 B.C. to 2500 B.C. from the time when the 
+from 4000 B.C. to 2500 B.C. from the time when the 
 Vernal equinox was in the asterism of Ardra to the 
 time when it receded to the asterism of the Krittkias. 
 The third or the Krittika period commences with the 

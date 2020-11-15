@@ -3,15 +3,14 @@ title = "26 GENERAL REFLECTIONS"
 
 +++
 
-We can sacrcely express the admiration which we feel for 
-a mind so great and at the same time so healthy and well-pro- 
-portioned, so willingly contracting itself to the humblest 
+> We can sacrcely express the admiration which we feel for 
+a mind so great and at the same time so healthy and well-proportioned, so willingly contracting itself to the humblest 
 duties, so easily expanding itself to the highest, so contended in 
-repose so powerful in action. Every part of this virtuous and 
+repose, so powerful in action. Every part of this virtuous and 
 blameless life is not hidden from us in modest privacy is a 
 splendid-portion of our national history. 
-
-Macaulay on John Hampden 
+> 
+> Macaulay on John Hampden 
 
 The playground of Eton might have trained up the 
 conqueror of Napoleon ; but it is characteristic 
@@ -25,16 +24,10 @@ him — appeared as a young man of rather extra- ordinary
 abihties but certainly not of extra-ordinary ambition 
 or application, extremely obstinate, somewhat 
 domineering, simple and kind-hearted. Even to 
-Ranade, the most observant man of the time, the memor- 
-able ist of January 1880 appeared only to usher in 
+Ranade, the most observant man of the time, the memorable 1st of January 1880 appeared only to usher in 
 the second stage of our public life. Even he, scarcely 
-reahzed that a dynamic personality had appeared in 
+realized that a dynamic personality had appeared in 
 the stagnant waters of our national life, — a personality 
-
-
-
-358 LOKAMANYA TILAK 
-
 that was destined to measure its strength with ail 
 others and ultimately to triumph over them all. The 
 progress of Mr. Tilak was challenged at every step. On 
