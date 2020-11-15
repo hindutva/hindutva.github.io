@@ -3,7 +3,7 @@ title = "25 LOKAMANYA TILAK AND MAHATMA GANDHI"
 
 +++
 
-Yet this is not the whole man. You cannot say this is he, 
+> Yet this is not the whole man. You cannot say this is he, 
 that is he. All that you can say with certainty is that he is 
 here, he is there. Everywhere his influence reigns, his .autho- 
 rity rules, his elusive personality pervades ; and this must be 
@@ -14,9 +14,11 @@ which they are bound. With their feet firm-set on earth and
 their hands among the stars, they are pointers of the way to 
 those who search, encouragers of the faint and weary, inspirers 
 of those breathing in deep draughts of hope. 
+> 
+> H. 5. Polak on M. K. Gandhi. 
 
-H. 5. Polak on M. K. Gandhi. 
-"VrOW that Lokamanya Tilak, the Hercules of Indian 
+
+Now that Lokamanya Tilak, the Hercules of Indian 
 nationahsm is no more and Mahatma Gandhi 
 has succeeded to the leadership of the country, it will 
 not be out of place to compare and contrast some of 
@@ -27,12 +29,7 @@ had a prevision of his ultimate destiny while
 yet a college student. Immediately after pass- 
 ing the LL. B. examination, he set his back on 
 the emoluments of the legal profession and the 
-prospect of becoming a High Court Judge an^ 
-
-
-
-LOKAMANYA TILAK AND MAHATMA GANDHI 349 
-
+prospect of becoming a High Court Judge and
 became a poor school-master. He resisted also that 
 still greater attraction of the career of a scholar, poring 
 over volumes and making immortal researches, — a task^ 

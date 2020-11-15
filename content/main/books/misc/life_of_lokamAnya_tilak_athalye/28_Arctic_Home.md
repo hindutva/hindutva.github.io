@@ -5,7 +5,7 @@ title = "28 Arctic Home"
 
 
 
-Up to the middle of the igth century, myths and 
+Up to the middle of the 19th century, myths and 
 traditions were the only materials available for the 
 study of pre-historic man. So various attempts were 
 made to systematise these myths and explain them ra- 

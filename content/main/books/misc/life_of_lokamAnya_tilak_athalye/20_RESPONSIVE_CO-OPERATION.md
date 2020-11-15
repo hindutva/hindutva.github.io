@@ -10,10 +10,10 @@ upon.
 > 
 > Thomas Carlyle. 
 
-\\fJIEN Mr. Montague asked Mr. Tilak v^^hat he would 
+When Mr. Montague asked Mr. Tilak what he would 
 do in case the reforms fell short of his expect- 
 ations, Mr. Tilak readily replied "I would accept what is 
-given and fight for more." Being a strategist and not 
+given and fight for more."+++(5)+++ Being a strategist and not 
 a mere idealist, Mr. Tilak knew full well how to make 
 use of the smallest concessions. That is why, when 
 the Montague-Chelmsford report was out,he did not run 
