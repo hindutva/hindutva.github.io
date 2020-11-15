@@ -3,19 +3,19 @@ title = "04 THE SCHOOL AND THE COLLEGE"
 
 +++
 
-We have undertaken this work of popular education with the 
+> We have undertaken this work of popular education with the 
 firmest conviction and belief that, of all agents of human civili- 
-sation, education is the only one that brings about materiali 
+sation, education is the only one that brings about material, 
 moral and religious regeneration of fallen countries and raises 
-ihem up to the level of most advanced Nations by slow and 
+them up to the level of most advanced Nations by slow and 
 peaceful revolutions : and in order that this should be so, it 
 must be ultimately in the hands of the people themselves. 
-
-From the Statement of V. S" Apte before the Hunter Com- 
+>
+> From the Statement of V. S Apte before the Hunter Com- 
 mission (1882) 
 
-"|Lf"AN*S outlook of the world is necessarily dependent 
-"^^ upon his environments. Howsoever indomitable be 
+Man's outlook of the world is necessarily dependent 
+upon his environments. Howsoever indomitable be 
 the individual will, it fails not to realise its limitations and 
 has to shape its course accordingly. Gifted though he 
 was with extraordinary ability, superabundent enthu- 

@@ -3,16 +3,16 @@ title = "06 TILAK AND THE CONGRESS— I"
 
 +++
 
-At the Poona Congress of 1895, when Gokhale wasa secretary 
+> At the Poona Congress of 1895, when Gokhale was a secretary 
 of the Reception Committee, the ridiculous controversy started 
 by Mr. Tilak, about letting the Social Conference have the use 
-of the Congrss Mandap assumed disproportionate dimensions 
-and Mj. Tilak triumphed momentarily. I do not know what 
-he now (191 5) thinks in his heart of hearts of the part, that he 
+of the Congress Mandap assumed disproportionate dimensions 
+and Mr. Tilak triumphed momentarily. I do not know what 
+he now (1915) thinks in his heart of hearts of the part, that he 
 played in the matter, though he can, like the skilful advocate 
 that he is, still put a fair complexion on it is necessary. 
-
-R. P. Paranjpye 
+> 
+> R. P. Paranjpye 
 
 nPHESE words, coming from the pen of a responsible 
 Moderate leader show to what length party misunder- 
