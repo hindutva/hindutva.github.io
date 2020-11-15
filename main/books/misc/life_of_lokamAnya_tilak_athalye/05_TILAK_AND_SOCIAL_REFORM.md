@@ -25,7 +25,7 @@ leaving himself free to deal with one at a time.
 The stagnant condition of the Indian civilisation 
 during several centuries has given rise to a number 
 of social evils which by their very accumulation impres- 
-sed the imagination of the first generation of EngHsh- 
+sed the imagination of the first generation of English- 
 educated Indians. But these evils are neither more pres- 
 sing nor more hideous than those which during the last 
 three centuries have accompanied the rapid growth of 

@@ -38,7 +38,7 @@ introduced into this country by the new rulers sought to
 secure this acquiescence by capturing the will, the in- 
 tellect and the imagination of the people. Educa- 
 tion, thus is an instrument by means of which the Gov- 
-ernment has sought to consoHdate its power and perpe- 
+ernment has sought to consolidate its power and perpe- 
 tuate its authority. In self-governing countries where 
 the interests of the rulers and of the ruled are identical, 
 the education that is imparted is necessarily of a highly 
@@ -366,7 +366,7 @@ ment would leave no motive for anybody to seek work
 outside the body and thus divert his energies in a 
 different channel. 
 
-When, however, the struggles and cares of estabHsh- 
+When, however, the struggles and cares of establish- 
 ment and organisation were over, some members began 
 to long for more and began to talk of the growing needs 
 of their families. The cry was catching and when the 

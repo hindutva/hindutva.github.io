@@ -3,12 +3,12 @@ title = "22 THE MAN"
 
 +++
 
-The pages of thy book I read. 
-And as I closed each one, 
-My heart responding, ever said, 
-" Servant of God I Well done I" 
-
-Longfellow. 
+> The pages of thy book I read.   
+And as I closed each one,  
+My heart responding, ever said,   
+" Servant of God! Well done!"  
+> 
+> Longfellow. 
 
 T IKE his literary career, Mr. Tilak's private life was 
 almost absorbed into his political existence and it 

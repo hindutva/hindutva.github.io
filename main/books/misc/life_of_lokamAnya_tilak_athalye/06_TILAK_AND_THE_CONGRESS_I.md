@@ -177,7 +177,7 @@ a safe narrow circle. ^ ^ One (party) wishes to draw
 to the Congress as large a portion of the public as it 
 possibly can, irrespective of the question of Social 
 Reform : the other does not wish to go much beyond the 
-circle of the frionds of reform. '^ * * The real point of 
+circle of the frionds of reform. " * * The real point of 
 issue is whether ''' '-' the Congress in Poona is to be a 
 Congress of the people or of a particular section of it. 
 

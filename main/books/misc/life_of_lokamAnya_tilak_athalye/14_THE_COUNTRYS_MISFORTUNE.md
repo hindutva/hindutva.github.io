@@ -3,17 +3,13 @@ title = "14 THE COUNTRY'S MISFORTUNE"
 
 +++
 
-The Lion when struck to the heart gives out his mightest 
+> The Lion when struck to the heart gives out his mightest roar ;   
+> When smitten on the head, the cobra lifts its hood ;   
+> And the majesty of the soul comes forth only when a man is wounded unto his depths. 
+> 
+> Swami Vivekananda. 
 
-roar ; 
-When smitten on the head, the cobra lifts its hood ; 
-And the majesty of the soul comes forth only when a man i& 
-
-wounded unto his depths. 
-
-Swami Vivekananda. 
-
-ff^HE arrest of Mr. Tilak, though it caused widespread 
+The arrest of Mr. Tilak, though it caused widespread 
 grief and resentment did not surprise anybody. What 
 however extremely surprised all was that such a mild and 
 innocent article as that of May 12th, 1908 had been 
@@ -255,7 +251,7 @@ ferpore. There was no difference of opinion as to the
 character of the deplorable event ; but the question was 
 * what is the cause of it ?' The Pro-Bureaucratic 
 Party laid the blame at the doors of the Congress or of 
-the NationaHst Party and called upon Government to 
+the Nationalist Party and called upon Government to 
 put us down. I have taken the other side. My wri- 
 tings are (i) a reply to the Anglo-Indian criticism (2) 
 a suggestion to Government and addressed to Govern- 

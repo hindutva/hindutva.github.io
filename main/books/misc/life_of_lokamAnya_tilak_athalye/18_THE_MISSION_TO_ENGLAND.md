@@ -3,18 +3,17 @@ title = "18 THE MISSION TO ENGLAND"
 
 +++
 
-I have had many opportunities of exchanging views with Mr. 
+> I have had many opportunities of exchanging views with Mr. 
 Tilak during his stay in England, and every time that I have 
 spoken with him, I have felt that he was truly a statesman and 
 not a mere politician. The way in which he was able to take a 
 sane view of the Indian situation in Britain, within a few days 
 of his arrival in this country (England) made me marvel at his 
+> perspicuity 
+> 
+> St. Nihal Sing 
 
-perspicuity 
-
-St. Nihal Sing 
-
-IVTEVER abject, never fanatical, Mr. Tilak's methods 
+EVER abject, never fanatical, Mr. Tilak's methods 
 of political agitation were a unique combination of 
 manliness, astuteness and a sense of proportion. He 
 disdained the constant waitings, never-ending mendi- 
@@ -127,7 +126,7 @@ their heels, prostrate, starving and emasculated and how
 the tonic of Swaraj if given now, would still enable 
 India to do fuU justice to her ambition of helping Bri- 
 tain. This was the message which Mr. Tilak wanted 
-to deHver in England. It was dignified,lofty and 
+to deliver in England. It was dignified,lofty and 
 wholesome. 
 
 Since the entry of the capitalistic class into the 
@@ -206,7 +205,7 @@ failure in his suit against Sir Valentine Chirol was due
 largely to the prejudice created by the prohibition order 
 of Lord Willingdon, the extemment orders from Delhi 
 and Lahore, the untimely publication in England of the 
-Rowlatt Report and by the pecuHarly perverted man- 
+Rowlatt Report and by the peculiarly perverted man- 
 ner in which Sir Edward Carson made capital out of 
 his two convictions for sedition. Whatever the reasons, 
 the result was certainly disastrous not only to Mr. Tilak 

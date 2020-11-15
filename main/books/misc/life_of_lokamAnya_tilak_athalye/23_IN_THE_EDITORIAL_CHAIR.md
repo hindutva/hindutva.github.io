@@ -3,14 +3,14 @@ title = "23 IN THE EDITORIAL CHAIR"
 
 +++
 
-Great is Journalism. Is not every Able Editor a Ruler of 
+> Great is Journalism. Is not every Able Editor a Ruler of 
 the World, being a persuader of it ; though self-elected yet 
 sanctioned by the sale of his Numbers ? 
+> 
+> Thomas Carlyle 
 
-Thomas Carlyle 
-
-~^^R. TILAK became the declared editor of" the 
-"*^' Kesari on 22nd October 1887, and of the Mahratta 
+Mr. TILAK became the declared editor of the 
+ Kesari on 22nd October 1887, and of the Mahratta 
 on 3rd Spetember 1891. Since then, he conducted these 
 journals as proprietor till the last, and though, the 
 editorship was occasionally transferred to others, still 
@@ -18,7 +18,7 @@ he supplied the necessary inspiration, except during the
 intervals when he was a guest of His Majesty's gaols. 
 
 From the very beginning, he neglected the Mahratta, 
-Indeed, it may be said, he never liked journaHsm in 
+Indeed, it may be said, he never liked journalism in 
 Enghsh. He believed only in the vernacular as 
 an instrument of national awakening. Hence he 
 never cared to turn the Mahratta into a daily 
@@ -293,7 +293,7 @@ abstruse political theories, however, never struck his
 readers as something outlandish, something developed 
 and prepared thousands of miles away and thence 
 imported into India. His readers always felt at home 
-with his writings and were never repelled by the EngHsh 
+with his writings and were never repelled by the English 
 political thought which he discussed in Marathi. Mr. 
 Tilak not only made his reader understand him, he made 
 him also remember the main points in his writings. 

@@ -3,18 +3,17 @@ title = "11 THE NEW PARTY"
 
 +++
 
-Bal Gangadhar Tilak is a Maratha Brahmin, thinker an(f 
+> Bal Gangadhar Tilak is a Maratha Brahmin, thinker and 
 fighter in one. His is the brain that conceived, his is the pen 
 that expressed, his is the force that has directed the extra-ordi- 
 nary movement against which the bureaucracy is now calling 
 up all its resources. 
+>
+> The Morning Leader in 1908. 
 
-The Morning Leader in 1908. 
-
-rPHE year 1905 forms a land-mark in Indian History. 
+The year 1905 forms a land-mark in Indian History. 
 In that year was carried out the fatal Partition of 
-Bengal. The whole Province was thrown into a fer- 
-ment. The Bengalis heartily disliked the odius measure. 
+Bengal. The whole Province was thrown into a ferment. The Bengalis heartily disliked the odius measure. 
 Appeals were made, monster petitions were sent to the 
 Parliament. Then came the Bycott. It encouraged 
 Swadeshism. The Swadeshi movement quickly out- 
@@ -25,7 +24,7 @@ in arts, in literature, in science, in religion and philoso-
 phy. Swadeshism thus became an all-pervading spiri- 
 ritual movement directed against the Western Civilisa- 
 tion which the British Government represented and 
-symboHzed. The Boycott bade fair to develop into a 
+symbolized. The Boycott bade fair to develop into a 
 movement of Passive Resistance. Young men enrolled 
 themselves as National Volunteers for peaceful partici- 
 pation in public Hfe. The Government retaliated with 
@@ -48,7 +47,7 @@ another." The armoury of repressive measures was
 replenished. The Deportation Act of 1818 was hunted 
 out and Lala Lajpat Rai and Sirdar A jit Singh were spi- 
 rited away to Burma (1907). Mr. Tilak was tried for 
-sedition (1908) and transported. The NationaHst Party 
+sedition (1908) and transported. The Nationalist Party 
 was routed. Babu Ashvini Kumar and eight other 
 popular leaders were deported. A few crumbs of re- 
 forms, niggardly given and avidly accepted, were the 
@@ -153,7 +152,7 @@ who will command respect and obedience and whose
 instructions would be carried out in spirit. He must 
 act both as a stimulant and a sedative ; he must use 
 spurs or draw reins according to necessity. From all 
-the great NationaHst leaders — Messrs. Bepin Chunder 
+the great Nationalist leaders — Messrs. Bepin Chunder 
 Pal, Arabindo Ghose, Lajpat Rai, G. S. Khaparde, G. 
 Subramanya Ayer — Mr. Tilak received that homage to 
 which his genius, sacrifices and long uninterrupted ser- 
@@ -311,10 +310,10 @@ with an undue sense of the power of the Government
 and an inordinate consciousness of India's weakness. 
 Hr. Tilak thought otherwise. He said : — 
 
-" We do not believe in philanthrophy in PoHtics. 
+" We do not believe in philanthrophy in Politics. 
 There is no instance in history where a foreign nation 
 has ruled another without any expectations of profit. 
-We beHeve in Lord Morley and in the genuineness of his 
+We believe in Lord Morley and in the genuineness of his 
 professions as a philosopher. The old school thinks 
 that politics could be governed by the dictates of philo- 
 sophy ; we hold that these are quite different things and 
@@ -519,7 +518,7 @@ ders of the country. Mr. Tilak said that though it was
 convenient for the Bureaucracy to forget the part which 
 the youth of England played in the public life of 
 England, India must never neglect to train up her 
-youth in pubHc spirit. If the Risley Circular was to 
+youth in public spirit. If the Risley Circular was to 
 prevent free expression of thought in youth, if the Gov- 
 ernment Servants' Rules were to prohibit u? from 
 participating in public activities in manhood, and if the 
@@ -584,7 +583,7 @@ therefore, Nabob Salli-Mulla Khan held (December
 
 THE NEW PARTY 153 
 
-verted it, at the eleventh hour into a PoHtical League 
+verted it, at the eleventh hour into a Political League 
 to protest against the Boycott and Swadeshi move- 
 ments, to uphold the Bengal Partition and to praise Sir 
 B. Fuller to the skies, Mr. Tilak was rather delighted 

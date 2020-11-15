@@ -11,8 +11,7 @@ a thought either for sacred books or Arctic Circles.
 
 H. W. Nevinson. 
 
-npHE scholar in politics is either a remarkable fail- 
-lure or an extraordinary success. In the scholar's 
+The scholar in politics is either a remarkable failure or an extraordinary success. In the scholar's 
 temperament, hesitency, lack of strong will-power, im- 
 patience and petulance usually form the chief mgrcdi- 
 ents. His knowledge of men is limited ; his grasp of 
@@ -121,7 +120,7 @@ in the Arctic Home and the Gita-Rahasya, of the progress
 of the ancient Aryans in culture, shows that he was 
 gifted with an imagination of a very high order ; Mr. 
 Tilak's imagination was rather the solid, strong and 
-mascuHne imagination of a scientist or a philosopher 
+masculine imagination of a scientist or a philosopher 
 than the poet's which like " a beautiful and ineffectual 
 angel " beats " in the void, his luminous wings." His 
 short but suggestive article on the " Indian and the 

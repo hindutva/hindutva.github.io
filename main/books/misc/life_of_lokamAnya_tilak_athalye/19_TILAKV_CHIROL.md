@@ -3,24 +3,19 @@ title = "19 TILAK—V— CHIROL"
 
 +++
 
-From the Deccan * * his (Mr. Tilak's) infiuence pro- 
-jected far and wide. * * his prestige as a Brahmin of Bra- 
-hmins, and as pillar of Orthodoxy, * * his reputation for pro- 
+> From the Deccan his (Mr. Tilak's) influence projected far and wide. His prestige as a Brahmin of Brahmins, and as pillar of Orthodoxy, his reputation for pro- 
 found learning in the philosophies of the West and the East, 
 his trenchant style, his indefatigable activity, the glamour of 
 his philanthrophy, his accessibility to high and low, his many 
-acts of genuine kindliness, (his) personal magnetism * * co- 
-mbined to equip him more fully than any other Indian Politi- 
-cian for the leadership of a revolutionary movement. 
+acts of genuine kindliness, (his) personal magnetism combined to equip him more fully than any other Indian Politician for the leadership of a revolutionary movement. 
+> 
+> Indian Unrest by Sir. V. ChiroL 
+> Page 54. 
 
-Indian Unrest by Sir. V. ChiroL 
-
-Page 54. 
-
-^T^HE late Mr. Gokhale used to describe how he was 
+The late Mr. Gokhale used to describe how he was 
 once humourously taken to task by an Executive 
 Councillor for having made a seditious speech. On Mr. 
-Gokhale*s denying having done so, a C. I. D. report of 
+Gokhale's denying having done so, a C. I. D. report of 
 his speech was produced and both Mr. Gokhale and the 
 Official laughed over the perversions and distortions 
 contained in that report. It is not given to every 
@@ -31,12 +26,6 @@ remove such misunderstandings. If in some future
 generation after the attainment of Swaraj, the historian 
 of this period has access to confidential reports of the 
 Government, he will be able to mention how hundreds 
-18 
-
-
-
-274 LOKAMANYA TILAK 
-
 of persons had to suffer persecutions only because of 
 the malice or ignorance of the C. I. D. reporters. Mr. 
 Tilak's record with the Government will, in particular, 
@@ -70,13 +59,9 @@ was a systematic exposition of the theories contained
 in the confidential papers of the Government concern- 
 ing Mr. Tilak. 
 
-
-
-TILAK — ^V — CHIROL "275 
-
 Sir Valentine Chirol had been deputed in 1910 by 
-the *' Times (London) " to study whether *' The lull in 
-the storm of Indian Unrest *' indicated ** a gradual and 
+the  " Times (London) " to study whether " The lull in 
+the storm of Indian Unrest" indicated " a gradual and 
 steady return to more normal and peaceful conditions " 
 or whether "as in other cyclonic disturbances in tro- 
 pical climes it merely presaged fiercer outbursts yet to 
@@ -92,11 +77,9 @@ careful investigation he came to the conclusion that it
 was almost a misnomer to speak of Indian unrest, that 
 it was confined only to Hindus living in the Urban 
 areas of Mahratta Deccan, the Cental Provinces, Bengal 
-and the Punjab and that with respect to such " repres- 
-sion meant nothing more cruel than the application of 
-surgery to diseased growths j" " and as " it is impossi- 
-ble that we should ever concede to India the rights of 
-Self-Go vemment, § " Sir Valentine suggested some 
+and the Punjab and that with respect to such " repression meant nothing more cruel than the application of 
+surgery to diseased growths" " and as " it is impossible that we should ever concede to India the rights of 
+Self-Government, Sir Valentine suggested some 
 minor changes of policy for the permanence of the 
 British Rule and the well-being of India. 
 
@@ -110,11 +93,7 @@ was entirely faulty and unhistorical. He has collected
 
 § Indian Unrest ; Page 332. * 
 
-
-
-^6 LOKAMANYA TILAK 
-
-the strongest and the most '^objectionable " passages 
+the strongest and the most "objectionable " passages 
 from the '* Extremist " newspapers all over the 
 country and has sought to give them an imaginary unity 
 of time, place and purpose. If an Indian Chirol will 
@@ -123,7 +102,7 @@ Indian papers and select such passages as Sir Valentine
 had done, he will be able to give a picture of Anglo- 
 Indian mentality at which, the author of the " Indian 
 Unrest" would stand aghast. Fortunately, Sir Valentine 
-Chirol has lived to find that " Self-Go vemment " for 
+Chirol has lived to find that " Self-Government " for 
 India is the goal of British ambition.The very gro- 
 und on which he bases his conclusions is thus swept 
 away and what remains is nothing but the manifesta- 
@@ -466,7 +445,7 @@ should be taught Swadeshi '.
 thing ?" — ' There was a bonfire and I said " You had 
 better commence your vow by sacrificing something " 
 
-" Was this to promote Anti-British feeling ?" — ' No '^ 
+" Was this to promote Anti-British feeling ?" — ' No " 
 
 Mr. Justice Darling : — " Were the things burnt, 
 things which you could have produced in India?" — 
@@ -696,7 +675,7 @@ highest Judicial Tribunal of the Empire as one whose
 reputation was not worth the smallest coin in existence, 
 when every kind of abusive epithet was hurled at his 
 devoted head with a levity truly disgusting, need we 
-wonder if people commenced to beHeve that even Bri- 
+wonder if people commenced to believe that even Bri- 
 tish Justice is capricious and uncertain ? Mr. Tilak's 
 financial embarrassments — amounting to nearly three 
 lakhs of rupees — were, within a few weeks removed by 
