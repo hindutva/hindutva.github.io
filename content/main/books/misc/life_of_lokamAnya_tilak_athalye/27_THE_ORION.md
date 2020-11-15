@@ -253,7 +253,7 @@ garded as the battle-ground of Indra and Vritra, who
 fought in those days and also as the stage on which the 
 terrible Rudra made his appearance. On this same 
 hypothesis we can explain how Vritra came to be sta- 
-tioned at the gates of hell. Indra cut oH the head of Vritra 
+tioned at the gates of hell. Indra cut off the head of Vritra 
 or Namuchi in the form of a Mriga and this at once sug- 
 gests whether that head is not the same as that of 
 Prajapati cut off by Rudra (Ardra or Sirius). The 

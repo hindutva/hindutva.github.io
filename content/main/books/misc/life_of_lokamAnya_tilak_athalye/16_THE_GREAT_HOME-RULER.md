@@ -3,14 +3,14 @@ title = "16 THE GREAT HOME-RULER"
 
 +++
 
-Sons of India ! Let your sadness  
-Turn to gladness ;  
-For the long night of your sorrow  
-Now has passed ; a glorious morrow  
-Dawns upon you. Day is shining  
-Cease repining. 
-
-C, F, Andrews, 
+> Sons of India ! Let your sadness    
+> Turn to gladness ;    
+> For the long night of your sorrow    
+> Now has passed ; a glorious morrow  
+> Dawns upon you. Day is shining  
+> Cease repining. 
+> 
+> C, F, Andrews, 
 
 IN the darkest hour of Mr. Tilak's life, when neither 
 friend nor foe expected him to survive six long years 
@@ -501,7 +501,7 @@ speeches, Mr. Justice Batchelor writes as follows : —
 
 to read the three speeches from beginning to end, 
 quietly and attentively, remembering the arguments 
-and remembering the poHtically ignorant audience to 
+and remembering the politically ignorant audience to 
 whom Mr. Tilak was addressing. I have so read these 
 speeches, not once, but several times, and the impres- 
 sion left on the mind is that, on the whole, despite cer- 
@@ -559,7 +559,7 @@ to pieces. India's loyalty was clear as the sun. The
 British Nation was grateful ; the reactionary element 
 was weak and helpless. The sky was resounding with 
 the cry of Reforms and though many an advanced 
-Moderate and vaHant Nationalist did signal service to 
+Moderate and valiant Nationalist did signal service to 
 the National Cause during this period, posterity will 
 justly give credit to the two mighty Lieutenants of the 
 Goddess of Liberty for having kept the flag flying — 

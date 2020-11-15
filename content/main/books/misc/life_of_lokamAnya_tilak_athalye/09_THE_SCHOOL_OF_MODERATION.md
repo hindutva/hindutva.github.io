@@ -88,7 +88,7 @@ to the people freed from the puzzling verbiage of west-
 em democracy and which being simple and direct 
 went straight to their hearts. 
 
-The first pubHc meeting that was held in connection 
+The first public meeting that was held in connection 
 with the Shivaji memorial was organised by Mr. Tilak 
 and was attended by the leading Chiefs of Maratha 
 States as also by the leading Jahagirdars and the 
@@ -117,7 +117,7 @@ have thought it prudent to remain aloof from the festi-
 val. The Moderates too, were afraid to co-operate 
 with Mr. Tilak. In spite of these circumstances, the 
 Shivaji festival has become a permanent feature of the 
-pubHc life of Maharashtra ; at times it has been cele- 
+public life of Maharashtra ; at times it has been cele- 
 brated even beyond the bounds of the Bombay Presi- 
 dency, — in Bengal and in Japan. It will ever remain a 
 permanent source of inspiration to the people. 
@@ -153,7 +153,7 @@ lOB LOKAMANYA TILAK
 
 ^anade had established his supremacy in i88g. 
 As so often happens in India, aSairs in the 
-Sabha had degenerated into cHquism. In 1895, 
+Sabha had degenerated into cliquism. In 1895, 
 however, Mr. Tilak secured a majority among 
 the members. This incensed the rulers of the 
 Sabha. They were long accustomed to have 

@@ -3,25 +3,15 @@ title = "15 RIP VAN WINKLE !"
 
 +++
 
-Yes, thou great sea ! 
-
-I am more mighty and out-billow thee. 
-
-On thy tops I rise — 
-
-'Tis an excuse to dally with the skies. 
-
-I sink below 
-
-The bottom of the clamourous world to know. 
-
-« « 4t * 
-
-I come, oh free 
-
-Ocean, to measure my huge soul with thee. 
-
-Arahindo Ghose 
+> Yes, thou great sea !  
+> I am more mighty and out-billow thee.   
+> On thy tops I rise —   
+> 'Tis an excuse to dally with the skies.   
+> I sink below  
+> The bottom of the clamourous world to know.  
+> I come, oh free Ocean, to measure my huge soul with thee.+++(5)+++ 
+> 
+> Arahindo Ghose 
 
 IVTR. TILAK'S transportation to Mandalay was 
 followed by a long period of political re-action. 
@@ -375,7 +365,7 @@ Bombay and a partially satisfactory solution was arrived
 at. " Public meetings convened under the auspices 
 of any association, which is not of less than two yeeirs 
 standing on 31st December 19 15 and which has for one 
-of its objects, the attainment of Self-Go vemment by 
+of its objects, the attainment of Self-Government by 
 India on Colonial lines within the British Empire by 
 Constitutional means " were allowed and as Mr. Tilak's 
 party could now send delegates to the Congress without 

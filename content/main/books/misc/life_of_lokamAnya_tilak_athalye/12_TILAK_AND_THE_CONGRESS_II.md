@@ -3,12 +3,12 @@ title = "12 TILAK AND THE CONGRESS— II"
 
 +++
 
-The days of absolute leadership are gone, never to return 
+> The days of absolute leadership are gone, never to return 
 back. 
+> 
+> N. G. Chandavarkar 
 
-N. G. Chandavarkar 
-
-Tj^LSEWHERE we have traced Mr. Tilak's connection 
+Elsewhere we have traced Mr. Tilak's connection 
 with the Congress from 1889 down to the early 
 years of the present century. We have seen, how, 
 in the period of poUtical re-action, beginning 'with 
@@ -431,7 +431,7 @@ A list of the headings of the subjects likely to be
 taken up for discussion by the Surat Congress 
 was of&cicially published a week or ten days 
 before the date of the Congress Sessions. This list did 
-not include the subjects of Self-Go vemment, Boycottp 
+not include the subjects of Self-Government, Boycottp 
 National Education on all of which distinct and sepa- 
 rate resolutions were passed at Calcutta in 1906. This- 
 omission naturally strengthened the suspicion that the. 
@@ -525,7 +525,7 @@ of the 25th, or the morning of the 26th December re-
 garding the proposal of a joint Committee of reconcili- 
 ation proposed by him, nor was a copy of the draft reso- 
 lutions supplied to Mr. Tilak or any delegates to enable 
-them to judge if sHding back from the old position was 
+them to judge if sliding back from the old position was 
 really intended. 
 
 
@@ -533,9 +533,9 @@ really intended.
 TILAK AND THE CONGRESS — II 169 
 
 On the morning of the 26th December, Mr. Tilak and 
-the other NationaHst leaders went to Babu Surendra- 
+the other Nationalist leaders went to Babu Surendra- 
 Nath Banerjea at his residence, and informed him that 
-the NationaHst opposition to the election of the Presi- 
+the Nationalist opposition to the election of the Presi- 
 dent would be withdrawn if (i) the Nationalist Party 
 were assured that the Status quo would not be disturbed, 
 and (2) if some graceful allusion was made by any one 

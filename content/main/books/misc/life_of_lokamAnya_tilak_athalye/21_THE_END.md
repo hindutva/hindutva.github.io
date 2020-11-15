@@ -5,11 +5,11 @@ title = "21 THE END"
 
 
 
-Mr. Tilak is dead ! Long live Mr. Tilak ! 
+> Mr. Tilak is dead ! Long live Mr. Tilak ! 
+> 
+> The Tribune. 
 
-The Tribune. 
-
-npHE situation which Mr. Tilak occupied towards the 
+The situation which Mr. Tilak occupied towards the 
 middle of 1920 was the most enviable any public 
 man has occupied in India. He was the most success- 
 ful and the most longlived of the band of self-sacrificing 
@@ -624,6 +624,6 @@ real do these words strike to the ear ! The soul of the
 Lokamanya will never rest in peace unless and until Swaraj 
 is established. It will be bom again and again, if need 
 be, in this holy land of the rishis until its high purpose 
-is accompHshed. 
+is accomplished. 
 
 

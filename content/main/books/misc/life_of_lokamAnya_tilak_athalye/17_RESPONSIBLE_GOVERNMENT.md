@@ -3,25 +3,23 @@ title = "17 RESPONSIBLE GOVERNMENT"
 
 +++
 
-For us there is but one choice. We have made it. Woe be 
+> For us there is but one choice. We have made it. Woe be 
 to the man or groups of men that seek to stand in our way in 
-^his day of our high resolution^ when every principle we hold 
+this day of our high resolution when every principle we hold 
 dearest is to be Vindicated and made secure for our salvation. 
+> 
+> President Wilson 
 
-President Wilson 
-
-A FTER nine long years of separation, Mr. Tilak 
-"^^ joined his old comrades at the Congress of Luck- 
-now (1916). What a change ! In 1907, the nation was 
+After nine long years of separation, Mr. Tilak 
+ joined his old comrades at the Congress of Lucknow (1916). What a change ! In 1907, the nation was 
 on the eve of a relentless campaign of repression. Now 
-in 19 16, the country was throbbing with the expect- 
-ation of a vast political transformation, which Mr. Tilak 
+in 1916, the country was throbbing with the expectation of a vast political transformation, which Mr. Tilak 
 had worked so laboriously to bring about. No wonder 
 therefore, that when he stood to address the 2350 ex- 
 pectant delegates and thrice as many spectators he was 
 accorded an enthusiastic ovation. He said : — 
 
-" I am not foolish enough to think that this reception 
+> " I am not foolish enough to think that this reception 
 is given to my humble self. It is given, if I rightly 
 understand to those principles for which I have been 
 fighting, principles which have been embodied in the 
@@ -29,14 +27,9 @@ resolution I have the honour to support. I am glad to say
 that I have lived these ten years to see that we are going 
 to put our voices and shoulders together to push on the 
 scheme of Self-Government. We are now united in 
-45 very way in the United Provinces." 
+every way in the United Provinces." 
 
 Without depreciating the efforts of several leaders who 
-
-
-
-"RESPONSIBLE GOVERNMENT" 239 
-
 worked hard to accomplish the Hindu-Moslem Unity, 
 it may be said that Mr. Tilak's foresight and generosity 
 in substantially conceding many of the demands of the 
@@ -53,7 +46,7 @@ cils. To those of his more theoretical and hence less
 compromising brethren who looked with alarm at 
 these concessions, Mr. Tilak said : — 
 
-*' It has been said that we, Hindus have yielded too 
+> It has been said that we, Hindus have yielded too 
 much to our Mahomedan brethren. I am sure, I re- 
 present the sense of the Hindu community all over 
 India, when I say that we could not have yielded too 
@@ -62,7 +55,7 @@ ment are granted to the Mahomedan Community only.
 I would not care if they are granted to the Rajputs. 
 I would not care if they are granted to the lower 
 classes of the Hindu population. Then the fight will 
-not be triangular as, at present, it is." 
+not be triangular as, at present, it is. 
 
 This is the language, not only of magnanimity but of 
 statesmanship also. By making this concession, Mr^ 
@@ -71,14 +64,8 @@ ever since his return from Mandalay of winning over
 the Muslims. Influences were at work to keep the 
 Mahomedans away from the Hindus ; for Sir James 
 Meston had publicly advised them to place communal 
-
-
-
-240 LOKAMANYA TILAK 
-
-considerations over the National. It was at this criti- 
-cal time that Mr. Tilak threw the whole weight of his 
-advice and influence over to the side of the Muslims^ 
+considerations over the National. It was at this critical time that Mr. Tilak threw the whole weight of his 
+advice and influence over to the side of the Muslims 
 and secured their lasting co-operation. 
 
 In criticising (October 1916), the " Memorandum of 
@@ -110,11 +97,6 @@ three or four members which Mr. Lloyd George institu-
 ted in order to save the inevitable delays of the Cabinet 
 When we remember that even Mr. Lloyd Goerge in 
 times of extreme emergency and national peril could 
-
-
-
-"RESPONSIBLE GOVERNMENT" 24I 
-
 bring about this change only by creating a split in the 
 Cabinet and driving out of office his old chief, we are 
 not surprised that Mr. Tilak was unsuccessful. Pre- 
@@ -433,7 +415,7 @@ ed by dissensions. Mr. Tilak, therefore, suggested that
 until the Government scheme of Reforms was out, we 
 should stick to the one which had evoked the unani- 
 mous support of the people. There was time enough to 
-decide, after the Government pubHshed its report on 
+decide, after the Government published its report on 
 constitutional reforms, whether in the light of the official 
 proposals, the Congress-League scheme should be 
 modified or not. 
@@ -626,7 +608,7 @@ ver understood what it meant. We are in the midst of our
 negotiations. If you reject the scheme you have done 
 with it. What are you then going to tell the British 
 people ? " That we reject the scheme ?" I think 
-that we have learnt enough of poHtics to know that it is 
+that we have learnt enough of politics to know that it is 
 absurd to take such a position. Fortunately for all, we 
 have been able to place before you a reasoned document, 
 a resolution, which combines the wisdom of one 

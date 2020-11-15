@@ -13,7 +13,7 @@ splendid-portion of our national history.
 
 Macaulay on John Hampden 
 
-rSlHE playground of Eton might have trained up the 
+The playground of Eton might have trained up the 
 conqueror of Napoleon ; but it is characteristic 
 either of the circumstances in India or of our college- 
 life or of both, that Mr. Tilak owed absolutely nothing 
@@ -121,7 +121,7 @@ To challenge in this way the work of two generations,
 requires a degree of no ordinary courage. To strike 
 out a new path in the public life almost in opposition 
 to the previous generation requires vision of the first 
-order ; and the pecuHar path selected by Mr. Tilak 
+order ; and the peculiar path selected by Mr. Tilak 
 called for self-sacrifice of the highest degree. Mr. 
 Tilak rushed into the arena of national activities fully 
 gifted with this vision, courage and self-sacrifice. An- 
@@ -540,7 +540,7 @@ putation as the first Councillor in India. Mr. Tilak
 devoted his energy to the cause of journaUsm and 
 became the premier editor in the country. Mr. Gokhale 
 came to be a great favourite with the Moderate leaders. 
-Mr. Tilak founded a new school of poHtical thought of 
+Mr. Tilak founded a new school of political thought of 
 ivhich he was the undisputed and most influential 
 leader. Mr. Gokhale's politics and opportunities made 
 him a persona grata with the Indian Bureaucracy and 
@@ -571,7 +571,7 @@ of a strong-willed colleague was often responsible for
 his inconsistencies. Then we must not forget the dizzy 
 height which he had ascended. Courted by Cabi- 
 net Ministers, trusted and flattered by the Bureaucracy^ 
-Mr. Gokhale was in a pecuHar position during the event- 
+Mr. Gokhale was in a peculiar position during the event- 
 ful years of the anti-Partition movement. His own 
 enthusiasm drew him in one direction, his Moderate as- 
 sociates to another, while the English and Anglo-In- 

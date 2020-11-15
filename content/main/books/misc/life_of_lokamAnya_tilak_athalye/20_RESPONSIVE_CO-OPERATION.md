@@ -3,12 +3,12 @@ title = "20 RESPONSIVE CO-OPERATION"
 
 +++
 
-Not what thou and I have promised to each other but what 
+> Not what thou and I have promised to each other but what 
 the balance of our forces can make us perform to each other : 
 that, in so sinful a world as ours, is the thing to be counted 
-apon. 
-
-Thomas Carlyle. 
+upon. 
+> 
+> Thomas Carlyle. 
 
 \\fJIEN Mr. Montague asked Mr. Tilak v^^hat he would 
 do in case the reforms fell short of his expect- 
@@ -143,7 +143,7 @@ and work could not go hand in hand. He appealed to
 Mr. Tilak, the commentator of the Gita, to solve the 
 riddle and have no mental reservations towards those 
 in England who were well-disposed towards India. 
-Mr. Tilak repHed that disappointment should not be 
+Mr. Tilak replied that disappointment should not be 
 
 
 

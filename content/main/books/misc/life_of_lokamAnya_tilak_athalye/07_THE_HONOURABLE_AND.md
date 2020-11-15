@@ -167,7 +167,7 @@ was impossible for the Government members to dis-
 lodge him from his positions, nor did they dare hurl at 
 him their arrows of ridicule or banter. Unlike many 
 members of the Council, he was extremely sparing of 
-compHments to the Official Members. He never gave 
+compliments to the Official Members. He never gave 
 praise, he never sought it. His speeches were severely 
 impersonal and unrhetorical, studded with facts, mas- 
 terly handled. What struck his hearers was the breadth 
@@ -397,7 +397,7 @@ nor did they welcome it when spontaneously offered.
 Such benevolent execution of precautionary measures 
 required a higher type of imagination than the Bureau- 
 crants could command and while men like Lord San- 
-dhurst sincerely wished the least interference witH the 
+dhurst sincerely wished the least interference with the 
 conveniences of the people, the plague measures actually 
 created greater terror than the epidemic itself. 
 

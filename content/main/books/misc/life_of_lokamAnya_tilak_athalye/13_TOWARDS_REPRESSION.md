@@ -3,31 +3,21 @@ title = "13 TOWARDS REPRESSION"
 
 +++
 
-The stars are blotted out. 
+> The stars are blotted out.  
+> The clouds are covering clouds,  
+> The sea has joined the fray  
+> And swirls up mountain waves  
+> The flash of lurid light  
+> Reveals on every side  
+> A thousand thousand shades.
+>  
+> Kali by Swami Vivekananda, 
 
-The clouds are covering clouds, 
-
-* * * 
-
-The sea has joined the fray 
-
-And swirls up mountain waves 
-
-* * * 
-
-The flash of lurid light 
-
-Reveals on every side 
-
-A thousand thousand shades. 
-
-* Kali ' by Swami Vivekananda, 
-
-4i l/V^HO broke the Congress at Surat ?" In reply ^ 
+"Who broke the Congress at Surat ?" In reply ^ 
 we ask, " Who wanted to go back on the 
-Calcutta resolutions ?" *' Who hailed the Surat split 
-with rapture ?'* *' Who wanted to rally round the 
-banner of Lord Morley V Not the least important 
+Calcutta resolutions ?" "Who hailed the Surat split 
+with rapture ?" "Who wanted to rally round the 
+banner of Lord Morley?" Not the least important 
 question is " whose conduct was unconstitutional and 
 un-Parliamentary ?" 
 
@@ -181,7 +171,7 @@ then claimed his attention. Then came the work
 of organising the picketing at the liquor shops. 
 This movement lasted for about a month. Then he 
 attended the Provincial Conference at Dhulia. To top 
-all, came the bomb (30th April), changing the poHtical 
+all, came the bomb (30th April), changing the political 
 atmosphere in its entirety. It threw the shadow of 
 misfortune and failure over every public activity. The 
 Samartha-Vidyalaya was subsequently suppressed by 

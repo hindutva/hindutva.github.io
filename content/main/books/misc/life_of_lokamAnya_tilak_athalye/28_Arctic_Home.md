@@ -10,7 +10,7 @@ traditions were the only materials available for the
 study of pre-historic man. So various attempts were 
 made to systematise these myths and explain them ra- 
 tionally. But the mythologists carried on their re- 
-searches at a time when man was beHeved to be post- 
+searches at a time when man was believed to be post- 
 glacial and when the physical and geographical sur- 
 roundings of the ancient man were assumed not to have 
 been materially different from those of the present day. 

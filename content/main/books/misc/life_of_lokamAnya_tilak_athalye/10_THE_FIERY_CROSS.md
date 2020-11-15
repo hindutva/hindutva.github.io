@@ -539,7 +539,7 @@ evidence.' The conclusion thus is of the most serious
 character amounting to a plain judicial finding of con- 
 spiracy and perjury. Thei? Lordships {however) do not 
 think that one ivord of it is justified by the evidence in the 
-case'^. Referring to Messrs. Tilak and Khaparde, Mr, 
+case". Referring to Messrs. Tilak and Khaparde, Mr, 
 Justice Chandavarkar observes that : ' They were men 
 of mature years, of exceptional education and mental 
 
@@ -558,7 +558,7 @@ object to gain and no interest to serve, could be sup-
 posed to have entered into the conspiracy and com- 
 mitted the perjury which the High Court judgment 
 "found. The conclusion come to by the learned Jtidges {is) 
-■entirely unwarranted on the facts'^. 
+■entirely unwarranted on the facts". 
 
 *' Large masses of irrelevant matter (have been intro- 
 duced in the Judgment of the High Court Judges). In 
