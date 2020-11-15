@@ -25,13 +25,18 @@ MAHATMA GANDHI
 INDIA'S  
 SAINT AND LEADER  
 
+मम प्रतिज्ञां च निबोध सत्याम् ।  
+वृणे धर्मम् अमृताज् जीविताच् च ॥  
+राज्यं च पुत्रांश् च यशो धनं च ।  
+सर्व न सत्यस्य कलामुपैति ॥  
+महाभारत
 
+### Web links for proofreading.
+On [archive.org](https://archive.org/details/in.ernet.dli.2015.42892) .
 
 
 
 ### FOREWORD 
-
-
 
 When the author asked me to write out a 
 foreword when I was in Bombay in the 
@@ -80,7 +85,7 @@ against the Hindus and trying to start a
 Pan-Islamic movement." Lokamanya's eyes 
 glistened. He said, "Are you sure?". This 
 gentleman got very angry. He said " Sure ? 
-I am as sure as I am here talking to you. I. 
+I am as sure as I am here talking to you. I 
 have seen some of the letters. Whilst you 
 are dividing the Hindus, the Mahomedans 
 are uniting to crush us." To my surprise, 
@@ -90,10 +95,10 @@ our deliverance at hand. Don't you see the
 moment the ^Mahomedans combine, that 
 moment the Government will be at them. 
 The moment the Government is at them, 
-that very moment they will unite with us." 
+that very moment they will unite with us."+++(5)+++ 
 It was after this that the Moslem League was 
-started in open opposition to the I. N. Con- 
-gress. It was after this that the Moslem 
+started in open opposition to the I. N. Congress.  
+It was after this that the Moslem 
 League strove and worked in perfect unity 
 with the I. N. Congress. It was after this 
 that the Hindu-Moslem Unity was declared 
@@ -130,8 +135,7 @@ figured are hot. Though dead, Mr. Tilak
 still lives in our midst ; and the time is not 
 yet for a pronouncement of the final verdict 
 of History upon him. That is evidently a 
-work for the next generation when the bio- 
-grapher or historian will be fortified in his 
+work for the next generation when the biographer or historian will be fortified in his 
 judgment by the knowledge of the ultimate 
 success or failure of Mr. Tilak's methods 
 and those of his opponents. My task is 
@@ -144,14 +148,12 @@ Throughout the succeeding narrative, I
 have never tried to conceal my bias for Mr. 
 Tilak. Nor will the reader — Moderate or 
 Extremist, Brahmin or Non-Brahmin, Indian 
-or European — except me to do so. I have 
+or European — expect me to do so. I have 
 however, to the best of my ability, scrupulous- 
-ly adhered to truth. Not being closely identi- 
-fied with party principles, personalities and 
+ly adhered to truth. Not being closely identified with party principles, personalities and 
 prejudices, I can claim to have judged Mr. 
 Tilak's opponents sympathetically. I have 
-as great a regard for Ranade as for Vishnu- 
-shastri Chiploonkar ; and if in the following 
+as great a regard for Ranade as for Vishnushastri Chiploonkar ; and if in the following 
 pages the reader finds any lapses from the 
 standard of fair criticism set by me, he 
 should unhesitatingly attribute them rather 
@@ -162,22 +164,19 @@ ness is so immense and self-evident that it
 stands in no need of any exggeration or 
 misrepresentation. 
 
-The idea of writing a life of the Loka- 
-manya was dimly and vaguely floating in 
+The idea of writing a life of the Lokamanya was dimly and vaguely floating in 
 my mind for a number of years. It recurred 
 to me again and again when, taking advantage 
 of the obscurity which hung over his earher 
-activities, many of his enthusiastic oppo- 
-nents in Western India actively set themselves 
+activities, many of his enthusiastic opponents in Western India actively set themselves 
 to indulge in cheap gibes by irreverential and 
 by no means fair references to what they 
 considered to be his mistakes. In this, they 
 can be pardoned for, being young, these 
 opponents might have been the dupes of mis- 
 understandings born in an atmosphere of 
-party prejudices. But their attacks cer- 
-tainly led me to go beneath the surface of 
-things and inquire w^hat truth there was in 
+party prejudices. But their attacks certainly led me to go beneath the surface of 
+things and inquire what truth there was in 
 them. And after three year's patient work, 
 I find that Mr. Tilak's activities, far from 
 having the shortcomings and inconsistencies 
@@ -197,26 +196,21 @@ that is due to the limits of an ordinary pre-
 face. Mr. M. R. Paranjpye, Principal of the 
 Gokuldas Tejpal High School, Bombay, kind- 
 ly undertook to help me in revising the 
-work. Mr. Annasahib Sapre and Mr. Kar- 
-melkar prepared the Press-copy in an in- 
-credibly short time. I must also thank Mr. 
-M. K. David and Mr. Bhausahib Oak for 
+work. Mr. Annasahib Sapre and Mr. Karmelkar prepared the Press-copy in an incredibly short time. I must also thank Mr. M. K. David and Mr. Bhausahib Oak for 
 having helped me in a variety of ways. 
 Even then I should hardly have hoped of 
 accomplishing this task but for the sponta- 
 neous assistance rendered bv Prof. Haribhau 
 Tulpule, Mr. D. K. Sathe and Mr. Annasahib 
 Chiploonkar, who during the last ten months 
-had placed their services entirely at my dis- 
-posal. 
+had placed their services entirely at my disposal. 
 
 The credit of having supplied the excellent 
 paper on which this book is published, goes 
 entirely to Mr. M. R. Joshi, Paper-merchant, 
 Poona. Mr. Nanasahib Gondhalekar, the 
 enterprising Proprietor of the Jagaddhitecchu 
-Press, Poona, must both be praised and thank- 
-ed for having printed off this book in five 
+Press, Poona, must both be praised and thanked for having printed off this book in five 
 short weeks on his new Monotype machine. 
 
 While this Preface was being written, news 
@@ -234,16 +228,15 @@ aristocrats recognize that he represented, in
 his intellectual and spiritual eminence, a 
 nobler aristocracy than has fallen to their lot. 
 Old persons feel interest in the romance of 
-his career ; the middle-aged derive instruc- 
-tion therefrom. On the younger generation, 
+his career ; the middle-aged derive instruction therefrom. On the younger generation, 
 the influence of Mr. Tilak's life is still deeper. 
-It not only interests and instructs but in- 
-spires the mind to a performance of great 
+It not only interests and instructs but inspires the mind to a performance of great 
 deeds. Like the story of the Pandavas, it is 
 bound to go down to generations unborn as 
 an eternal source of inspiration. 
 
-
+जयो नामेतिहासोऽयं श्रोतव्यो विजिगीषुभिः।  
+(Signed D V Athaye) 
 
 ### CONTENTS 
 - Mr. Blunt 
@@ -278,10 +271,10 @@ an eternal source of inspiration.
 
 ## MR. BLUNT 
 
-Oh hush thee' my baby, the time soon will come 
-When thy sleep shall be broken by trumpet and drum; 
-Then hush thee, my darling, take rest while you may. 
-For strife comes with manhood and waking with day. 
+Oh hush thee' my baby, the time soon will come   
+When thy sleep shall be broken by trumpet and drum;   
+Then hush thee, my darling, take rest while you may.  
+For strife comes with manhood and waking with day.+++(5)+++ 
 
 Scott 
 
@@ -3161,9 +3154,9 @@ tary.
 
 
 
-## THE HONOURABLE AND I 
+## THE HONOURABLE AND ... 
 
-An Additional Membership is, as I view it,no sop or gag in- 
+An Additional Membership is, as I view it, no sop or gag in- 
 tended to stop honest and fair criticism. But if it is, I should 
 certainly give it up rather than consent to draw the curtain over 
 the gross negligence or the palpable errors of ofi&cials, however 
@@ -3275,15 +3268,12 @@ Bombay University. In May 1895, he headed the poll at the
 genarai elections to the Poona City Municipality. He resigned 
 his msmjers'lip of the City Municipality in 1897. After his 
 convictijn {iS)j) he was deprived of his University fellov, ship 
-by the Government of Bombay 
-
-
+by the Government of Bombay salutary laws. But like Sir Pherozeshah, he too was 
+destined to play the role of a mere critic of the ad- 
+ministration. 
 
 THE HONOURABLE AND ! 8l 
 
-salutary laws. But like Sir Pherozeshah, he too was 
-destined to play the role of a mere critic of the ad- 
-ministration. 
 
 In spite of the limitations imposed upon his usefulness, 
 Mr. Tilak worked in the Council with his usual ardour. 
@@ -10553,7 +10543,7 @@ of the official or semi-official propagandist. «...,...."
 
 
 
-## TILAK— F— CHIROL. 
+## TILAK—V— CHIROL. 
 
 From the Deccan * * his (Mr. Tilak's) infiuence pro- 
 jected far and wide. * * his prestige as a Brahmin of Bra- 
