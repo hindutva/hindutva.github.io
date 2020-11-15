@@ -5,7 +5,7 @@ title: 02 Aryan invasion
 
 ![](../images/Arya-iranian-farmers-asi-diagram-2.jpg)
 
-{{< figure src="../images/yAmnAya_corded-ware_baltic-fatyanovo_abashevo_sintashta_andronovo_nordquvist_2020.png" title="" class="thumbnail">}}
+{{< figure src="../images/yAmnAya_corded-ware_baltic-fatyanovo_abashevo_sintashta_andronovo_nordquvist_2020.png" title="">}}
 
 
 {{< figure src="../images/narasimhan19-admixture.jpg" title="Admixture diagram from Narasimhan 19" >}}
