@@ -3,15 +3,13 @@ title = "10 THE FIERY CROSS"
 
 +++
 
-Rejoice and fear not for the waves that swell. 
-The storms that thunder, winds that sweep. 
-Always our Captain holds the rudder well. 
+> Rejoice and fear not for the waves that swell.   
+> The storms that thunder, winds that sweep.  
+> Always our Captain holds the rudder well.   
+> He does not sleep.  
+> Arabindo Ghose. 
 
-He does not sleep. 
-
-Arabindo Ghose. 
-
-nnHAT, for nearly eighteen years of his life, Mr. Tilcik 
+That, for nearly eighteen years of his life, Mr. Tilak 
 was involved in a private litigation, arising out of 
 an unnatural alliance between an inexperienced young 
 widow, a number of unscrupulous persons inimical 
@@ -30,11 +28,6 @@ Chirol in villifying him. Apart from the capital made
 out of it by the allies of the Bureaucracy, the 
 Tai Maharaj case, in its winding courses, threatened 
 to ruin Mr. Tilak in every possible way. It put him 
-
-
-
-120 LOKAMANYA TILAK 
-
 to an expenditure of thousands of rupees and pro- 
 mised to crush him financially. It took huge slices 
 from his leisure ; in fact, during some of the stages of 

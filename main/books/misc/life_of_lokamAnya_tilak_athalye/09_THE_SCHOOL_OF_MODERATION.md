@@ -3,19 +3,15 @@ title = "09 THE SCHOOL OF MODERATION"
 
 +++
 
-Let us swear an oath and keep it with an equal mind 
+> Let us swear an oath and keep it with an equal mind  
+> In the hollow lotus-land to live and lie reclined.  
+> Surely surely slumber is more sweet than toil, the shore 
+> Than labour in the deep mid ocean, wind and wave and oar ;   
+> Oh, rest ye, brother mariners, we will not wonder more. 
+> 
+> Tennyson. 
 
-In the hollow lotus-land to live and lie reclined. 
-
-Surely surely slumber is more sweet than toil, the shore 
-
-Than labour in the deep mid ocean, wind and wave and oar ; 
-
-Oh, rest ye, brother mariners, we will not wonder more. 
-
-Tennyson. 
-
-"T^ HILE the Social Reformers were remarrying widows 
+While the Social Reformers were remarrying widows 
 and breaking castes with the ultimate object of 
 making the people fit for political rights, Mr. Tilak was 
 labouriouly striving to infuse vigour into the public mind 

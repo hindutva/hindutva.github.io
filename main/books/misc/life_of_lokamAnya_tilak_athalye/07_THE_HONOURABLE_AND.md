@@ -3,16 +3,14 @@ title = "07 THE HONOURABLE AND"
 
 +++
 
-An Additional Membership is, as I view it, no sop or gag in- 
-tended to stop honest and fair criticism. But if it is, I should 
+> An Additional Membership is, as I view it, no sop or gag intended to stop honest and fair criticism. But if it is, I should 
 certainly give it up rather than consent to draw the curtain over 
-the gross negligence or the palpable errors of ofi&cials, however 
+the gross negligence or the palpable errors of officials, however 
 high they may be. 
+> 
+> B. G. Tilak 
 
-B. G. Tilak 
-
-f\^ August 7th, 1895, Mr. Tilak, elected by an over" 
-^^ whelming majority by the District Local Boards 
+On August 7th, 1895, Mr. Tilak, elected by an overwhelming majority by the District Local Boards 
 of the Central Division, took, in the Legislative 
 Council, the customary oath of allegiance to Her Ma- 
 jesty, the Queen-Empress. Two years later he was 

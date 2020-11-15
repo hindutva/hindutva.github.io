@@ -3,21 +3,20 @@ title = "08 THE LOKAMANYA"
 
 +++
 
-My position among the people entirely depends upon my 
--character ; and if I am cowed down by the prosecution, * ♦ * 
-living in Maharashtra is as good as living in the Andamans * * * 
+> My position among the people entirely depends upon my 
+character ; and if I am cowed down by the prosecution,  
+living in Maharashtra is as good as living in the Andamans.  
 We are incapable of nourishing any sinster feeling against the 
-BritishRule and it is thus impossible for any of us to be convict- 
-ed of such a heinous charge as sedition. Such risks however, 
+British Rule and it is thus impossible for any of us to be convicted of such a heinous charge as sedition. Such risks however, 
 we must take * * They are the risks of our profession * * Their 
 (the Government's) object is to humiliate the Poona leaders, 
-and I think in me they will not find a " kutchha reed ". . . ► 
+and I think in me they will not find a " kutchha reed ". . . 
 Then you must remember that beyond a certain stage we are 
 all servants of the people. You will be betraying and disap- 
 pointing them, if you show a lamentable want of courage at a 
 critical time. 
-
-B. G. Tilak to Motilal Ghose. 
+> 
+> B. G. Tilak to Motilal Ghose. 
 
 ^T^HE cruel murder of Mr. Rand and Lieut. Ayerst 
 threw the Anglo-Indian community.into a state of 

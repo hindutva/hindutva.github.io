@@ -3,12 +3,12 @@ title = "02 MR BLUNT"
 
 +++
 
-Oh hush thee' my baby, the time soon will come   
+> Oh hush thee' my baby, the time soon will come   
 When thy sleep shall be broken by trumpet and drum;   
 Then hush thee, my darling, take rest while you may.  
 For strife comes with manhood and waking with day.+++(5)+++ 
-
-Scott 
+> 
+> Scott 
 
 The highest praise that has yet been accorded to 
 Lokamanya Tilak has come, curiously enough, from the 
