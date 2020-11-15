@@ -175,28 +175,23 @@ When Bal joined (1873) the Deccan College as a resi-
 dent student, the Bombay University and its affiliated 
 Colleges were not quite as old as their alumni. The 
 rough and ready methods of the East India Company's 
-Government were, by this time being gradually sub- 
-stituted by Institutions more imposing under the direct 
+Government were, by this time being gradually substituted by Institutions more imposing under the direct 
 rule of the Queen-Empress. In matters educational, 
 Colonel-Professors and Major-Directors were giving 
 place to graduates from Oxford and Cambridge ; and 
 although this new University ware was not as a rule a 
-very great improvement on the former mihtary commo- 
-dity, it WcLS, at IccLst, imbued with the atmosphere of the 
-EngHsh academies. Howsoever opinions may differ as 
+very great improvement on the former military commodity, it was, at least, imbued with the atmosphere of the English academies. Howsoever opinions may differ as 
 to the value of the knowledge Indian students acquired 
 at these Institutions, one thing was certain that they 
-were not slow to admire the gowns and caps of the sar- 
-torial Major-domoes, in whose orbits it was their destiny 
-to fall. 
+were not slow to admire the gowns and caps of the sartorial Major-domoes, in whose orbits it was their destiny to fall. 
 
-Persons of pairasitic psychology, whose main purpose 
+Persons of parasitic psychology, whose main purpose 
 is to make the present comfortable without a thought 
-to the future may deride the idea of National Educa- 
-tion. But those who can think for themselves are 
+to the future may deride the idea of National Education. 
+But those who can think for themselves are 
 painfully aware of the disadvantages of imbibing foreign 
 ideas through a foreign medium at an immature but 
-impressionable time of life. The system of education 
+impressionable time of life.+++(5)+++ The system of education 
 transplanted from England to India by well-meaning 
 administrators was itself faulty at the very foundation ; 
 and the immature graduates of English Universities 
@@ -205,61 +200,42 @@ learning were entirety innocent of India's storied past
 and the living present. They were quite ignorant of 
 the dangers of directing the youthful energies of the 
 children of shastris and pundits into the uncongenial 
-
-
-
-S LOKAMANYA TILAK 
-
-channels of an alien culture. It was of course im- 
-possible for them to impart instruction in the ver- 
-naculars. The students were therfore called upon 
+channels of an alien culture. It was of course impossible for them to impart instruction in the vernaculars. The students were therfore called upon 
 to do every intellectual work through a foreign 
 medium. The crushing burden of receiving instruction 
 through English has been pronounced by competent 
 authorities to have " atrophied all originality, research, 
-adventure, ceaseless effort, courage and like qualities." 
+adventure, ceaseless effort, courage and like qualities."+++(5)+++ 
 But the misfortunes of the student-world did not end 
-here. The assimination of alien thought at an impres- 
-sionable period of life is an unsupportable burden. The 
-influence of Shelleys and Byrons, hke that of all narcotics 
+here. The assimination of alien thought at an impressionable period of life is an unsupportable burden. The 
+influence of Shelleys and Byrons, like that of all narcotics 
 is at once exhilerating and depressing. It plants alien 
 ideals into the hearts of the young, without affording 
 that corrective which a close study of Hindu ideals can 
 alone give. The deification of Western culture and 
 civilisation inclines the students to apply the crude 
-standards of Western materialism to the nobler civilisa- 
-tion of this country. It is thus that the cry of Social 
-Reform has gone forth. The principles of democracy im- 
-mortalised in the passionate writing and speeches of 
-Burke, Bright and Gladstone create aspirations diffi- 
-cult of realisation in the cramping political atmosphere 
+standards of Western materialism to the nobler civilisation of this country. It is thus that the cry of Social Reform has gone forth. The principles of democracy immortalised in the passionate writing and speeches of 
+Burke, Bright and Gladstone create aspirations difficult of realisation in the cramping political atmosphere 
 of the country. No wonder that many a graduate has 
 found his physical strength and endurance severely 
 taxed in his academical life. The spectacle of hundreds 
 of bright young men annually leaving the university 
 portals as physical wrecks is, in no small measure, 
-due to the circumstances detailed above. 
+due to the circumstances detailed above.+++(4)+++ 
 
 Bal must either have instinctively realized these 
 dangers or must have found his fragile frame quite in- 
 adequate to the manifestations of the mighty spirit 
-
-
-
-MR. BLUNT. 9 
-
-^thm. For, soon after joining the Deccan College he 
+within. For, soon after joining the Deccan College he 
 determined to lay the foundation of that physical 
 strength and endurance, which, in spite of worries and 
 hard intellectual work stood him in good stead 
 during the whole of his life. For full one year, 
 he neglected his studies and devoted practically all 
-his time exclusively to physical culture. Swimming, 
+his time exclusively to physical culture.+++(5)+++ Swimming, 
 boating and wrestling were his pastimes. Morning and 
 evening he passed through a severe course of Indian 
-gymnastics. At the end of the year, he failed in his F. 
-A. examination but he succeeded in his ambition and 
-became a robust young man. Instead of being required 
+gymnastics. At the end of the year, he failed in his F. A. examination but he succeeded in his ambition and became a robust young man. Instead of being required 
 to measure the quantity of his daily food, his powers of 
 digestion were wonderfully developed. When some years 
 later, he had an occasion to take food for a few months 
@@ -269,11 +245,11 @@ rigours of heat and cold and could with impunity spend
 hours together in physical or mental work. Even in 
 1900, when his health was unsatisfactory and he 
 could hardly be said to have recovered from the shock 
-of the prison-Hfe of 1897-98, he swam across the 
+of the prison-life of 1897-98, he swam across the 
 Ganges — a distance of more than a quarter of a mile. 
 Once asked the secret of his intellectual tenacity, Mr. 
 Tilak particularly referred to this period of his youth 
-and said " If one only attends to one's body as one 
+and said "If one only attends to one's body as one 
 does to one's mind from the age of 16 to that of 25, 
 and if the physical strength thus stored up is not 
 dissipated by gluttony or vice, one can stand any 
@@ -281,28 +257,21 @@ amount of hard intellectual work till old age."
 
 This acquisition of health and strenth increased the 
 buoyancy of his mind and he heartily joined in all the 
-
-
-
-10 LOKAMANYA TILAK 
-
 innocent pranks of College-life. He however knew 
 where to draw the line between such innocent diversions 
 and culpable mischief. He also knew how to despise the 
 mistaken gentility of apathetic natures. His restless 
-intellect, unfatigued by the rigours of stud}/" occasional- 
-ly found diversion in heated discussions with his fellow- 
-students. His outspokenness earned for him the title 
-of Mr. Blunt. There is nothing paradoxical in the in- 
-tellectual acuteness and social bluntness of Mr. TUak. 
+intellect, unfatigued by the rigours of study occasionally 
+found diversion in heated discussions with his fellow-students. 
+His outspokenness earned for him the title 
+of Mr. Blunt. There is nothing paradoxical in the intellectual acuteness and social bluntness of Mr. Tilak. 
 These qualities can otherwise be named as social and 
 intellectual "directness." No beating about the bush, 
 but running straight to the subject in hand — that was 
 his characteristic. His critical faculty had abnormally 
 developed, and like young George Washington playing 
 with his axe, he used it on any and every subject that 
-came in his way. His innate bias for the classical litera- 
-ture of his country, however, saved him from being the 
+came in his way. His innate bias for the classical literature of his country, however, saved him from being the 
 slave of his reason ; and the excesses of the Social 
 Reformers of the day made him shrink from accepting 
 their gospel without reserve. 
@@ -312,25 +281,20 @@ Chhatre — of Mr. Tilak's College-days stood head and
 shoulders above their contemporaries not only by 
 reason of their profound learning and inimitable 
 teaching but also by their noble character. Till the 
-end of his life Mr. Tilak ungrudingiy admitted the 
+end of his life Mr. Tilak ungrudgingiy admitted the 
 high moral and intellectual equipment they brought 
 to their work. They were Gurus in the real sense of 
 the term. 
 
 Out of Mr. Tilak's college-companions, Messrs. Mule, 
 Sharangpani and Kathavte, though not quite so well 
-known, have, in their own way distinguished themsel- 
-
-
-
-MR. BLUNT II 
-
-ves. Others — Messrs. Shridhar Balkrishna Upasani, 
+known, have, in their own way distinguished themselves. 
+Others — Messrs. Shridhar Balkrishna Upasani, 
 Gopal Ganesh Agarkar, Vamanrao Apte, Daji Abaji 
 Khare, Ganesh S. Khaparde, R. N. Mudholkar, Dayaram 
 Gidumal — need no introduction to our readers. Mr. 
 (Dr. Sir) N. G. Chandavarkar, too was a contemporary 
-oi Mr. Tilak, though studying in a different college. 
+of Mr. Tilak, though studying in a different college. 
 He passed his B. A. examination in the same year with 
 Mr. Tilak (1876). Both Tilak and Chandavarkar secu- 
 red a first Class in the B. A. examination. 
@@ -339,25 +303,51 @@ The Mathematical abilities of Mr. Tilak were of the
 highest order and were fully and frankly recognised by 
 Prof. Chhatre who, in those days was considered to be 
 the premier Mathematician of the Presidency. Mr. 
-TUak's mathematical training, coupled with his fine 
-classical study gave his genius that logical and ima- 
+Tilak's mathematical training, coupled with his fine 
+classical study gave his genius that logical and imaginative bent which excites the admiration of the 
+readers of the Gita-Rahasya and the Arctic Home in the 
+Vedas. 
 
 * Mr. Tilak's Sanskrit Studies found recreation in occasional 
 attempts at versification. Here are a few verses, selected from 
 one of his Composition Note-Books : — 
 
-^ fTSR^ f^r R^ ^^ ^\^^^Wi%^^ ^ & ^^: I 
+मातृविलापः  
 
-^T^ ^5:r% 37^*11^ ^ ^^-^5^Rt o^T?T^ II ^ n 
-R^t^ ^^ fT ^^' 37^1 cfi^ f^rr^^c^JT nun 
+प्रसमीक्ष्य सुतं गुणालयं  
+विधिना संहृत-जीवितं पुरा।  
+जननी निपपात दुःखिता  
+धरणौ मोहवशं गता भृशम् ॥ १॥ 
 
+बत हाऽस्मि हता विधे त्वया  
+तनयस्यासु-हृता न मे पुनः ।  
+रविणा सरसि प्रशोषिते  
+न नु जीवेच् छफरी तदाश्रया ॥ ३ ॥+++(5)+++ 
 
+पितरौ प्रथमं ततः सुतो  
+हननस्य क्रम एष भो विधे ।  
+तनयः प्रथमं कथं त्वया  
+मम नीतः प्रतिकूल-चारिणा ।। ४ ।। 
 
-12 LOKAMANYA TILAK 
+वचनं न ममावधीरितं  
+शिशुतायामपि जातक+++(=पुत्र)+++ त्वया ।  
+विफली-कुरुषेऽद्य मे कथं  
+गिरमुत्थाय सुभाषयेदिमाम् ॥ १०॥
 
-ginative bent which excites the admiration of the 
-readers of the Gita-Rahasya and the Arctic Home in the 
-Vedas. 
+तव दूयत एव कोमलं  
+मृदु-शय्याविनिवेशितं वपुः ।  
+प्रसहेत तदेव हा कथम्  
+अधुना तात चिताधि-रोहणम् ।। १२॥ 
+
+भवनं तनयेन शोभते  
+न वृथेत्थं विबुधैर् निगद्यते।
+भुवनं हि विभाति मे वनं  
+सुरलोकं तनये गते द्रुतम् ॥ १७॥ 
+
+इति सा बहुशो व्यचिन्तयत्  
+तनयं चाप पुनार् विमूर्च्छनाम् ॥ १८ ॥  
+विससर्ज च शोकपावके  
+गुणिते स्नेहरसेन सा वपुः ॥ १९॥
 
 His utter disregard of praise and scholarships was 
 not due to the perfunctory method of his studies but 
