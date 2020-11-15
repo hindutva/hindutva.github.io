@@ -12,7 +12,7 @@ to require any summary. )
 
 Oriental scholars have advanced vague and uncer- 
 tain conjectures about the age and character of the 
-Vedas. Prof. Max MuUer has divided the Vedic liter- 
+Vedas. Prof. Max Muller has divided the Vedic liter- 
 ature into four arbitrary periods, the Chhandas, Mantra, 
 Brahmana and Sutra and by assigning two hundred 
 years for each period he arrives at about 1200 B.C. 
@@ -356,6 +356,6 @@ dhism which may be called the real-Pre Buddhistic
 period. It will thus be found that the antiquities of 
 the Vedas can be traced up to a far remoter time than 
 what Max Muller and other European scholars were 
-wilUng to assign. 
+willing to assign. 
 
 

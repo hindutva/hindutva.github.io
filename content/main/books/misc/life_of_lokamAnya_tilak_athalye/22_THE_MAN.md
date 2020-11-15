@@ -21,7 +21,7 @@ duty of life. Charles Stuart Parnell is reported to have
 said in one of his moments of infatuation that his pub- 
 lic life belonged to his country and that his private life 
 was his own. Mr. Tilak made no such distinction and his 
-pubUc career was only the logical outcome of those qua- 
+public career was only the logical outcome of those qua- 
 lities of the heart, which have been over and over test- 
 ed in his private life. Excepting what have been sent 
 bv the cold hand of Death, no cloud has marred the 
@@ -45,7 +45,7 @@ the needy and his time all given up to reading, writing,
 thinking, working for the country, Mr. Tilak may be 
 said to have passed a singularly enviable life. 
 
-To a superficial observer, Mr. Tilak's personaUty apv- 
+To a superficial observer, Mr. Tilak's personality apv- 
 peared to be an extremely simple one for analysis ; but 
 really it was extremely complex. "WTiat struck careful 
 observers was the harmonious combination of appa- 
@@ -105,7 +105,7 @@ mented him till the last, only confirmed his love of
 learning and scholarship and indeed, the happiest and 
 proudest moments of his Hfe were those, when delibe- 
 rately laying aside the burden of his anxieties, he flew 
-to Uterature and philosophy with the eagerness that 
+to literature and philosophy with the eagerness that 
 bespoke his preference. 
 
 Mr. Tilak, however, was not the master of his time 
@@ -123,9 +123,9 @@ at all times is not the necessary condition of democratic
 leadership. We know how in Greece, Pericles, the leader 
 of the people was generally reserved, while his 
 opponent, though the leader of the Aristocratic 
-party was always accessible to the general pubUc. 
+party was always accessible to the general public. 
 Mr. Tilak seems to have kept as his models, the Tri- 
-bunes of the Roman history, and Uke them, his doors 
+bunes of the Roman history, and like them, his doors 
 were open for all visitors at any time. Infant de- 
 mocracy is impatient of the restraints which method 
 and economy of time should impose upon the people in 
@@ -202,7 +202,7 @@ Maharaja to cast a damaging slur on at least one aspect
 of his administration." Mr. Tilak gave Mr. Bapat the 
 better part of one year and successfully fought out his 
 case. To the well-known Tai Maharaj affairs he gave 
-at least eighteen years of his busy life. In the earUer 
+at least eighteen years of his busy life. In the earlier 
 stages of the case, there were so many occasions when 
 he could have conveniently given up his interest in the 
 posthmus affairs of one of his dearest friends ; but he 

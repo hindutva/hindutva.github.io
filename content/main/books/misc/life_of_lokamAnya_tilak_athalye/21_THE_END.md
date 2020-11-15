@@ -14,7 +14,7 @@ middle of 1920 was the most enviable any public
 man has occupied in India. He was the most success- 
 ful and the most longlived of the band of self-sacrificing 
 workers who started the New English School (1880), 
-the Kesari and the MahraUa (1881). His opponents — 
+the Kesari and the Mahratta (1881). His opponents — 
 Ranade, Telang, Mehta and Gokhale — were gathered 
 to their fathers before the substantial achievement of 
 their labours. He alone represented, not merely the 
@@ -37,7 +37,7 @@ hated by Anglo-Indians, feared by the Moderates, he was
 
 THE END 305 
 
-the idol of the country, the Uving embodiment of all 
+the idol of the country, the living embodiment of all 
 its aspirations. Behind him lay the memories of an 
 uneven and almost single-handed struggle extending 
 over forty years. Ahead, there was a struggle still, 

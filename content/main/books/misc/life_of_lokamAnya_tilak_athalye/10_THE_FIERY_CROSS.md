@@ -405,7 +405,7 @@ misappropriated some of it and I invoke your assist-
 ance as Magistrate to make him answer, to make him 
 give an account of himself and his property '. I believe 
 99 out of 100 persons would have done exactly what 
-Tilak did." And yet Mr. Tilak had to fight fuU 8 
+Tilak did." And yet Mr. Tilak had to fight full 8 
 months before he could extract this clear judicial 
 statement on such a simple question. 
 

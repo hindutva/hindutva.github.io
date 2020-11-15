@@ -354,18 +354,13 @@ not due to the perfunctory method of his studies but
 rather the reverse. If one were to analyse the prize- 
 hunters' mentality, it will be found that their studies 
 are not the outcome of a love of knowledge but the show 
-of it. The one aim of Mr. Tilak's life was the acquisi- 
-tion of the intrinsic and so all the rewards resulting from 
+of it. The one aim of Mr. Tilak's life was the acquisition of the intrinsic and so all the rewards resulting from 
 the attainment of merely marketable knowledge had no 
 charm for him. His reading was extensive and 
 thorough ; while reading for examination the history of 
 the reigns of Queen Mary and Queen Elizabeth, he 
 studied about a dozen standard authors and made his 
-own notes. While preparing for the LL. B. examina- 
-tion, instead of contenting himself with reading Hindu 
-Law from English writers he went straight to the foun- 
-tain-head and studied Yajnavalkya and other authori- 
-ties. He also read all the important Acts passed by the 
+own notes.+++(4)+++ While preparing for the LL. B. examination, instead of contenting himself with reading Hindu Law from English writers he went straight to the fountain-head and studied Yajnavalkya and other authorities. He also read all the important Acts passed by the 
 Government of India since 1827. The closeness of his 
 application to studies and his ready and prolonged 
 concentration therein were the wonder of his 
@@ -374,20 +369,10 @@ is equally, if not still more rare, the innate
 purity of his mind. Mr. Upsani, his life-long 
 friend recalling those three years of Bombay-life 
 says " I shared Mr. Tilak's room while both of us 
-
-
-
-f^[^f^ =^ 5at^JHTHi% 51^ ^%^ W ^: II ^^11 
-
-
-
-MR. BLUNT. 13; 
-
-were students of Law at Bombay ; and I don't remem- 
-ber a single occasion when he gave expression to any 
-unworthy thought." Happy the youth which, Uke a 
+were students of Law at Bombay ; and I don't remember a single occasion when he gave expression to any 
+unworthy thought."+++(5)+++ Happy the youth which, like a 
 lotus, can grow, unsulUed and uncontaminated, in the 
-muddy water of worldly Ufe and which, the moment it 
+muddy water of worldly life and which, the moment it 
 is full blown is dedicated to the service of the Mother- 
 land. For such sacred worship, only the freshest, the 
 most fragrant and unsmelt flowers are necessary. Mr. 

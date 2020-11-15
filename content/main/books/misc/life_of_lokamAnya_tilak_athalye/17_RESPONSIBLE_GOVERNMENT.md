@@ -121,7 +121,7 @@ not surprised that Mr. Tilak was unsuccessful. Pre-
 judices and prepossessions die hard. Mr. Tilak would 
 however brook no compromise on one point. He 
 wanted the Congress to call on the Home Rule Leagues 
-and other pubUc Associations to carry on continuously 
+and other public Associations to carry on continuously 
 a vigorous propaganda. " If the Congress " he said 
 " would not lead a national agitation, let the Home 
 Rule Leagues at least do the work." It was with evi- 
@@ -135,7 +135,7 @@ National movements.
 The memorable 1917 dawned and found Mr. Tilak 
 busy with his Home Rule Propaganda. During the 
 whole of this eventful year, Mr. Tilak toured from one 
-end of the country to the other. He deUvered lectures 
+end of the country to the other. He delivered lectures 
 at Calcutta, Delhi, Mathura, Nagpur, Akola, Godhra, 
 Surat, Jalgaon, DhuUa, Belgaum, Thana, Sholapur, 
 Satara and other places too numerous to be mentioned 
@@ -173,7 +173,7 @@ Self-Governing Colonies, the step of progress had been
 slow. Lord Chelmsford too had raised his voice against 
 what he called catastrophic changes. About March 
 19 17 " the Government of India issued a Circular to 
-Local Governments outlining the poUcy to be pursued 
+Local Governments outlining the policy to be pursued 
 by the latter in connection with the Indian demand 
 for reforms.*' Circulars, prohibiting students from 
 attending political meetings, especially those convened 
@@ -212,7 +212,7 @@ the Moderate leaders thought it their duty to join
 the Home Rule Leagues. (The Hon'ble) Mr.M. A. 
 Jinnah and several other leading Congressmen and 
 Muslim-leaguers in Bombay joined the Home Rule 
-League immediately after the pubUcation of the 
+League immediately after the publication of the 
 internment order.More important still was the attitude 
 of the Moderate leaders at Allahabad, who at this 
 most momentous crisis joined hands with the Home 
@@ -375,7 +375,7 @@ If there was any politician in India whose pro-
 gramme of work was not materially altered by the an- 
 nouncement of Mr. Montagu's visit, it was Mr. Tilak ; 
 with his unerring judgment, he clearly saw that what- 
-ever concessions Mr. Montague would be incUned to 
+ever concessions Mr. Montague would be inclined to 
 make would, to a considerable extent, be negatived by 
 the reactionary forces at work in India and England ; 
 
@@ -451,7 +451,7 @@ for co-operation with the Government, which sometimes
 means quiet submission to the bureaucratic will; when 
 we remember how the unmeaning reforms of 1909 were 
 praised as " generous and just/' need we wonder that 
-the Moderates raUied round the banner of the Viceroy 
+the Moderates rallied round the banner of the Viceroy 
 and the Secretary of State ? Those who know some- 
 thing of the inner history of Indian Pohtics during the 
 few months preceding the pubhcation of the Mont-ford 

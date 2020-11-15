@@ -13,7 +13,7 @@ we must take * * They are the risks of our profession * * Their
 (the Government's) object is to humiliate the Poona leaders, 
 and I think in me they will not find a " kutchha reed ". . . ► 
 Then you must remember that beyond a certain stage we are 
-all servants of the people. You wiU be betraying and disap- 
+all servants of the people. You will be betraying and disap- 
 pointing them, if you show a lamentable want of courage at a 
 critical time. 
 
@@ -118,7 +118,7 @@ the election of Mr. Tilak to the Legislative Council.
 But " the unreasoning panic into which the Anglo- 
 Indian community was driven by such malicious at- 
 tacks and its unfortunate success in inflaming the 
-EngUsh people, forced the hands of the Secretary of 
+English people, forced the hands of the Secretary of 
 State and Lord Sandhurst had to take measures which, 
 it is beheved, he would never have sanctioned, if he 
 had remained a free agent.*" 
@@ -251,7 +251,7 @@ in the Yeravda gaol.
 
 Such was the result of the conflict — the first of its 
 kind in India — between the mighty Government of 
-Bombay with its immense resources and a soUtary citi- 
+Bombay with its immense resources and a solitary citi- 
 zen with nothing but truth, courage and a nation's 
 sympathy to support him. Apparently it was a blow 
 to Mr. Tilak. Since this time his relations with Gov- 
@@ -275,7 +275,7 @@ But while in one direction Mr. Tilak lost much of
 immense accession of purity, strength and purpose to 
 the National cause. Patriotism was, by his example 
 and suffering lifted up from weak-kneed opportunism 
-and humble mendicity to the high level of reUgion. 
+and humble mendicity to the high level of religion. 
 Mr. Tilak's attitude was an object lesson to the people 
 in manly fight and courage and suffering came to be 
 recognised as the necessary qualities of a leader. The 
@@ -361,9 +361,9 @@ nearly six months prior to the termination of the pres-
 cribed period of eighteen months. This belated grace 
 was accelerated by the influentially signed petition pre- 
 sented by the late Prof. Max Muller to H. M. the Queen 
-Victoria. Prof. Max MuUer knew Mr. Tilak as the 
+Victoria. Prof. Max Muller knew Mr. Tilak as the 
 author of the ' Orion ' and it was largely due to his 
--efforts that the sense of justice of Lord Sandhurst was 
+efforts that the sense of justice of Lord Sandhurst was 
 at last awakend. There was still a display of petty- 
 mindedness in insisting upon an application for cle- 
 mency from Mr. Tilak himself. But Mr. Tilak, who 
@@ -374,15 +374,15 @@ Prof. Max Muller's interest in Mr. Tilak enabled the
 latter to spend much of his enforced leisure profitably. 
 Mr. Tilak was allowed the use of candles for a couple 
 of hours at night and he utilized this opportunity to 
-push on his researches into Vedic antiquities. The goal- 
-diet reduced his weight from I35lbs. to 104. A slight 
+push on his researches into Vedic antiquities. The gaol- 
+diet reduced his weight from 135 lbs. to 104. A slight 
 improvement in his food again increased it to ii3lbs. 
 This diet was also responsible for diabetes which he 
 soon contracted and which more or less tormented him 
 to the end of his life. He was required to do hard work 
 indoors. It is really sad to contemplate the author of 
 the " Arctic Home in the Vedas " caning chairs and 
-painting waUs. To Mr. Tilak, aU work was equally in- 
+painting walls. To Mr. Tilak, all work was equally in- 
 teresting and he is said to have surprised the gaoler by 
 
 
