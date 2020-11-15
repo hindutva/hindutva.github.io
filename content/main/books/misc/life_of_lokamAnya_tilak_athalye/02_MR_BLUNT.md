@@ -15,25 +15,17 @@ Lokamanya Tilak has come, curiously enough, from the
 Hon. Mr. Gokhale who is reported to have said to an 
 Enghsh friend that, bom a hundred and twenty years 
 before, Mr. Tilak would have carved out a kingdom for 
-himself. This pithiest and most appropriate compli- 
-ment pictures for us Mr. Tilak as he really was, not a 
+himself.+++(5)+++ This pithiest and most appropriate compliment pictures for us Mr. Tilak as he really was, not a 
 product of the Western Civilisation and of the English 
 Government but a solitary surviver of the race which 
 four generations back had well-nigh conquered the whole 
 of India. It was impossible for him to be assimilated, 
-like most of his countrjTnen by and in the mighty 
+like most of his countrymen by and in the mighty 
 Enghsh Government ; nor could that Government crush 
 his spirit and make him a helpless spectator of our 
-
 downfall. He was every inch a soldier a soldier 
-
 in a civilians' garb. The Press and the Plaftorm were 
 his field of action; and from this battlefield he waged 
-
-
-
-2 LOKAMANYA TILAK 
-
 a relentless war on the Indian Bureaucracy for nearly 
 forty years. He alone of all others dared strike the 
 shield of the Government with the " sharp end of the 
@@ -44,34 +36,26 @@ by the rulers of the land. Where could such an one be
 found except in the great Mahratta race ? 
 
 Bal Gangadar Tilak was born at Ratnagiri on July 
-23rd, 1856. Bom in a race to which the Peshwas be- 
+23rd, 1856. Born in a race to which the Peshwas be- 
 longed and in a town not far away from the birth-place 
-of Balaji Vishwanath, he WcLS, indeed, destined to play 
+of Balaji Vishwanath, he was, indeed, destined to play 
 the role of a representative of those who had ruled the 
 greater part of India for nearly a hundred years. In 
 the year of his birth the political atmosphere in India 
-was electric. It was a remarkable year for this re- 
-markable child to be ushered into existence. It was as 
-ominous to the new nilers of the land as this child was 
+was electric. It was a remarkable year for this remarkable child to be ushered into existence. It was as ominous to the new rulers of the land as this child was 
 destined to be. Lord Dalhousie, the last of the aggres- 
 sive proconsuls of the British East India Company had 
 just departed, cutting off all the Native poppies that 
-dared appear tall among the degenarates of the van- 
-quished races of India, and while he was thus stretching 
+dared appear tall among the degenarates of the vanquished races of India, and while he was thus stretching 
 the red canvas over the country, the last vestiges of the 
 Imperial families of Delhi and of Satara were 
-swept away, witfi the result that he left a legacy as 
+swept away, with the result that he left a legacy as 
 fatal to his successor as Lord Chelmsford has done 
 to the present Viceroy. Hindus and Mahomedans 
 smarting under the humiliation of eclipsed crescent 
-and BJiagva Zenda had made common cause. 
+and Bhagva Zenda had made common cause. 
 The unity was no doubt temporary, the result of a 
 common wrong ; the essential condition for a successful 
-
-
-
-MR. BLUNT 3 
-
 revolution was wanting, the proletariat being unwilling 
 to be disturbed by the wails and woes of the feudal 
 landlords with their figure-head Royalties. So the 
@@ -91,36 +75,25 @@ memory of these things should have failed to impress
 the imagination of a child whose whole life was a dedi- 
 cation to the service of the Motherland. 
 
-What httle is known of Bal's mother shows that she 
+What little is known of Bal's mother shows that she 
 was a kind-hearted and an intensely religious woman. 
 His father was one of those gems " of purest ray serene" 
 that for want of favourable opportunities lie concealed 
-in the deep " caverns of the ocean." Bom in August 
+in the deep " caverns of the ocean." Born in August 
 1820, he had passed the early years of his boyhood in 
 dreaming dreams of learning and high social position 
-and had, after finishing his vernacular course of instruc- 
-tion at Dabhol (Dist. Ratnagiri), walked over, in those 
+and had, after finishing his vernacular course of instruction at Dabhol (Dist. Ratnagiri), walked over, in those 
 days of difficult travelling to Poona. At a time when 
 a boy learning English had every kind of encouragement 
-given to him. Nana would surely have been able to cc«n- 
-plete his studies ; but a domestic misfortune compelled 
-him to bid good-bye to all his ambitions and rest con- 
-tent, as a school master, with the " splendid " salary of 
-
-
-
-4 LOKAMANYA TILAK 
-
-Rs. 10 per mensem. But though he was thus called 
-upon to waste his abilities in the cramping atmos- 
-phere of vernacular school-life, he never neglected his 
+given to him. Nana would surely have been able to complete his studies ; but a domestic misfortune compelled 
+him to bid good-bye to all his ambitions and rest content, as a school master, with the " splendid " salary of Rs. 10 per mensem. But though he was thus called 
+upon to waste his abilities in the cramping atmosphere of vernacular school-life, he never neglected his 
 duties nor did he abandon his favourite pursuit of 
 knowledge. All his leisure was devoted to the 
 study of Mathematics, Sanskrit and Marathi ; and 
-his mastery over the several branches of these sub- 
-jects enabled him to bring out two books, the 
+his mastery over the several branches of these subjects enabled him to bring out two books, the 
 one on Trigonometry and the other on Marathi 
-Grammar. But neither the scholarship of Gangadharpant 
+Grammar.+++(5)+++ But neither the scholarship of Gangadharpant 
 nor his conscientious discharge of duties could make 
 his superiors forget or overlook his stern sense of 
 personal independence. The inevitable consequence 
@@ -132,32 +105,21 @@ ant Deputy Educational Inspector and was transferred
 to Poona (1866). 
 
 The intensely religious vein of the mother and the 
-stem sense of personal independence of the father re- 
+stern sense of personal independence of the father re- 
 flected themselves in the wilful nature of the boy, a 
 characteristic which has played no insignificant part in 
 his future career. This delicate child of a delicate 
-mother was not put to school before he was 11, not cer- 
-tainly for want of facilities — Ratnagiri was a District 
+mother was not put to school before he was 11, not certainly for want of facilities — Ratnagiri was a District 
 town — but evidently because, the father, himself a 
-school-master, intended to give his son a good ground- 
-ing in Sanskrit and vernacular in the unfettered free- 
-dom of home-life. Bal proved wonderfully responsive 
+school-master, intended to give his son a good grounding in Sanskrit and vernacular in the unfettered freedom of home-life.+++(5)+++ Bal proved wonderfully responsive 
 to his father's instructions. He loved his childish plays 
 no doubt, but, evea at that age the ponderous volumes 
-
-
-
-MR. BLUKT 5 
-
 in his father's library impressed him more. One 
 book particularly attracted his fancy. He had heard 
 his father reading the sonorous periods of Bana's 
-Kadamhari and believing the book to be no more diffi- 
-cult than the holy Sanskrit verses he was set to recite 
+Kadamhari and believing the book to be no more difficult than the holy Sanskrit verses he was set to recite 
 every evening, he went up to his father and asked for 
-the loan of the book. Startled with the request, but un- 
-willing to dispirit his son by a curt refusal Gangadhar- 
-pant promised to give the book on one condition. A 
+the loan of the book. Startled with the request, but unwilling to dispirit his son by a curt refusal Gangadharpant promised to give the book on one condition. A 
 knotty problem in Arithmetic was set ; Bal was to 
 work it out and have the book. Armed with slate and 
 pencil, Bal waged a relentless war on the problem for 
@@ -165,34 +127,18 @@ an hour and a half and carried off the prize amidst the
 applause of the proud mother and the loving sister. 
 
 This was the first triumph of Bal's life. His poor 
-mother did not live to see others. Her health, natural- 
-ly delicate, undermined by frequent fasting gave way 
+mother did not live to see others. Her health, naturally delicate, undermined by frequent fasting gave way 
 and she died (1866) before realising an Indian mother's 
 ambition of getting her son married. Sometime later, 
 Bal was sent to school. He jumped from standard to 
 standard and was soon transferred to the Poona High 
-School whence he matriculated in 1872. The rigid for- 
-mality of the classes, with its accompaniment of church- 
-yard silence utterly disgusted him. The spectacle of 
+School whence he matriculated in 1872. The rigid formality of the classes, with its accompaniment of churchyard silence utterly disgusted him.+++(5)+++ The spectacle of 
 mediocre teachers hammering scrappy stuff, styled 
 knowledge into the mediocre brains of students was not 
-calculated to charm a boy to whom reading was under- 
-standing and committing to memory no labour. The 
-race of marks and of rank could never allure him; 
+calculated to charm a boy to whom reading was understanding and committing to memory no labour. The race of marks and of rank could never allure him; 
 His unwillingness to take down notes and translations 
 was an enigma to his teachers. He was content that he 
 had learnt the lessons and was quite indifferent to the 
-
-
-
-h LOKAMANYA TILAK 
-
-
-
-u 
-
-
-
 expression. He cared more for knowledge than for 
 words, more for thoughts than for the expression. But 
 the traditional cast of the teachers' mind could not 
@@ -205,7 +151,7 @@ the answer. " Where is your method " asked the precise
 pedagogue. "It is here " said our hero, pointing to 
 his head. 
 
-Such an ** unmethodical " and rebellious child was 
+Such an "unmethodical " and rebellious child was 
 never likely to be popular with the teachers, who on oc- 
 casions took complaints to his father. Bal cared little for 
 their good opinion and less for their " time-honoured '* 
@@ -213,26 +159,19 @@ methods. His father was intensely proud of him and
 presaged for him a great career. The promising son of 
 the Assistant Deputy Inspector, could not, in those days 
 of early marriages, long escape the fetters of wedlock. 
-A suitable bride was found in Tapihai, daughter of 
+A suitable bride was found in Tapibai, daughter of 
 Ballal Bal of Ladghar (Dist. Ratnagiri), to whom he was 
-married in 187 1. Soon after this event happened two 
+married in 1871. Soon after this event happened two 
 others, the one favourable and the other extremely un- 
 fortunate. Bal passed his Matriculation in December 
 1872 ; but only a few months before his success in the 
 examination his father died, leaving him quite an. 
-orphan. ''It is the bitterest element in the vast irony 
+orphan. "It is the bitterest element in the vast irony 
 of human life that the time-worn eyes, to which a 
 son's success would have brought the purest gladness are 
-so often closed for ever,even before success has come." * 
+so often closed for ever, even before success has come." +++(* Morley's Life of Cobden)+++
 
 When Bal joined (1873) the Deccan College as a resi- 
-
-* Morley's Life of Cobden, 
-
-
-
-MR. BLUNT 7 
-
 dent student, the Bombay University and its affiliated 
 Colleges were not quite as old as their alumni. The 
 rough and ready methods of the East India Company's 
