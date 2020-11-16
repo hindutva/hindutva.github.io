@@ -11,8 +11,8 @@ title: Portunguese assault
 - Dissimulation as European brAhmaNa-s  - De Nobili, [AbbeD](https://books.google.ca/books?id=xWY3AQAAMAAJ&pg=PA634&dq=at+this+time+their+daily+increasing+numbers+threatened&hl=en&sa=X&ved=0CBwQ6AEwAGoVChMIx57H5_eLyAIVDD2SCh18JQQP#v=onepage&q=at%20this%20time%20their%20daily%20increasing%20numbers%20threatened&f=false)ubois.
 
 ## Goa inquisition 
-\[[wiki](http://en.wikipedia.org/wiki/Goa_Inquisition)\]
-- [SV_YT18](https://www.youtube.com/watch?v=6nEseljBZ-c&feature=youtu.be)
+- \[[wiki](http://en.wikipedia.org/wiki/Goa_Inquisition)\]
+- [SV_YT18](https://www.youtube.com/watch?v=6nEseljBZ-c&feature=youtu.be), [OC_YT_20](https://www.youtube.com/watch?v=qFDN4TJyBc4)
 - "In his letter to John III, King of Portugal, dated 16th May 1545, Xavier called upon the king to “establish the Holy Inquisition” because there were many who lived according to their laws of belief and “without any fear of God or shame of the world.”" \[[Xaviers college letter](http://centreright.in/2014/04/an-open-letter-to-the-students-of-st-xaviers-college-mumbai/comment-page-1/#.VLJ5LjlGjUY)\]
 - [4 Persecution of Hindus](http://en.wikipedia.org/wiki/Goa_Inquisition#Persecution_of_Hindus)
     - Quotes [1](https://twitter.com/blog_supplement/status/573632135791276032).
