@@ -33,4 +33,4 @@ Textual authority is not absolute.
 
 ## Stories as allegories in the shAstra-s
 - Hindu holy texts sometimes describe events and phenomena, which may be sometimes taken as (or mistaken as) historical or scientific fact.
-- The stories pertaining to the deva-s are explicitly admitted to be "illusory" in the veda itself. More in the [deva page](../../../tattvam/deva/myth/).
+- The stories pertaining to the deva-s are explicitly admitted to be "illusory" in the veda itself.

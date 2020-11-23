@@ -13,7 +13,6 @@ With rare exceptions, all abrahamisms agree on some basic concepts. Abrahamisms 
 - true God and false gods (supposedly unwitting followers of Satan), universal urge for religion/ divinity, religion (= worshiping the true God, rejecting false gods)
 - References
   - BG [here](https://www.youtube.com/watch?v=MDNTP53TCxA), [here](https://www.youtube.com/watch?v=MDNTP53TCxA).
-  - Also see [here](../../../tattvam/deva/index/).
   - Hegel's excellent observation [IMG](http://i.imgur.com/TLjScks.jpg), [prospects_folk](https://www.marxists.org/reference/archive/hegel/works/pc/tubingen.htm).
 
 ## Counter religious nature
@@ -53,7 +52,7 @@ See [worship-restrictions](../worship-restrictions/) page.
 - Greater staticness of divine law in the Abrahamisms.
     - The laws given by the Abrahamic God in the revelations, and the dictates of the main prophet are considered inviolable. Change or deviation is not readily allowed.
     - By contrast, the hindu dharmashAstra-s are fluid and context (place/ time) dependent, encouraging giving up practices detested by the society at large. (More [here](../../../social-cultivation/dharma-fluid/))
-    - There is also the history vs myth contrast (see [myth page](../../../tattvam/deva/myth/)), leading to the texts being understood far more literally.
+    - There is also the history vs myth contrast, leading to the texts being understood far more literally.
 - Prophets as a bug in the code
     - the prathamonmatta-s did recognize the link between a sādhāraṇonmatta and a prophet, although they are careful to distinguish the two. Jeremiah 29.26 states: “The lord (i.e. the eka-rākṣasa) made you a priest in place of Jehoiada, and you are now the chief officer in the temple. It is your duty to see that every man that is mad and makes himself a prophet is placed in chains with an iron collar round his neck.” ... Deuteronomy 13.2–6 gives the clear prescription regarding how this should be done: “If there arise among you a prophet, or a dreamer of dreams, and gives thee a sign or a wonder, and the sign or the wonder come to pass, whereof he spoke unto thee, saying, “Let us go after other gods, which thou hast not known, and let us serve them,” thou shall not hearken unto the words of that prophet, or that dreamer of dreams…And that prophet, or that dreamer of dreams, shall be put to death, because he hath spoken to turn you away from the lord your god…”  \[[MT](https://manasataramgini.wordpress.com/2016/03/11/unmada-carca/)\]
     - "The founder of tṛtīyonmāda realized that there was a “bug” in the formulation of the previous unmāda-s and wrote into his version of the unmāda-code that there could be no “unmatta” after him." \[[MT](https://manasataramgini.wordpress.com/2016/03/11/unmada-carca/)\]
@@ -80,7 +79,7 @@ See [worship-restrictions](../worship-restrictions/) page.
 - As Ketkar pointed out, Christianity can be regarded only as a tribal tradition and thus cannot lay claims to universality which is rather the domain of the Hindu dharma.
 
 ## Conflict with science
-- There is the history vs myth contrast (see [myth page](../../../tattvam/deva/myth/)), and the literal sense of the words taken far more seriously than in the case of polytheism.
+- There is the history vs myth contrast, and the literal sense of the words taken far more seriously than in the case of polytheism.
 - This leads to a lot more conflict with science.
 
 ## Other comparisons

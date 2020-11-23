@@ -2,7 +2,7 @@
 title: Ananda-addictions
 ---
 
-See [here](../../tattvam/puruShArtha/) for an introduction to Ananda addiction and their great subversion of the dharma-puruShArtha.  
+See elsewhere for an introduction to Ananda addiction and their great subversion of the dharma-puruShArtha.  
 
 ## Schools
 ### Non veda-rejecting systems
@@ -29,7 +29,7 @@ The nAstika-s are corrosive to dharma (far more so than vedAnta ).
 
 - Their kingship thought lacks aggression. parAkrama, clearly engendered by vaidika rituals like rAjasUya and ashvamedha. At best, they practice self defense.
 - Being a counter-religion, they subvert the Arya conservativism of the veda-s and brAhmaNa-s (particularly in later days).
-- hindu-devatA-subversion [here](../../tattvam/deva/index/).
+- hindu-devatA-subversion should be considered.
 - At the same time:
     - unlike even many Astika systems, they pay high regard to Indra.
     - jaina nIti texts even respect the trayii.

@@ -92,4 +92,4 @@ Yoga studios, meditation groups and "repackaged" ideas in science are an apparen
 
 ## Easy compatibility with modern science
 
-We discuss this [here](../../tattvam/science-magic/).
+TBD

@@ -37,7 +37,7 @@ title: +Books- Intro
 - Some prescriptions of the shAstra-s are seriously (even fanatically) followed by the orthoprax members of communities to whom they apply.
   - Evidence: kālanirṇaya text (Hemādri, Mādhava, Kamalākarabhaṭṭa, Kāśinātha etc.).
   - Examples include: In case of brAhmaNa-s: Vegetarianism in non-sacrificial contexts. Not crossing the seas. Performing twilight salutations (sandhyA-vandanam) daily. etc..
-- The motivation can either be ultimate liberation or dharma (../examined [here](../../tattvam/puruShArtha/).)
+- The motivation can either be ultimate liberation or dharma.
     - Holy books are considered extremely useful guides for beginner and intermediate spiritual practitioners.
         - Partly for this reason, they are considered worthy of preservation with great care. This despite the many stories of sages throwing away or destroying their personal copies when they found them useless for further spiritual progress.
 
