@@ -19,8 +19,8 @@ Hinduism is a cultural ethos (../[a religion for practical purposes](religion/))
     - saMskAra (solid, systematic pursuit of refinement), sAdhana, tapas, mantra
     - adhikAra-bheda (right to exclusiveness)
 - **Adaptability**: The Hindu ethos is extremely diverse, accommodating mutually opposite metaphysical/ ritual/ economic etc.. viewpoints peacefully ([JM15](http://swarajyamag.com/culture/jeyamohan-on-the-question-of-being-a-cultural-hindu/)). Hinduism has an "open architecture" - almost any philosophy can join in, unless it the kind that attacks the "open architecture" itself.
-    - **Belief: secondary and varied**: Hindu ethos encompasses a huge variety of belief systems - ranging from vaidika orthodoxy to epistemological atheism with non-epistemological "faith", which have for the most part respected each others' right to exist. Indeed, various subversive ostensibly anti-vedic movements such as buddhism and jainism show a great deal of hindu influence in their epistemology, goals and practice. Practice is far more important than belief \[[details](../../tattvam/science-magic/)\].
-    - The polytheism \[and therefore **polycentrism** ([details](../tattvam/deva/index/))\] inherent in the core vaidika system is an important contributor to this universality.
+    - **Belief: secondary and varied**: Hindu ethos encompasses a huge variety of belief systems - ranging from vaidika orthodoxy to epistemological atheism with non-epistemological "faith", which have for the most part respected each others' right to exist. Indeed, various subversive ostensibly anti-vedic movements such as buddhism and jainism show a great deal of hindu influence in their epistemology, goals and practice. Practice is far more important than belief.
+    - The polytheism \[and therefore **polycentrism**\] inherent in the core vaidika system is an important contributor to this universality.
     - Contrast with Abrahamistic monotheisms.
     - Related articles:
         - Sanjeev Sanyal has argued ([here](http://swarajyamag.com/culture/the-logic-of-hinduism/)) that Hinduism is a complex adaptive sytem.

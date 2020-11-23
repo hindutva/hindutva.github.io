@@ -4,7 +4,7 @@ title: +सहिष्णुता Tolerance
 
 ## Desired limit of tolerance
 
-Anything intolerant to our tolerant hindu structure should not be tolerated, if the said structure is to survive. Some general context about the limits classically imposed within the hindu ecosystem is discussed [here](../../../tattvam/deva/index/).
+Anything intolerant to our tolerant hindu structure should not be tolerated, if the said structure is to survive. Some general context about the limits of inter-cult competition classically imposed within the hindu ecosystem can be considered.
 
 - The **intolerant generally and eventually overcomes** and imposes its values on the tolerant other, even when it is a small minority. This is a law of nature.
 - **Polytheism especially cannot afford secularism.** See [here](../../../rivals/abe-disease/0-theism/secularism/).

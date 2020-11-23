@@ -30,7 +30,7 @@ Some unusual rituals involve some unusual components, some of which people may n
 - Modern examples: Joe Hutto.
 
 ## Sex
-- See various sexual symbolisms used in adoring deities [here](../../../tattvam/deva/index/).
+- Consider various sexual symbolisms used in adoring deities.
 
 ### niyoga (sperm donation)
 - ashvamedha having a niyoga component at one point in time.
