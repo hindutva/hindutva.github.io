@@ -5,8 +5,8 @@ title: +Tai
 ## Influx
 - "According to linguistic and other historical evidence, the southwestward migration of Tai-speaking tribes from Guangxi took place sometime between the 8th-10th centuries. "
 - "The Tais from the north gradually settled in the Chao Phraya valley from the tenth century onwards, in lands of the Dvaravati culture, assimilating the earlier Austroasiatic Mon and Khmer people, as well as coming into contact with the Khmer Empire. The Tais who came to the area of present-day Thailand were engulfed into the Theravada Buddhism of the Mon and the Hindu-Khmer culture and statecraft. Therefore, the Thai culture is a mixture of Tai traditions with Indic, Mon, and Khmer influences."
-- For Tai Ahom influx, see [Ahom](../../practice/varNa/kShatriya/Tai_ahom/) article.
-- For Tai Shan influence, see [bamar article](../burma/bamar/).
+- For Tai Ahom influx, see [Ahom](../../main/social-cultivation/clan/practice/varNa/kShatriya/Tai_ahom/) article.
+- For Tai Shan influence, see [bamar article](../tibeto-burman/burma/bamar/).
 
 ## Kingdoms
 - "Around 757 CE, Khun Saiphong, one of the sons of legendary progenitor Khun Borom, obliged his people to follow him from northern Myanmar across the Salween to this region. The title Khun before his name marks his status as a ruler of a fortified town and its surrounding villages, together called a mueang."
