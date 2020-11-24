@@ -5,7 +5,15 @@ title: S.P.Q.R
 ## Cause of rise
 Why did Rome expand from a small city state to an empire which spanned 3 continents?
 
+### Military ambition inculcation
 In the Roman republic, every notable person seeking greater power and reputation had to gain military victories. This meant that positive ambition was never in short supply. Political advancement (highly competitive) being heavily tied to military triumphs; led to stronger will to repeatedly keep up the wars.
+
+### Highly involved elites
+> Unlike the selfish elites of the later periods, the aristocracy of the Republic did not spare its blood or treasure in the service of the com interest. When 50,000 Romans, a staggering one fifth of Rome's totalm power, perished in the battle of Cannae, as mentioned previously th senate lost almost one third of its membership. This suggests that the senatorial aristocracy was more likely to be killed in wars than the averao citizen. Add this to the peculiarly Roman practice of "devotion," which was always performed by a member of noble lineage, and it is easy to conclude that generally Roman aristocrats led the commoners in battle, and were the first to die.
+>
+> The wealthy classes were also the first to volunteer extra taxes when they were needed. One of the best examples of such behavior comes again from the Second Punic War, when the internal cohesion of Rome was tested to what would be a breaking point for almost any other state. When the state ran out of money, the propertied classes agreed to pay a surcharge to provide for salaries for galley crews. A graduated scale was used in which the senators paid the most, followed by the knights, and then other citizens. In addition, officers and centurions (but not common soldiers. served without pay, saving the state 20 percent of a legion's payroll.(Finally, the equestrian businessmen who supplied the army and the fleet agreed to accept promissory notes in lieu of actual payments, which the state simply did not have. In short, everybody sacrificed for the sake of victory, but the greatest burden was placed on the wealthy.
+>
+> When the leaders do not hide behind rank and shoulder their share of the common burden, the common people are much more likely to fall line. This is perhaps why the plebs and the aristocracy had coexisted rather harmonious relations with each other during the early and mi Republic. Even during the most class conflict-ridden decades of the century, the commons never revolted outright. Were they to start a re tion, they would have made short work of the nobility. Plebeian in men heavily outnumbered the aristocratic knights (by a factor than 10 to 1-a typical legion had 4,200 infantry and 300 cavalry great majority of plebeians were veterans. They could easily self-ory into an army by electing centurions and higher officers from among (by a factor of more 300 cavalry). 
 
 ## Leaders
 ### Gaius Julius Caesar
