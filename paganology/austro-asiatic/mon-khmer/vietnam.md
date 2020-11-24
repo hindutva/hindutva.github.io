@@ -3,7 +3,7 @@ title: Vietnam
 ---
 
 ## Early history
-- See [Cham page](../../main/social-cultivation/clan/ethnic-shifts/mon-khmer/champa/).
+- See [Cham page](../champa/).
 
 ## Christian invasion
 - French navy intervened in 1834 with the aim to free imprisoned Catholic missionaries from a kingdom that was perceived as xenophobic against foreign influence. Vietnam's kingdom independence was then gradually eroded by France which was aided by the Spanish and large Catholic militias in a series of military conquests between 1859 and 1885. In 1862, the southern third of the country became the French colony of Cochinchina. By 1884, the entire country had come under French rule, with the central and northern parts of Vietnam separated in the two protectorates of Annam and Tonkin. The three Vietnamese entities were formally integrated into the union of French Indochina in 1887.
