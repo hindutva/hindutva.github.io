@@ -60,6 +60,9 @@ RoP is a memetic (ie mental) disease of epidemic proportions. It CANNOT coexist 
 - 2014: Europe Face veil summary \[[bbc](http://www.bbc.com/news/world-europe-13038095)\].
 - 2011: France bans face veils \[[wiki](https://en.wikipedia.org/wiki/French_ban_on_face_covering)\].
 
+### Korean suppression
+- King Sejong of Korea banned Mosques from Korea in 1427. Hui clans assimilated into Korean society and their descendants aren't Muslims, but keep genealogies that say their ancestors were Hui.
+
 ## Non-muslim settlement
 ### China
 - Since 2015, Xinjiang gained 2 million new “residents”, who have their household registration (hukou) outside of Xinjiang. They settled in Urumqi and in XPCC regions. 
