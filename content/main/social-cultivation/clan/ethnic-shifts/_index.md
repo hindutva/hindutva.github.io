@@ -11,7 +11,7 @@ title: +Ethnic shifts
 - Great Indo Aryan consolidations
 
 ## Islamic invasions
-These seem to have left comparatively little genetic footprints even among muslims. Partly because they are genetically very similar to the earlier Aryan influx - albeit more admixed with Turkik markers.
+These seem to have left comparatively little genetic footprints even among muslims. Partly because they are genetically very similar to the earlier Aryan influx - albeit more admixed with Turkik markers. "Detectable ancestry - probably less than 10%, closer to 1%." - RK
 
 ## Summary blurp
 - First came early hominids such as H.heidelbergensis from around 250,000-300,000 years BP.
