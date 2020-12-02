@@ -68,6 +68,7 @@ Genetic, linguistic and textual evidence indicates that culturally Indo-Aryan pe
 
 - Etymology of "Arya": [KE2015](http://koenraadelst.blogspot.com/2015/03/the-indo-european-vedic-and-post-vedic.html).
 - Timing: "1st they say that between 1700-1500 BCE there is East Asian admixture in C As Steppe pops which is absent in Indian groups.2nd they say that Steppe ancestry seen in BMAC first ~2100 BCE. So that gives us a rather narrow window of when the Arya-s reached the subcontinent." \[MT on [201803](https://www.biorxiv.org/content/biorxiv/early/2018/03/31/292581.full.pdf)\]
+- This likely happened in collaboration with a faction of IVC elites, some of whom were later incorporated in the highest echolons of Arya society. The soma cult, a distinct feature of I-Ir branch, might have come from them.
 
 ### Multiple waves
 - "We suspect that similarly there were multiple waves of Indo-European invasions into India. Most of these were waves were Indo-Aryans or at best Iranians, though there might have additionally even been a kentum type non-Indo-Iranian wave – sort of a mirror image of the western branch of Indo-Aryans (Mittani superstrate) that appeared in West Asia \[Footnote 2\]. We discern several such waves based on Indo-Aryan literary tradition: 1) The pa~nchajana (who may have come in more than one wave); 2) the ikShvAku (these two are early waves); 3) the shalva-s; 4) the pANDava-s" \[[MT11](https://manasataramgini.wordpress.com/2011/08/03/homers-illiteracy/)\]

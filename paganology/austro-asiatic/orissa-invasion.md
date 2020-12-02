@@ -2,7 +2,10 @@
 title: Austro-asiatic influx
 ---
 
+## Intro
 Not to be confused with Austronesian (a distinct sister language branch).
+
+This was the male-biased Munda influx (likely via sea route into Orissa region) dated to be approximately around 3000 YBP with a lower bound of 3800 YBP.
 
 ## References
 - [MT19](https://twitter.com/blog_supplement/status/1107890973311451136)
