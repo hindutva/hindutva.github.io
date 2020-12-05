@@ -51,3 +51,7 @@ See the [sufi page](../sufi/).
     - Jihad Turk denies that the biographies of muhammad are reliable since they were written 200 years after his death, so he was not such a horrible person \[[Y](https://www.youtube.com/watch?v=9oLjMaIR0-k)\]. But, his grounds are shaky elsewhere \[eg: [rebuttal](http://www.familysecuritymatters.org/publications/detail/exclusive-local-imam-misleads-interfaith-groups)\].
 - Ahmadiyya-s are about as bad for pagans, despite their rejection by other muslims. Furqan Force ([wiki](https://en.wikipedia.org/wiki/Furqan_Force)) fought India in 1949.
 
+## Mutual recognition
+- Odd day: Alevis are Rafidas+++(=refusers)+++. Even day: Alevis are Muslims
+- In countries like Malaysia, Shias aren't even recognised.
+- Ahmadiyyas are prohibited from calling themselves muslim in Pakistan.

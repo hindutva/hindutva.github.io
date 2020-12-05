@@ -45,3 +45,7 @@ See [types](../types/) page.
 
 ### Boosting due to non-availability
 > In his 29 years, Mohammed Daud has seen the faces of perhaps 200 women. A few dozen were family members. The rest were glimpses stolen when he should not have been looking and the women were caught without their face-shrouding burkas. "How can you fall in love with a girl if you can't see her face?" he asks. Daud is unmarried and has sex only with men and boys. But he does not consider himself homosexual, at least not in the Western sense. "I like boys, but I like girls better," he says. "It's just that we can't see the women to see if they are beautiful. But we can see the boys, and so we can tell which of them is beautiful."
+
+
+### Lesbian exception
+Lesbian sexual intercourse is punishable by death in Shi'ism but not in Sunnism. In many Sunni majority Muslim countries, female homosexuality is not punishable while male homosexuality is. eg Kuwait, Bangladesh, Turkmenistan, Gaza, etc.
