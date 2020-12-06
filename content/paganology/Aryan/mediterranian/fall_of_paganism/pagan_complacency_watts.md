@@ -15,11 +15,6 @@ The emperor didn’t answer. Nor did Libanius really expect him to; he knew that
 Libanius was born into a very different Roman empire from the one he described in 386. It was a world of perhaps 60 million people, probably 90 per cent of whom were pagans. Not that the term meant anything to them. ‘Paganism’ was a concept invented by Christians to describe everyone who was neither a Christian nor a Jew. These 54 million Roman ‘pagans’ didn’t think that their religious practices had much in common with one another.
 
 There was no reason they would. Roman pagans had no unified or organised church structure. They shared no sacred books or rituals. They didn’t even agree on which gods were real. Many pagans worshipped gods they imagined took the form of men; others depicted their gods in the shape of animals; and some, such as the disgraced 3rd-century emperor Elagabalus, saw their gods embodied in giant rocks. Pagans also regularly mocked the religious ideas of other pagans. The 2nd-century satirist Lucian, for example, wrote about a fictionalised congress of the gods in which the Olympian gods and other well-recognised deities debated whether they could expel some of the empire’s newer and more exotic divinities, ‘supposed gods who filled heaven’ although ‘they were in no way worthy’ of the honour.
-Sign up to our newsletter
-Updates on everything new at Aeon.
-Daily
-Weekly
-See our newsletter privacy policy here
 
 The cities, towns and villages of the Roman empire contained perhaps 1 million structures devoted to these diverse gods in the 310s. The Egyptian city of Alexandria alone had nearly 2,500 temples – about one for every 20 houses. These ranged from small neighbourhood shrines to the massive Serapeum, the temple at the centre of a huge sacred precinct perched on top of the city’s tallest hill.
 
