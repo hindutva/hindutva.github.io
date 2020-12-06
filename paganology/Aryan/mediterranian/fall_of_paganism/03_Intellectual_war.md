@@ -1,5 +1,5 @@
 ---
-title: ०३ ईन्तेल्लेच्तुअल् वर्
+title: ०३ Intellectual war
 
 ---
 ## Robust intellectual response to Christianity
