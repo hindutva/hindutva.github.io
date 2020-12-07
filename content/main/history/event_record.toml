@@ -18,7 +18,7 @@ Citation = ''
 
 [[data]]
 "Index Day Gregorian" = '2016-01-23'
-"Gregorian date" = ''
+"Julian date" = '1664-01-23'
 name_sa = 'shAhAjI-mRtyuH'
 tithi = ''
 Incident = 'shAhaji father of shivAjI died'
@@ -27,7 +27,7 @@ Citation = ''
 
 [[data]]
 "Index Day Gregorian" = '2016-01-26'
-"Gregorian date" = '1565-01-16'
+"Julian date" = '1565-01-23'
 name_sa = 'tAlikoTa-yuddham'
 tithi = ''
 Incident = 'battle of tAlikoTa. jihAdi forces won a major victory against the forces of vijayanagara and beheaded rAmarAya - thanks supposedly in part to betrayal by two muslim generals. '
@@ -45,7 +45,7 @@ Citation = ''
 
 [[data]]
 "Index Day Gregorian" = '2016-02-04'
-"Gregorian date" = '1670-02-04'
+"Julian date" = '1670-02-04'
 name_sa = 'tAnAjI-vIra-gatiH'
 tithi = ''
 Incident = '''
@@ -57,7 +57,7 @@ Citation = ''
 [[data]]
 "Index Day Gregorian" = '2016-02-08'
 "Gregorian date" = '0412-02-07'
-name_sa = 'prokas-janma'
+name_sa = 'proklas-janma'
 tithi = ''
 Incident = 'Roman Polytheist Platonist sage Proclus was born on this day '
 Citation = ''
@@ -65,7 +65,7 @@ Citation = ''
 
 [[data]]
 "Index Day Gregorian" = '2016-02-12'
-"Gregorian date" = ''
+"Gregorian date" = '1742-02-12'
 name_sa = 'phaDnavIs-nAnA-janma'
 tithi = ''
 Incident = 'birth annivserary of Nana Phadnavis. Held together the Maratha Empire for nearly three decades, against tough challenges.'
@@ -110,7 +110,7 @@ Citation = ''
 
 [[data]]
 "Index Day Gregorian" = '2016-02-24'
-"Gregorian date" = '1670-02-24'
+"Julian date" = '1670-02-24'
 name_sa = 'rAjArAmo jAtaH'
 tithi = ''
 Incident = ''' On this day was born Rajaram, 2nd son of Ch Shivaji, who continued the struggle for Swarajya from Ginjee after Sambhaji's brutal torture and execution for refusing to convert to Islam.'''
@@ -155,7 +155,7 @@ Citation = ''
 
 [[data]]
 "Index Day Gregorian" = '2016-03-01'
-"Gregorian date" = '1630-03-01'
+"Julian date" = '1630-02-19'
 name_sa = 'shivarAjo jAtaH'
 tithi = 'phAlguna k3'
 Incident = '''
@@ -166,7 +166,7 @@ Citation = ''
 
 [[data]]
 "Index Day Gregorian" = '2016-03-11'
-"Gregorian date" = '1739-03-11'
+"Julian date" = '1739-03-22'
 name_sa = 'nAdirashAhena dehalyAM lokahatyA'
 tithi = ''
 Incident = '''
@@ -204,7 +204,7 @@ Citation = ''
 
 [[data]]
 "Index Day Gregorian" = '2016-03-17'
-"Gregorian date" = '1673-03-17'
+"Julian date" = '1673-03-06'
 name_sa = 'koNDAjI-senAdhipena panhaLa-durgaM gRhItam'
 tithi = ''
 Incident = 'Kondaji Farzand captured Panhala in a daring night escalade & the garrison was massacred. '
@@ -213,7 +213,7 @@ Citation = ''
 
 [[data]]
 "Index Day Gregorian" = '2016-03-21'
-"Gregorian date" = '1689-03-11'
+"Julian date" = '1689-03-11'
 name_sa = 'shambhurAjo pIDito hatash cha'
 tithi = ''
 Incident = 'sambhAji mahArAj tortured and killed by awrangzeb'
@@ -241,7 +241,7 @@ Citation = ''
 
 [[data]]
 "Index Day Gregorian" = '2016-04-02'
-"Gregorian date" = '1720-04-02'
+"Julian date" = '1720-04-12'
 name_sa = 'bAlAjI-vishvanAtho mRtaH'
 tithi = ''
 Incident = 'great peshva bAlAjI vishvanAth died.'
@@ -249,28 +249,28 @@ Citation = ''
 "Other notes" = ''
 
 [[data]]
-"Gregorian date" = '1737-04-28'
-name_sa = 'bAjI-rAvo dehalIm prAvishat'
+"Julian date" = '1737-03-28'
+name_sa = 'bAjI-rAvo dehalIm prApnot'
 tithi = ''
 Incident = '''
 One brother bAji rAv makes a dash to mogol Delhi, outmanoeuvring 2 armies; same day his younger bro chimAji appa readies to mount an attack on the Firangis.
-The Badshah at Delhi slept secure in the thought that the large armies of Sadat, Bangash & Khan Dauran to his south would protect him. Bajirao rode 200 km in just 4 days avoiding all those armies & gatecrashed Delhi.
+The Badshah at Delhi slept secure in the thought that the large armies of Sadat, Bangash & Khan Dauran to his south would protect him. From Gwalior area, Bajirao rode 200 km in just 4 days avoiding all those armies & gatecrashed Delhi. Then, he defeated a well trained Mughal Army led by Amir Khan Bahadur. 
 '''
 Citation = ''
 "Other notes" = ''
 
 [[data]]
 "Index Day Gregorian" = '2016-04-09'
-"Gregorian date" = '1669-04-09'
+"Julian date" = '1669-04-09'
 name_sa = 'avrangazebo hindukashAlAnAzam Adishat'
 tithi = ''
-Incident = 'Aurangzeb gave the order to demolish all schools & temples of the infidels & put down their religious practises'
+Incident = 'Shortly after the death of Mirza Raja Jai Singh of Amber, a general order was issued (9th April 1669) for the demolition of temples and established schools of the Hindus throughout the empire and banning public worship. Soon after this the great Temple of Keshava Rai was destroyed (Jan.-Feb. 1670) and in its place a lofty mosque was erected. The idols, the author of Maasir-i-Alamgiri informs, were carried to Agra and buried under the steps of the mosque built by Begum Sahiba in order to be continually trodden upon, and the name of Mathura was changed to Islamabad.'
 Citation = ''
 "Other notes" = ''
 
 [[data]]
 "Index Day Gregorian" = '2016-04-11'
-"Gregorian date" = '1673-04-11'
+"Julian date" = '1673-04-02'
 name_sa = 'parali-durgo jitaH svarAjyEna'
 tithi = ''
 Incident = ' Parali too was taken from Adil shAhi-s.'
@@ -279,27 +279,18 @@ Citation = ''
 
 [[data]]
 "Index Day Gregorian" = '2016-04-18'
-"Gregorian date" = '1674-04-18'
+"Julian date" = '1674-04-18'
 name_sa = 'shivarAjena hambIrarAvaM senAdhipaM cakAra'
 tithi = ''
-Incident = ' Chhatrapati Shivaji inspected his army at Chiplun. A new commander-in-chief had been identified. His name was Hansaji Mohite. But that day Shivaji titled him Hambirrao & history will remember him by that name: Hambirrao father of TaraBai'
+Incident = ' Chhatrapati Shivaji inspected his army at Chiplun. A new commander-in-chief had been identified. His name was Hansaji Mohite. But that day Shivaji titled him Sarnobat (Chief of Army) Hambirrao & history will remember him by that name: Hambirrao father of Tara Bai'
 Citation = ''
 "Other notes" = ''
 
-
-[[data]]
-"Index Day Gregorian" = '2016-04-26'
-"Gregorian date" = '1673-04-26'
-name_sa = 'pratAparAvo gurjara AdilashAhIyAn AkrAmati'
-tithi = ''
-Incident = ' Sarnobat Prataprao Gujar strikes deep inside Adilshahi territory, sacking Hubli & also destroying East India Company assets'
-Citation = ''
-"Other notes" = ''
 
 [[data]]
 "Index Day Gregorian" = '2016-04-30'
-"Gregorian date" = '1736-04-30'
-name_sa = 'marurAkSasasya siddi-sautasya vadhaH'
+"Julian date" = '1736-04-19'
+name_sa = 'marurAkShasasya siddi-sautasya vadhaH'
 tithi = ''
 Incident = '''On 19 April 1736 (julian) Chimaji Appa with Manaji Angre killed Siddi Saut in a battle at Kamarle in the Konkan. The Siddi had been cursed by BrahmendraSwami in 1726- 'you will be utterly destroyed', for attacking his Parshuram temple at Chiplun. Siddi Saut paid the price ten years later.'''
 Citation = ''
@@ -307,7 +298,7 @@ Citation = ''
 
 [[data]]
 "Index Day Gregorian" = '2016-05-09'
-"Gregorian date" = '1740-05-09'
+"Julian date" = '1740-04-28'
 name_sa = 'bAjI-rAvo mRtaH'
 tithi = 'vaishAkha s13, Raudra Sanvatsar, Saka era'
 Incident = 'bAji rAv 1 dead. '
@@ -316,7 +307,7 @@ Citation = ''
 
 [[data]]
 "Index Day Gregorian" = '2016-05-19'
-"Gregorian date" = '1540-05-09'
+"Julian date" = '1540-05-09'
 name_sa = 'pratApasiMho jAtaH'
 tithi = 'jyeShTha s3'
 Incident = 'Maharana Pratap Jayanti '
@@ -325,7 +316,7 @@ Citation = ''
 
 [[data]]
 "Index Day Gregorian" = '2016-05-19'
-"Gregorian date" = '19/5/1520'
+"Julian date" = '1520-05-19'
 name_sa = 'kRShNadevarAyasya rAyachUru-jayaH'
 tithi = ''
 Incident = 'kRShNadevarAya smashed the Jihad of the Army of Islam in a great victory at Raichur'
@@ -343,7 +334,7 @@ Citation = ''
 
 [[data]]
 "Index Day Gregorian" = '2016-05-24'
-"Gregorian date" = '1657-05-24'
+"Julian date" = '1657-05-14'
 name_sa = 'shambhurAjo jAtaH'
 tithi = 'jyeShTha s12'
 Incident = 'Sambhaji born'
@@ -352,7 +343,7 @@ Citation = ''
 
 [[data]]
 "Index Day Gregorian" = '2016-05-25'
-"Gregorian date" = ''
+"Gregorian date" = '1886-05-25'
 tithi = ''
 name_sa = 'rAsa-vihArI jAtaH'
 Incident = 'Rash bihArI bose born.'
@@ -379,7 +370,7 @@ Citation = ''
 
 [[data]]
 "Index Day Gregorian" = '2016-06-16'
-"Gregorian date" = '1674-06-16'
+"Julian date" = '1674-06-06'
 name_sa = 'shivarAjasyaindrAbhiSekaH'
 tithi = 'jyeShTha shukla 13'
 Incident = '''shivAji's aindrAbhiSheka.'''
@@ -430,7 +421,7 @@ Citation = ''
 
 [[data]]
 "Index Day Gregorian" = '2016-07-23'
-"Gregorian date" = '1660-07-23'
+"Julian date" = '1660-07-13'
 name_sa = 'bAji-prabhus siddi-masUdam aruNat'
 tithi = 'AshADha k1'
 Incident = ''' bAji prabhu deshpANDe leading ~300 men died holding back Adil-shAhi african general siddi masud's 10k soldiers in a narrow pass while shivAji leading his 300 escaped to vishAlgad fort (having earlier let his barber take his place while escaping from another beseiged fort) and announced his safe arrival with a cannon-fire. PS: vishAlgad was already under siege by Bijapuri sardars Suryarao Surve and Jaswantrao Dalvi. it's a thrilling tale, akin to tale of the spartans holding back the persians at the narrow pass at Thermopylae.'''
@@ -448,7 +439,7 @@ Citation = ''
 
 [[data]]
 "Index Day Gregorian" = '2016-07-30'
-"Gregorian date" = '1680-07-30'
+"Julian date" = '1680-07-20'
 name_sa = 'shambhu-paTTAbhiShekaH'
 tithi = 'shrAvaNa s5'
 Incident = ' Sambhaji ascended the throne'
@@ -478,7 +469,7 @@ Citation = ''
 
 [[data]]
 "Index Day Gregorian" = '2016-08-05'
-"Gregorian date" = '1509-07-26'
+"Julian date" = '1509-07-26'
 name_sa = 'kRShNadevarAya-paTTAbhiShekaH'
 tithi = 'kRShNAShTamI (bhAdrapada-kRShNa likely)'
 Incident = 'kRShNadevarAya coronated.'
@@ -488,7 +479,7 @@ https://twitter.com/i/moments/890055413374173186
 '''
 [[data]]
 "Index Day Gregorian" = '2016-08-15'
-"Gregorian date" = '1730-08-15'
+"Julian date" = '1730-08-04'
 name_sa = 'sadAshiva-rAvo jAtaH'
 tithi = ''
 Incident = 'sadAshivrAv bhAu, who died fighting at 30 in pAnipaT, was born.'
@@ -497,7 +488,7 @@ Citation = ''
 
 [[data]]
 "Index Day Gregorian" = '2016-08-18'
-"Gregorian date" = '1700-08-18'
+"Julian date" = '1700-08-18'
 name_sa = 'bAjI-rAvo jAtaH'
 tithi = ''
 Incident = 'bAjI rAv born'
@@ -506,7 +497,7 @@ Citation = ''
 
 [[data]]
 "Index Day Gregorian" = '2016-08-26'
-"Gregorian date" = '1666-08-26'
+"Julian date" = '1666-08-17'
 name_sa = 'Agra-bandhanAt palAyitaH shivarAjaH'
 tithi = 'shrAvaNa k12'
 Incident = 'Shivaji pulled off one of the greatest escapes in history from the jaws of death at Agra.'
@@ -519,7 +510,7 @@ Citation = 'https://en.m.wikipedia.org/wiki/Jedhe_Shakawali'
 "Gregorian date" = '1669-09-04'
 name_sa = 'kAshI-vishveshvara-mandira-nAshaH'
 tithi = ''
-Incident = 'Kashi Vishweshwar was pulled down. '
+Incident = 'Aurangzeb informed that Kashi Vishweshwar was pulled down. Maasiri-‘ Alamgiri, 88. Julian month August.'
 Citation = ''
 "Other notes" = ''
 
@@ -537,7 +528,7 @@ Citation = ''
 
 [[data]]
 "Index Day Gregorian" = '2016-10-03'
-"Gregorian date" = '1677-10-03'
+"Julian date" = '1677-10-03'
 name_sa = 'cennai-nagare shivarAjaH kAlikAm apUjayat'
 tithi = ''
 Incident = '''
@@ -567,9 +558,20 @@ Incident = '''
 Citation = ''
 "Other notes" = ''
 
+
 [[data]]
 "Index Day Gregorian" = '2016-10-17'
-"Gregorian date" = '1670-10-17'
+"Julian date" = '1670-10-03'
+name_sa = 'shivarAjo sUrata-nagaraM luNThati'
+tithi = ''
+Incident = ''
+Citation = ''
+"Other notes" = ''
+
+
+[[data]]
+"Index Day Gregorian" = '2016-10-17'
+"Julian date" = '1670-10-17'
 name_sa = 'shivarAjo diNDoryAM jayati'
 tithi = ''
 Incident = 'On this day was fought the fierce battle of Vani-Dindori where Shivaji led the Marathas to a great victory against the Mughals.'
@@ -588,7 +590,7 @@ Citation = ''
 
 [[data]]
 "Index Day Gregorian" = '2016-10-31'
-"Gregorian date" = ''
+"Gregorian date" = '1875-10-31'
 name_sa = 'sardAra-paTela-janmotsavaH'
 tithi = ''
 Incident = 'rAShTrIya-ekatA-divasa. Great unifier, iron man sardAr paTel was born.'
@@ -618,7 +620,7 @@ Citation = ''
 
 [[data]]
 "Index Day Gregorian" = '2016-11-20'
-"Gregorian date" = '1659-11-20'
+"Julian date" = '1659-11-10'
 tithi = ''
 name_sa = 'khAnodara-vidAraNam'
 Incident = '''Afzal Khan is killed in an epic encounter. Shivaji ordered Netoji Palkar to destroy Afzal's base at Wai the very same day & himself followed soon.'''
@@ -638,10 +640,10 @@ Omble joined the police as a constable in 1991 after retiring from the Indian Ar
 
 [[data]]
 "Index Day Gregorian" = '2016-12-03'
-"Gregorian date" = '1659-12-03'
+"Julian date" = '1659-11-23'
 tithi = ''
 Incident = ''
-name_sa = 'afzal-khAna-mRtyos 13 dinam'
+name_sa = 'afzal-khAna-vadhAt 13 dinam'
 Citation = ''
 "Other notes" = '''Day 13 (after Afzal's death): Supe, Tambe, Pali, Nerle, Kameri, Visapur, Save Uran, Koley are all taken.'''
 
