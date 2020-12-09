@@ -2,10 +2,20 @@
 title: Zoro empires
 ---
 
+## Early times
+> Iranian power in the world system arose somewhat later than ours. Although they were around in west Asia for sometime since 1000 BCE, they were not exactly a mighty force.
+
+> ... [I] hold that a branch of these steppe kuru-s re-emerged with another allied clan the kamboja much later on the Iranians side to form the elite of the hAkamAnashIya dynasty. - MT
+
 ## Hākamanshiya empire
-- "Although they were around in west Asia for sometime since 1000 BCE, they were not exactly a mighty force. But in the steppe-borderland there were still mighty clans of the Indo-Iranian continuum which had played a major role in the rise of Aryan power in India. Among them were the Kuru and Kamboja and it was perhaps in a confederation of such tribes that the Hākamanshiya arose. Their king the great Kurush (Cyrus), named after Kuru, established a great world empire stretching from the eastern reaches of Soghdiana to the western end of Asia Minor sometime between 600-530 BCE. He conquered in succession his Iranian cousins the Medians, the Lydians, who were relatives of the Hittites, and the Babylonians and their vassals, besieging and taking fortified strongholds one after the other like no one had ever before done in West Asia. Finally, while fighting the Śaka-Hindu alliance that was arrayed against him with their elephant force during his invasion of Śakastana, a Hindu spearman stabbed Kurush in the liver resulting in his death." \[[MT](https://manasataramgini.wordpress.com/2017/11/07/of-lives-of-men-of-times-of-men-i/)\]
-- "His son was Kambūjiya (Cambyses) named after the old Kamboja mentioned in our national epic. He led a great force for the conquest of Egypt, which was one of the last major powers left in the region that plainly refused to acknowledge the might of the Iranians.  … The Iranians then quickly took the fort and captured the pharaoh Psamtik. His life was initially spared but as he tried to revolt and regain his kingdom Kambūjiya killed him and even carved a seal depicting him spearing the pharaoh." \[[MT](https://manasataramgini.wordpress.com/2017/11/07/of-lives-of-men-of-times-of-men-i/)\]
-    - [![](https://i.imgur.com/lnTufx2.jpg)](https://i.imgur.com/lnTufx2.jpg)
+> Although they were around in west Asia for sometime since 1000 BCE, they were not exactly a mighty force. But in the steppe-borderland there were still mighty clans of the Indo-Iranian continuum which had played a major role in the rise of Aryan power in India. Among them were the Kuru and Kamboja and it was perhaps in a confederation of such tribes that the Hākamanshiya arose. Their king the great Kurush (Cyrus), named after Kuru, established a great world empire stretching from the eastern reaches of Soghdiana to the western end of Asia Minor sometime between 600-530 BCE. He conquered in succession his Iranian cousins the Medians, the Lydians, who were relatives of the Hittites, and the Babylonians and their vassals, besieging and taking fortified strongholds one after the other like no one had ever before done in West Asia. Finally, while fighting the Śaka-Hindu alliance that was arrayed against him with their elephant force during his invasion of Śakastana, a Hindu spearman stabbed Kurush in the liver resulting in his death. ...
+>
+> His son was Kambūjiya (Cambyses) named after the old Kamboja mentioned in our national epic. He led a great force for the conquest of Egypt, which was one of the last major powers left in the region that plainly refused to acknowledge the might of the Iranians.  … The Iranians then quickly took the fort and captured the pharaoh Psamtik. His life was initially spared but as he tried to revolt and regain his kingdom Kambūjiya killed him and even carved a seal depicting him spearing the pharaoh." 
+>
+> \[[MT](https://manasataramgini.wordpress.com/2017/11/07/of-lives-of-men-of-times-of-men-i/)\]
+
+{{< figure src="../persia/kAmbUjiya_killing_pharaoh.webp" title="" class="thumbnail">}}
+
 
 ## Parthian empire
 - The Seleucids were finally driven off the Iranian plateau by the Ashkanis (Parthians). They later even captured Bactria from Kushana-s. 
