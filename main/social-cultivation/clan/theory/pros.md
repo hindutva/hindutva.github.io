@@ -75,6 +75,11 @@ Via MT:
 >
 > ... In a sense, they were practical anthropologists who had at hand a problem of integrating the old Harappans into their own varṇa model. Hence, they were interested in their careful classification and suggesting anthropological theories (even if simplistic and cliched) for the multitude of jāti-s.
 
+### Limiting competition
+> Now, coming back to the second of these, the power-law, we can crudely state that the ‘rich get richer’. Thus, a lineage which is good at one thing tends to amass that trait in themselves. Hence, you are bound see inequality with a relatively small number who are really good at somethings and a large fraction being close to incapable. I can see why this can cause resentment in the have-nots. I think the way our tradition tried to resolve this is by specialization so that every group has something to be good at, thus limiting competition in a single track. When this system broke down under the assault of modernity we are seeing all these resentments bubble back. Hence, if at all we are going to find some means of mitigating it we need understand the force of these natural distributions rather than deny them. 
+>
+> - [MT](https://manasataramgini.wordpress.com/2017/12/06/of-lives-of-men-of-times-of-men-iii/)
+
 ## Ritual purity.
 - Some occupations were considered unclean and untouchable. Eg: Skinning dead animals, ferrying sewage. This violated popular notions of ritual purity in several paths of hindu self-cultivation.
 
