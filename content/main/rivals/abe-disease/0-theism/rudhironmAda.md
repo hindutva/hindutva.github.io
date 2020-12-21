@@ -28,6 +28,9 @@ title: Commies
 - In the old hard strain (ur1) - Dictatorship of the proletariat. Examples: Soviet state. Khmer Rouge. Naxals.
 - In newer strains (ur2) - Mixture with econolatory (see [main page](../) for intro). 
   - Examples: (Social Justice warriors) SJW-s of Soros who participated in 2020 US Race riots and more. Venus project. Urban naxals of India.
+- SJW
+  - "Being just a covert Abrahamism its primary feature is a victimhood theology that does not at all sit well with the heathen traditions like H. It comes from a negative place antithetical to the victory-seeking mind set of the Arya-s of yore. Rather than wishing one to be a jigIShu it makes one perpetually feel hInatvam."
+  - "Importantly, the current form of the new mlechCha religion encourages the opposite of merit. It might be even more difficult for the H than the mahAmlechCha to come of that rut." - MT
 
 ## Transmission structures
 - Like u2 it needs a church-nurse (\~ university) and assorted कुटिल-लम्पट-दुष्टाः are playing this role.
@@ -48,7 +51,7 @@ People are oft coerced into following the rudhironmAdas because - they don't wan
 - "While it briefly infected the Cīna-s, what people do not get is that it was domesticated to the ultimate advantage of the Cīna-s as it encountered an even more potent endogenous coopter in the form Wei Yang Lord Shang’s legalism. Thus, the old strain was mostly a failure."
 
 ### Outbreaks in western academia 
-- "However, a lineage of it survived in mleccha academia where it was incubated in the Ivy League soft departments and their more pedestrian arborizations as a local disease, much like a virus jumping from animal to animal in a Cīna “wet-market”." - [MT](https://manasataramgini.wordpress.com/2020/06/08/pandemic-days-the-fizz-is-out-of-the-bottle/)
+> - "However, a lineage of it survived in mleccha academia where it was incubated in the Ivy League soft departments and their more pedestrian arborizations as a local disease, much like a virus jumping from animal to animal in a Cīna “wet-market”." - [MT](https://manasataramgini.wordpress.com/2020/06/08/pandemic-days-the-fizz-is-out-of-the-bottle/)
 - "Like SARS-1 it has had localized outbreaks and was mostly used a weapon by mleccha-s against others like the Hindus — e.g. to reinvigorate the Naxals in the form of their urban variant (“the urban Naxals” as a Bollywood producer terms it). " - [MT](https://manasataramgini.wordpress.com/2020/06/08/pandemic-days-the-fizz-is-out-of-the-bottle/)
 - "Its local outbreaks were mostly seen in the mleccha academia and news media. A few years ago we heard of a left-leaning professor couple being forced out of a mleccha liberal arts college by a particularly sustained outbreak of this disease. Some other, otherwise rather neutral and harmless, mleccha physicians/professors were also seriously targeted but being part of the Ivy elite themselves they suffered little from the attacks. Similarly, there was a mlecchikā who used to originally think of the rākṣasonmāda as a great blessing on humanity. "
 - "Thus, those who were observant and discerning knew that this extremely dangerous mānasika-ruj was just waiting to jump out into the wider population like a viral pandemic." - [MT](https://manasataramgini.wordpress.com/2020/06/08/pandemic-days-the-fizz-is-out-of-the-bottle/)
