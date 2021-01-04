@@ -5,7 +5,7 @@ title: Anti-science
 ## Problems with Science
 
 - Medieval History
-    - The renaissance spirit owes a lot to the pagan revivalist Plethon (more [here](../../../../paganology/mediterranian/fall_of_paganism/)), whose school was unfortunately subverted.
+    - The renaissance spirit owes a lot to the pagan revivalist Plethon, whose school was unfortunately subverted.
     - In the Middle Ages, the view that the Book of Nature and the Book of Scripture must be harmonious (because they have the same "author") led to non-literal interpretations of scripture to conform to empirical data. \[??\]
         - William of Conch (1100-1154) said: "Since the same earth, water and heat continue to exist today, there is no natural reason why new human races are not produced naturally from their interaction. Since we have never seen this happen, there must be some divine prohibition against it." This is an astounding example from medieval times by a Christian theologian who invokes God not to create living things but to prevent them from naturally getting created." 
     - The chruch famously opposed novel scientific ideas of Copernicus and Galelio (whom it forced to recant). We have also seen a 100 year long rejection of the principle of natural selection. Some even opposed the printing press ([IMG](http://i.imgur.com/HwXHBXK.jpg)) and mathematics ([TW](https://twitter.com/pickover/status/769911258699145216))!

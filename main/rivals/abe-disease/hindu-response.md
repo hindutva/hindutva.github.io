@@ -99,7 +99,7 @@ The internet has allowed people to connect with people who care about the dharma
 ## Solidarity with other pagans/ polytheists.
 
 - During the Yazidi massacre: Ravishankar gave aid.
-- Assistance to Heraka of Nagaland : [see here](../../../../paganology/para-hindus/zeme-heraka/).
+- Assistance to Heraka of Nagaland.
 
 ## Temple Reconstruction
 Whenever hindu kings regained dominion, they restored or built fresh new temples the turuShkAs destroyed. Eg: somanAtha temple was rebuilt repeatedly, the vishvanAtha temple in kAshi (by the rAjaputra prince. then by ahilyAbAi, with gold added by raNajIt singh).

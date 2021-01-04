@@ -15,7 +15,7 @@ The Sachar committee report cites projections (See page 45 \[or 65\] of [this](h
 
 ## Demographic reversals elsewhere
 
-- Ancient Greek and Roman examples dealt with [here](../../../../paganology/mediterranian/).
+- Ancient Greek and Roman examples dealt with elsewhere.
 - Goa
 - Annexation of sikkim
 - Lebanon: "By 1970, the Christians had landed themselves in a declining fertility rate of 4 children per woman, while the Muslims maintained a steady fertility rate of 6 children per woman. The result was that between 1965 and 1970 Lebanon became a Muslim majority country during a raging civil war. In the ensuing bloodbath and mayhem nearly five million Christians out-migrated within 2-3 years."\[[IT15](http://indiatomorrow.co/nation/3778-fudging-of-census-data-continues-while-the-bjp-slumbers)\]

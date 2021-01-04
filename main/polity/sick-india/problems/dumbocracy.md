@@ -26,7 +26,7 @@ Here we examine problems of democracy and briefly consider alternative systems o
 ## Alternatives
 - Plato argues that only Kallipolis, an aristocracy led by the unwilling philosopher-kings (the wisest men), is a just form of government.
 - Mysore kingdom under the Wodeyars and their chief ministers (divAns) was one of the best administered states in the world. The chief minister was chosen based on merit from the administrative and engineering services, for a limited term. They tended to be highly effective, sincere, and incorruptible rulers. They were supported by an elected "prajA-pratinidhi-sabhA", who could only make suggestions to the chief minister who could dispense with the recommendations as he thought fit. The state of Karnataka which succeeded it pales in comparison.
-- Consensus-based (rather than election-based) appointments, successions and leadership choices lead to more harmonious outcomes and organizations which whole-heartedly pivot when necessary. Eg. Japanese companies [hbr article](https://hbr.org/1971/03/what-we-can-learn-from-japanese-management), [japanology page](../../../../../paganology/japan/economy/management.md).
+- Consensus-based (rather than election-based) appointments, successions and leadership choices lead to more harmonious outcomes and organizations which whole-heartedly pivot when necessary. Eg. Japanese companies [hbr article](https://hbr.org/1971/03/what-we-can-learn-from-japanese-management), japanology pages.
 - See varNavatI [here](../../../../social-cultivation/clan/theory/fiction/varnavatii/).
 
 ### Rigged democracies
