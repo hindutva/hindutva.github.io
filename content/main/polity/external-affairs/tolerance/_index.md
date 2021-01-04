@@ -66,4 +66,4 @@ Anything intolerant to our tolerant hindu structure should not be tolerated, if 
 ### Buddhist intolerance
 - sthaviravAdin-s: "We have accounts that they burned vajrayANa tantra-s and demolished images of heruka-s such as hevajra at gaya. .. attack on hingula.." \[[MT16](https://manasataramgini.wordpress.com/2013/05/13/a-record-of-the-nastika-attack-on-hingula/), [TW16](https://twitter.com/blog_supplement/status/743618693574332416)\]
 - Nagarjunakonda (Andhra) relief of Virapurushaddata (c.230-260) denouncing Brahmanism by stomping on a Shiva linga & Naga serpent - \[[IMG](../../../../images/art-scenes/bauddha-stomping-linga-nAga.jpg)\]
-- See tangut example [here](../../../../paganology/steppe/tangut.md).
+- See tangut example elsewhere.

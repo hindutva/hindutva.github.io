@@ -8,7 +8,7 @@ title: Fightback
 
 ## Successful fightback
 
-- Japan: see [here](../../../../paganology/japan/intro/).
+- Japan.
 - 21st century China:
     - Mega church demolition [TOI](http://timesofindia.indiatimes.com/world/china/85000-square-foot-Church-demolished-in-China/articleshow/34597236.cms).
     - Chinese theology takeover [TOI](http://timesofindia.indiatimes.com/world/china/Now-made-in-China-Christian-theology/articleshow/39980313.cms).

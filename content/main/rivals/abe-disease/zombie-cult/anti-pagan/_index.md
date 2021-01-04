@@ -8,7 +8,7 @@ title: Anti-pagan
     - chommorro of phillipines \[[TW17](https://i.imgur.com/36gv9ul.jpg)\]
 - Forced conversions
     - South Korea 2018 [PP](https://www.news24.com/SouthAfrica/Local/Peoples-Post/protest-against-forced-conversions-20180205).
-- Ganging up against pagan states: Japanese pre-WW2 example [see here](../../../../paganology/japan/geopolitics/anti-leukosphere/).
+- Ganging up against pagan states: Japanese pre-WW2 example.
 
 ## Doctrine of "discovery"
 Doctrine of "discovery" - appropriation of non-christian territory.

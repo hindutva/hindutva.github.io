@@ -13,4 +13,4 @@ title: Ingestion
 - "I'd go as far as to say that only sometime around the 1970s a generation was born that started revisiting its roots more serious & Hinduizing in a more basic sense. Still this movement is not complete as not all starting from that generation onwards made a complete H transition and in many cases the transition was derailed or went astray due to the lack of proper information regarding their roots."
 
 ## Contrasts
-- Contrast with [China](../../../paganology/china/) and [Japan](../../../paganology/japan/)
+- Contrast with China and Japan

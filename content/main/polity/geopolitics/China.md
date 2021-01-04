@@ -5,7 +5,6 @@ title: China
 
 ## Current status
 - Territorial aggression by mainland China is being opposed by a good coalition of neighbors - India, Japan, Taiwan, Vietnam, Korea, Mongolia, Russia.
-- More background [here](../../../paganology/china/).
 
 ## Recent history
 - "The Han civilization was largely demolished by the cunning mlechCha-s, followed by a stern cut from the samurai’s blade. However, the mlechCha-s in their conquest of Japan ended up giving the chIna-s a new leash of life. The chIna-s not being the type that easily passes up an opportunity took the chance to resurrect their power and display their belligerence ever since."
