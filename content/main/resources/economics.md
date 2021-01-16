@@ -1,3 +1,4 @@
+
 ---
 title: Economics
 ---
@@ -17,7 +18,7 @@ zamIndAri system by the British and Mogols impoverished people.
 
 ### Loss of gross national wealth: reasons
 
-During 1-1000 AD, India topped the world with more than 50% of the world's GDP and China stood second. Between 1500-1700, China overtook pushing India to second position. In 1700, again India was the topper. 1750 it was China again. Then the British came. By 1800 India's GDP share was 20%, 1830 17%, 1880 8% and in 1900 1.7%. \[[Economist link](http://www.economist.com/node/16834943).\]  
+During 1-1000 AD, India topped the world with more than 50% of the world's GDP and China stood second. Between 1500-1700, China overtook pushing India to second position. In 1700, again India was the topper. 1750 it was China again. Then the British came. By 1800 India's GDP share was 20%, 1830 17%, 1880 8% and in 1900 1.7%. \[[Economist link](http://www.economist.com/node/16834943) .\]  
 
 Neither the dharma nor the industrial revolution were the major causes here.
 
