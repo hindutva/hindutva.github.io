@@ -3,7 +3,7 @@ title = "Drives"
 
 +++
 ## Disdain for "failure" hindu
-- Sikhism has latent abrahamist tendencies. In a way, it is proto-islamophile-secularism. Same with many baba-isms. See anti-hindu patterns for details.
+- Sikhism has latent abrahamist tendencies. In a way, it is proto-islamophile-secularism. Same with many baba-isms. See [anti-hindu patterns page](../Anti-hindu_patterns/) for details.
 
 ## mIri-pIri  
 - It aimed to rearm hindus (spiritually and materially) during oppressive Mughal muslim times by emphasizing (even by "democratizing") kShatra. In a sense, they revived the Steppe warrior ethos - albeit in a limited sense (lacking in sophistication, and with many unArya tendencies).
