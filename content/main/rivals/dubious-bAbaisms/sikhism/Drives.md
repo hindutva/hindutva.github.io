@@ -15,7 +15,7 @@ title = "Drives"
 
 ## Regression in brAhma
 - Even as they progressed on kShatra, they regressed in brAhma prowess.
-- The general phenomenon of all varNas taking to arms in times of distress was over-emphasized, leading to the absence of a purely ritualist-scholarly-conservative brAhmaNa class; which was a major successful innovation in Indo Iranian and related pagan streams.
+- The general phenomenon of all varNas taking to arms in times of distress was over-emphasized, leading to the absence of a purely ritualist-scholarly-conservative brAhmaNa class; which was a major successful innovation in Indo Iranian and related pagan streams. This was slightly mitigated by orders such as udAsi-s before AkAli dominance.
 - Due to anti-hindu tendencies, despite half-hearted borrowing and adaptation, they were unable to take full benefit of strong and vibrant prior hindu tradition (esp vedas, vedAngas including nyAya and mImAMsA, Agams, tantras).
 - This regression impeded their analysis, understanding and expression of concepts they themselves strongly accepted and rejected, such as:
   - Natural social structure
