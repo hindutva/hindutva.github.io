@@ -4,39 +4,6 @@
 
 title: Hindutvam
 contents:
-  - title: Hinduism
-    contents:
-      - url: recdir://main/
-  - title: प्रमाणानि Bases
-    contents:
-      - url: recdir://main/bases/
-  - title: Suchness तत्त्वम्
-    contents:
-      - url: recdir://main/tattvam/
-  - title: Self-cultivation संस्काराः
-    contents:
-      - url: recdir://main/self-cultivation/
-  - title: Social cultivation
-    contents:
-      - url: recdir://main/social-cultivation/
-  - title: अर्थः Resources
-    contents:
-      - url: recdir://main/resources/
-  - title: Rivals वैरिणः
-    contents:
-      - url: recdir://main/rivals/
-  - title: Polity राजनीतिः
-    contents:
-      - url: recdir://main/polity/
-  - title: History इतिहासः
-    contents:
-      - url: recdir://main/history/
-  - title: Books ग्रन्थाः
-    contents:
-      - url: recdir://main/books/
-  - title: Paganology
-    url: /paganology/
-  - title: Home
-    url: /
+  - url: recdir://
 #  - title: <i class="fas fa-hand-holding-heart"></i>Donate!
 #    url: /dharma-via-hindutva/
