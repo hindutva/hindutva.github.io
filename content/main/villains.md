@@ -21,8 +21,10 @@ who outlawed the practice of the dharma - even in private - in dilli.
 
 ## Syed Ali bin Shahab-ud-Din Hamadani Abidi
 also known as Amir-I-Kabir or Ali-I-Sani, the Suhrawardi→ Kubrawi order sufi who ensured the success of the islamic contagion in kAshmIra cleverly (anti-hindu edicts [1](../../../images/snippets/hamdAni-edicts.png)).
+
 ## Rinchan aka sadruddin
 the Tibetan usurper and iconoclast (constructed “Bud Masheed”, on the site of a Buddhist temple) who took to Islam.
+
 ## sikandar bhUt-shikAn
 [sikandar bhUt-shikAn](http://en.wikipedia.org/wiki/Sikandar_Butshikan), as his title suggests, the idol-breaker sultAn of kAshmIr, who fuelled with the mad zeal of the sUfi-s, also delighted in burning critical books, giving the usual convert-or-die choice to hindu-s, who banned music and festivity. A true exemplar of "kAshmIriyat".  
 
@@ -36,8 +38,10 @@ formerly ferocious oriya general rAjIv lochan ray who converted to islam because
 ## awrangzib
 [awrangzib](http://en.wikipedia.org/wiki/Aurangzeb), [impozer](http://www.aurangzeb.info/) of jizya, destroyer of temples (बिन्दु-माधव [ट्१](../../../images/snippets/awrangzeb-bindu-mAdhav-edict.jpg)).
 ## TIpu sultAn
-named after sufi fuckeer dIpu mastAn auliya, who pillaged and converted people at sword point in kEraLa. \[Sandeep [Dec 2014](http://www.dailyo.in/opinion/why-tipu-sultan-was-a-false-hero/story/1/1278.html).\]
-  - He had 3 wives, and an unverifiable number of concubines. Each wife/concubine on an average had  children 2-3 children. The concubines included: sisters of Vira Raja of Coorg, who were childless and were recovered by him; daughter of "kAlA" paNDit bishnopant of Nargund, a relative of pUrNayya. Their later fate in vellore (6 years) and kolkota (150 yrs, 12 sons, 3 daughters, retinue of 300 initially) - [FB](https://www.facebook.com/1243378402394524/posts/3181115768620768/). 
+- named after sufi fuckeer dIpu mastAn auliya
+- pillaged and converted people at sword point in kEraLa. \[Sandeep [Dec 2014](http://www.dailyo.in/opinion/why-tipu-sultan-was-a-false-hero/story/1/1278.html).\]
+- He had 3 wives, and an unverifiable number of concubines. Each wife/concubine on an average had  children 2-3 children. The concubines included: sisters of Vira Raja of Coorg, who were childless and were recovered by him; daughter of "kAlA" paNDit bishnopant of Nargund, a relative of pUrNayya. Their later fate in vellore (6 years) and kolkota (150 yrs, 12 sons, 3 daughters, retinue of 300 initially) - [FB](https://www.facebook.com/1243378402394524/posts/3181115768620768/). 
+
 ## daud sayed gilAni aka David Coleman Headley
 opportunistic and ideologically motivated spy for lashkar-e-tayyaba and ISI, US-double agent, who [cased out](http://video.pbs.org/video/2169905444) locations for the Dec 2008 mumbai attacks.  
 
@@ -75,7 +79,7 @@ who was conferred the title Raja Ghorpade Bahadur (Dakkani word for the Varanus 
 power-hungry wife of raghunAth rAv, murdress.
 ### murAri rao
 servant of the Qutub Shahi, who stole the Ahobilam idol
-- paTTavardhana who stole the hiNDi of tirupati
+- paTTavardhana who stole the huNDi of tirupati
 - lamaans (a caste dealing with grain) under Raghunath rao ‘dada’ Kurundwadkar (brother of parashurAma-bhau) who looted shRngagiri during the time of Tippu sultAn (marATha-s made amends later). ([SW15](http://swarajyamag.com/culture/what-exactly-happened-at-sringeri-math-in-april-1791/))
 
 ## Hindu charlatans
