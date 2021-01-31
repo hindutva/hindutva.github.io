@@ -19,3 +19,4 @@ title = "Texts"
 
 ## Acceptance
 - hard core khAlistanis who don't even accept dahsam granth.
+- Some problem shabads in the granth sahib come from Kabir.
