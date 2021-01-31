@@ -85,7 +85,9 @@ Certain ‘sects’ attempt to gain control & influence the direction of the san
 
 ### Nihangs
 #### Practices
+- Nihang groups consume cannabis or shaheedi degh (ਭੰਗ).
 - Some Nihangs don’t even lie down - they snooze in sitting posture.
+- Highly war-like.
 
 #### Influence
 > Nihangs are slowly becoming a ‘fashion’, esp among expats. I suspect partly this is because Nihangs do Jhatka and also imbibe Bhang - so those Sikh youth who don’t think meat or bhang are a problem, gravitate there.
