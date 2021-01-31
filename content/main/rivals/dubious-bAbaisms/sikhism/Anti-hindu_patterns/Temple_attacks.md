@@ -2,7 +2,9 @@
 title = "Temple attacks"
 
 +++
-Below info is from the bhAradvAja on twitter.
+Much of the below info is from the bhAradvAja on twitter.
+
+- [W2](https://en.wikipedia.org/wiki/Idolatry_in_Sikhism#Smiting_of_the_nose_of_Durga.27s_idol)
 
 ## durgiAna amRtsar
 Durgiana Mandir is one of the oldest temples of Amritsar. According to the regional Hindu tradition, the temple was built on the spot where Lava and Kusha bound Hanuman. The temple annually attracts millions of Hindus from all over the country. Amristsar has a very ancient Hindu history. According to the regional Hindu tradition recorded in the "Survey of Amritsar", Amritsar got its name from Amrit immersed by Lava and Kusha in a pond.
