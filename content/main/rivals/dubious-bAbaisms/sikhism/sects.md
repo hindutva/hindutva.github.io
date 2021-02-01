@@ -22,7 +22,7 @@ Certain ‘sects’ attempt to gain control & influence the direction of the san
 - Rejects polytheism, idol and avatar worship, temple offerings, pilgrimages, the widow remarriage prohibition, child marriage, sati, and the priestcraft of Brahmins.
 - Naam Japna or Naam Simran
 
-##### Rehat maryAda
+##### rahit/ Rehat maryAda
 - Monotheism.
 - Follow only the Guru Granth Sahib and the ten human Gurus
 - Practice Amrit Sanchar
@@ -49,7 +49,8 @@ Certain ‘sects’ attempt to gain control & influence the direction of the san
 - Strict vegetarians.
 
 ### Taksalis
-- Damdami Taksal generated Jarnail Singh Bhinderawale. 
+- Taksal = scripture school. Damdami Taksal generated Jarnail Singh Bhinderawale. 
+- Taksali Sikhi (militant, vegetarian, Pauranik).
 
 ## 3HO movement (Healthy Happy Holy Organization)
 - Founded in the United States in 1971 by Harbhajan Singh, who was always known as Yogi Bhajan.
@@ -88,6 +89,7 @@ Certain ‘sects’ attempt to gain control & influence the direction of the san
 - Nihang groups consume cannabis or shaheedi degh (ਭੰਗ).
 - Some Nihangs don’t even lie down - they snooze in sitting posture.
 - Highly war-like.
+- Nihangs foregather in their hundreds at Anandpur, on the occasion of the festival of Hola Mohalla and display their martial skills.
 
 #### Influence
 > Nihangs are slowly becoming a ‘fashion’, esp among expats. I suspect partly this is because Nihangs do Jhatka and also imbibe Bhang - so those Sikh youth who don’t think meat or bhang are a problem, gravitate there.
