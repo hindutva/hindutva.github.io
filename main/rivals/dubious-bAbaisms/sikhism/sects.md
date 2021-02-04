@@ -85,11 +85,18 @@ Certain ‘sects’ attempt to gain control & influence the direction of the san
 - Many schisms
 
 ### Nihangs
+#### Pro-hindu
+- tat-khAlsa who set rehits also reject Dasam Granth. In one documentary on Nihangs, an adhikari was asked about why Nihangs don’t follow the SGPC high priest diktats on rehits and ideology and his holiness said - “Do those sons of bitches not see that Dasam Granth passages dorm part of daily Nitnem (nitya-niyama)?” 😂
+- The famous niDar singh nihAng of sanAtan shastar vidyA \[[SV16](http://www.shastarvidiya.org/articles/misunderstandings.html)\] is very pro-hindu. UK Khalis managed to use his self-advertising in the West as “the last Nihang” to earn him a harsh reprimand from Nihang akhadas in Punjab (as [here](https://www.youtube.com/watch?v=AaifBy2I1Eo)).
+
 #### Practices
 - Nihang groups consume cannabis or shaheedi degh (ਭੰਗ).
 - Some Nihangs don’t even lie down - they snooze in sitting posture.
 - Highly war-like.
 - Nihangs foregather in their hundreds at Anandpur, on the occasion of the festival of Hola Mohalla and display their martial skills.
+
+#### Organization
+- As Baba Santa Singh passed away in 2007, two claimants to Buddha Dal leadership emerged in India. This resulted in bloodshed.
 
 #### Influence
 > Nihangs are slowly becoming a ‘fashion’, esp among expats. I suspect partly this is because Nihangs do Jhatka and also imbibe Bhang - so those Sikh youth who don’t think meat or bhang are a problem, gravitate there.

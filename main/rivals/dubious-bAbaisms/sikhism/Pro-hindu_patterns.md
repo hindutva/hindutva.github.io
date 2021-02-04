@@ -2,11 +2,8 @@
 title = "Pro-hindu patterns"
 
 +++
-## Better orders
-- Exceptional orders, which need to be promoted at the expense of khAlistAni akAli subversive traitors.
+## In texts
 - arjun-deva, 5th in line after nAnaka, was pro-veda and pro-smRti. Arjan dev's shabads form the bulk of granth sahib.
-- udAsi-s who controlled gurudvAra-s before AkAli takeover in 1920-s.
-- sanAtan shastar vidyA \[[SV16](http://www.shastarvidiya.org/articles/misunderstandings.html)\]
 
 ## Limited defence
 - Shikhs are falsely protrayed as a sword arm of hinduism. This exaggerates their relatively minor role relative to, say, the marATha-s; and underplays the real strong hindu influences on the later Sikh elite (like ranjit singh).
