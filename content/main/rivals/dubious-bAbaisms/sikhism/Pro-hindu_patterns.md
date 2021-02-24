@@ -13,7 +13,7 @@ title = "Pro-hindu patterns"
 ### Tegh BahAdur
 Guru Tegh Bahadur visited the holy Triveni at Prayaga in 1662 CE. This visit is documented in contemporary Bhat Vahi records. Unlike those unpublished "bhat vahis", this one was published by Sikh historian Madanjit Kaur (1978). This Bhat Vahi was signed by Guru Tegh Bahadur.
 
-The content o f the letter is particularly striking.
+The content of the letter is particularly striking.
 
 - Guru Tegh Bahadur calls himself a devotee of Naina Devi. Note. A devotee of Naina Devi. He does not mention Akal Purakh or Waheguru
 - In the record, Guru Tegh Bahadur identifies himself as Sodhi Khatri by Varna and Kaushish by gotra. This is exactly how the followers of orthodox Hinduism identify themselves to this date!
