@@ -70,3 +70,13 @@ A nation imbued with a strong national spirit and cult is a strong nation, one w
 - Poor background - Secularists and anti-nationalists oft come from a secular background deprived of a pagan national setup - as such they are more driven by prejudices and lack of imagination than solid experience.
 - *Lack of sympathy and loyalty* towards the interest of fellow pagans.  
 
+## Weapons
+### India
+Indian Penal Code sections which have been applied against Hindus critical of their rivals.
+
+- 153(a) (wanton vilification or attacks upon the religion)
+- 153(b) (Imputations, assertions prejudicial to national-integration)
+- 504 (Whoever intentionally insults, and thereby gives provocation to any person, intending or knowing it to be likely that such provocation will cause him to break the public peace, or to commit any other offence)
+- 506(2) (criminal intimidation)
+- 147 (rioting), 148 (Rioting, armed with deadly weapon)
+- 149 (unlawful assembly)
