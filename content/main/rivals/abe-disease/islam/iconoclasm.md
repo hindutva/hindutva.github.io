@@ -26,12 +26,15 @@ title: Iconoclasm
 - mahmUd of ghazni's attacks on somanath
 - sikandar bhut-shikAn in kAshmira
 - kAlA-pahAD in orissa
-- awrangzeb: several cases; especially kAshi vishvanAtha temple, somanAtha temple, Keshav Rai temple of mathura (idols were brought to Agra and layed under the steps of Jahanara's mosque), temples in Someshwar and Udaipur.
 - Numerous mosques clearly show evidence of being built upon or using material from Hindu temples.
     - Quwwat-ul-Islam_Mosque near Qutb Minar \[[Wiki](https://en.wikipedia.org/wiki/Qutb_complex#Quwwat-ul-Islam_Mosque)\].
 - TSP:
     - Multan/ Kaffirkot ([MT1](https://paper.li/vAsukeya/1414422064#!photos), [TW1](https://twitter.com/blog_supplement/status/581327521272197120))
     - Surviving temples : [SW1](http://swarajyamag.com/magazine/faith-under-a-shadow/).
+
+#### awrangzeb
+- several notable cases; especially kAshi vishvanAtha temple, somanAtha temple, Keshav Rai temple of mathura (idols were brought to Agra and layed under the steps of Jahanara's mosque), temples in Someshwar and Udaipur.
+- awrangzeb was heavily restrained during the initial years of his reign. As soon as his top general jai singh of amber died (likely due to poisoning), he let loose his Islamic (="peaceful") reign; involving reintroduction of jaziya and a big series of temple destructions. copies of original firmans at [Fact museum](https://www.factmuseum.com/aurangzeb-as-he-was-according-to-mughal-records/).
 
 ### Southern jihads:
 - Ruins of Hampi, Halebid.
