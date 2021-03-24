@@ -1,6 +1,6 @@
 +++
 title = "+Anti-hindu patterns"
-
+  
 +++
 Many sardaars show traits typical of secularists - on the surface turned their backs on mosaic religion, while retaining the same disdain for heathens and their practices. This likely has its roots in the perceived failure and abject subservient state of hindus during mogol times in the panchanada area. 
 
