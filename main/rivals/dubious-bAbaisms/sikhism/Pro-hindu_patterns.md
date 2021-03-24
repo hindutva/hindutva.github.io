@@ -45,5 +45,11 @@ Sources used:
 ## Limited defence
 - Shikhs are falsely protrayed as a sword arm of hinduism. This exaggerates their relatively minor role relative to, say, the marATha-s; and underplays the real strong hindu influences on the later Sikh elite (like ranjit singh).
 
+### Saving kAshmIri paNDits myth
+- The earliest record of Teg Bahadur's execution says he was, in partnership with a man Hafiz Adam (follower of Sirhindi) PLUNDERING parts of PUnjab, for which he was caught and executed. The fiction of Kashmiri Hindus appears first in stories after 1850. [PY](https://pragyata.com/the-earliest-historical-account-of-teg-bahadurs-end-and-later-narratives/)
+
 ### Govinda-siMha
 > "Among other things, Govind assures Aurangzeb that he is just as much an idol-breaker as the Padeshah himself: “I am the destroyer of turbulent hillmen, since they are idolators and I am the breaker of idols.” Aurangzeb was sufficiently pleased with the correspondence (possibly several letters) he received from the Guru, for he ordered Wazir Khan not to trouble Govind any longer. ... So far, it is hard to see where the Sikhs have acted as the sword-arm of Hinduism against Islam. If secularism means staying on reasonable terms with both Hindus and Muslims, we could concede that the Gurus generally did steer a “secular” course. Not that this is shameful: in the circumstances, taking on the Moghul Empire would have been suicidal." \[[KE](http://koenraadelst.blogspot.com/2011/12/guru-tegh-bahadurs-martyrdom.html)11\]
+
+#### Mogol service
+> As is well known, Govind Singh wrote many letters to Aurangzeb asking to meet. However as he was on his way to Deccan, Aurang died (1707AD). Govind then continued, and joined the (2nd) successor of Aurang: Mughal Emperor Bahadur Shah. He received a small rank in the Mughal army, commensurate with leader of merely 200 soldiers (junior platoon leader level rank). Sikhs even earlier were in habit of giving highly exaggerated accounts of him, which were politely laughed at by serious British historians. He finally died, still in Mughal service and employment, at this low rank of platoon leader etc. But here is something: when he died, he was VERY RICH! His wealth is noted by emperor.
