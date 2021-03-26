@@ -1,5 +1,5 @@
 ---
-title: Commies
+title: Oppressive system fetish
 ---
 
 ## Traits
