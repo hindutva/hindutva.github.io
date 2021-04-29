@@ -42,6 +42,9 @@ Examples:
 - NYT - [NL15](http://www.newslaundry.com/2015/10/03/does-the-new-york-times-have-an-india-problem/).
 - Wikipedia - See separate page.
 
+## History
+- Hinduphobia has a long history in US newspapers - Vishal Ganeshan at Hinduphobia conference 2021 - [YT](https://www.youtube.com/watch?v=EjGV_hQ4nKM&list=PLBeANoI-yc25dtdF1G0h2Vt4IKrQt7VRZ&index=8).
+
 ## Utility
 ### Not good for?
 - Facts
