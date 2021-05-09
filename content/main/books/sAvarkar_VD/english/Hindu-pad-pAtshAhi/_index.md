@@ -1,4 +1,0 @@
-+++
-title = "+Hindu Pad-Padashahi"
-
-+++

@@ -1,4 +1,0 @@
-+++
-title = "+lectures and discourses"
-
-+++
