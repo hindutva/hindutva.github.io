@@ -117,3 +117,4 @@ ham̐saḥ śuciṣadvasurāntarikśasaddhotā vediṣadatithirduroṇasat ।
 nṛṣadvarasadṛtasadvyomasadabjā gojā ṛtajā adrijā ṛtaṃ bṛhat ॥”
 
 As a mover, he dwells in the heavens; as a pervader, he is in interspace; as fire, in the altar; as guest, in a house; he dwells in man, dwells in the betters, dwells in truth and dwells in the âkâśa. He is all that is born in water, all that is born of earth, all that is born of sacrifices and all that is born of mountains; indeed he alone is true and great!
+
