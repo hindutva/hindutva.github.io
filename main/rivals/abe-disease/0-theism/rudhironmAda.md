@@ -6,17 +6,26 @@ title: Oppressive system fetish
 - For traits common with other Abe 0-theist maturations, see [main page](../).
 
 ### Change in perception of reality
+#### Grievance focus
 - Focus on "grievance studies". See [J Lindsay 20](https://www.youtube.com/watch?v=DdlNIJB9ZVU). They seek to warp the perception of reality in terms of oppressors and oppressed.
+- The can spin a favored oppression angle in any situation. Example - "White man and Black man walk to a tailor shop. Attend to white person first? Racist. Attend to black person first? Racist because you want to get rid of him."
 - Rooted in marxist concept of "conflict theory" of fundamental conflict between classes. Could be bourgeoisie vs proletariat or white vs black lives, male patriarchy vs women, hetero-normative straight culture vs sexual minorities.
-- This involves some rejection of science (eg. "scientific racism") and even undermining mathematics. There was a movement in 2020 which sought to argue that 2+2=5 based on various nuances/ suppositions such as 2.3+2.4=2.7; two fowl produce a chick etc. - which was actually an attempt to shock, confuse and browbeat into believing that they are stupid and should respect "critical theory" and the like.  
+
+#### Intersectionality, deconstruction
 - Post-modernists want to tear everything apart. "Critical theory" people want to "deconstruct" everything (gender, race etc..) - except "systemic oppressed vs oppressor" (said to be very real).
 - The look at "systems of power" and deny agency to individuals - so revolutionary rioters and the "oppressors" are not actually responsible for their actions. But agency comes in when doing as their "theory" says.
 - With "intersectionality", you look at all the opperssion classes/ identities one might have - then pare it down to a small group (but never to an individual, because he does not have agency). With "positionality", they measure your position in relation to system of power.
-- The can spin a favored oppression angle in any situation. Example - "White man and Black man walk to a tailor shop. Attend to white person first? Racist. Attend to black person first? Racist because you want to get rid of him."
+
+#### Unscientific beliefs
+- This involves some rejection of science (eg. "scientific racism") and even undermining mathematics. There was a movement in 2020 which sought to argue that 2+2=5 based on various nuances/ suppositions such as 2.3+2.4=2.7; two fowl produce a chick etc. - which was actually an attempt to shock, confuse and browbeat into believing that they are stupid and should respect "critical theory" and the like. Similarly - "there are multiple geneders".
+
+### Behavioral demands
+- In contemporary America, you have to keep confessing "I am a racist" to prove that you are not a racist. That's the essence of Critical Race Theory.
+
 
 ### Restructuring society 
 - Egalitarianism, anti-elitism, opposition to heredity influence (even in descriptive scientific research on phenotypes important in social functions). 
-- Oppisition to "both the traditional elite & the real science which can easily call out their imperial nakedness". In west, traditional elite/ "System" is often identified with capitalist, western, scientific civilization.
+- Opposition to "both the traditional elite & the real science which can easily call out their imperial nakedness". In west, traditional elite/ "System" is often identified with capitalist, western, scientific civilization.
 
 
 #### Iconoclasm
@@ -24,7 +33,7 @@ title: Oppressive system fetish
 - Khmer Rouge
 - Black lives matter 2020 / cancel culture protesters tearing down statues. 
 
-### Strains
+## Strains
 - In the old hard strain (ur1) - Dictatorship of the proletariat. Examples: Soviet state. Khmer Rouge. Naxals.
 - In newer strains (ur2) - Mixture with econolatory (see [main page](../) for intro). 
   - Examples: (Social Justice warriors) SJW-s of Soros who participated in 2020 US Race riots and more. Venus project. Urban naxals of India.
