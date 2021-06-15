@@ -2,6 +2,11 @@
 title = "Anti-brAhmaNa"
 +++
 
+## Manifestations
+### Temple control
+- In several states (eg. draviDianists in tamiL nADu), government controls temple administration, and forces dilution and destruction of tradition. 
+- One can reduce their efforts to: "What stops a secular Government from appointing a non-Hindu woman who will enter the garbha griha during her monthly periods and offer beef biryani as prasad?" (Suren)
+
 ## Protestant background
 "If there were differences between Orientalists and Anglicists in this regard, they were very shallow. Anglicists found Indian culture and society intrinsically corrupt from the very beginning. Orientalists, however, saw India's culture as being based on sound principles which steadily degenerated. But the cause of corruption, however, was in both cases the same, ie, 'brahmanism'." ... (See [this page](../../zombie-cult/anti-pagan/anti-hindu/anti-brahmaNa/) further.)
 
