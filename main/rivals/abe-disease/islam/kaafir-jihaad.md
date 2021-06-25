@@ -80,3 +80,6 @@ title: War on infiedels
 ## Barring Hindu spiritual practice
 
 "The wicked mlecchas pollute the religion of the Hindus every day. They break the images of the gods into pieces and throw away the articles of worship. They throw into fire Bhagavata Purana and other holy scriptures. They forcibly take away a conch shell and bell of the brahmanas, and lick the sandal paints of their bodies. They urinate like dogs on the sacred Tulasi plant and deliberately pass faeces in the Hindu temples. They would throw water from their mouths on the Hindus engaged in worship, and harass the Hindu saints as if they were so many lunatics let large." - Isana Nagara, (c. 1564), author of the Advaita-prakasa, describes contemporary condition of the Hindus under 'Ala-ud-din Hussain Shah (1493–1519)
+
+## Money can buy some tolerance
+- See tolerance ransom section in [Economic damange] page.
