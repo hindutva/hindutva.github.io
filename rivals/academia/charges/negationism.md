@@ -1,8 +1,6 @@
 ---
 title: Negationism
 ---
-  
-
 
 (Such negationism should be equal to "holocaust-denial".)  
 
@@ -11,6 +9,15 @@ title: Negationism
 - Several scholars such as Llewelyn Morgan \[[KE](http://koenraadelst.blogspot.com/2012/07/a-denier-on-temple-destruction.html)\] and Eaton (Koenraad Elst's Eaton [rebuttal](http://koenraadelst.bharatvani.org/articles/ayodhya/eaton.html)) have been temple-destruction deniers. 
 - Note: at [38:01](http://www.youtube.com/watch?feature=player_detailpage&v=Zfxn9lNfiL8#t=38m01s) in this National Geographic documentary, they say: "These statues did not loose their heads by accident... What the Hindu priests started, muslim invaders completed." Equating Hindu priests and Muslim invaders is vile deception. There is no evidence supporting the hypothesis that Hindu priests "beheaded statues".
 
+
+### Eaton's thesis
+If you read his book Temple Destructions, there are three main, and more problematic points he posits, viz:
+
+- 1. Politics not theological iconoclasm was Muslim rulers’ motivation
+- 2. In this Muslims were only taking forward what more or less Hindus themselves were doing earlier.
+- 3. Don’t trust a Muslim chronicler when he explicitly states his/Sultan’s actions and thoughts plain and simple — he is just aggrandizing
+
+As for the count of 80 - he doesn’t even argue about estimated number - that’s not even his point. It’s just a minimum number of well-documented verifiable cases as per him.
 
 ## Negationist claims and tricks
 
