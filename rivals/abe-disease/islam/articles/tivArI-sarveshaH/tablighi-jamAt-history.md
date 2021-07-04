@@ -2,7 +2,7 @@
 title = "tablighi jamAt history"
 +++
 
-video source [p1](https://www.youtube.com/watch?v=ia_puSJRxlI). machine transliteration below.
+video source [p1](https://www.youtube.com/watch?v=ia_puSJRxlI) and [p2](https://www.youtube.com/watch?v=XfNprH9xZAU). machine transliteration below.
 
 usually when we hear this term secret history the connotation of ten is of a narrative that is either suppressed lost forgotten but somehow not accessible. however i use this term secret history in context of the jammer with a slightly different meaning. secret not because it is suppressed or lost actually history of the earth is pretty much available in plain sight - very easily accessible. however perhaps going by the narrative that have appeared about the math in the recent times due to the attention it has drawn to itself we could see that the narrative of jammers is not properly situated in located in the larger project of islam. that is what we shall try to do in this conversation. 
 
