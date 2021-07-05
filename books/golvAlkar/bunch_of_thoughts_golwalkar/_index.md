@@ -1,5 +1,5 @@
 +++
-title = "+Bunch of Thoughts -Golwalkar"
+title = "+Bunch of Thoughts"
 
 +++
 
