@@ -32,3 +32,9 @@ Doctrine of "discovery" - appropriation of non-christian territory.
 - Akha people of Thailand: "Prisoners of a white God". \[[video](http://www.youtube.com/watch?v=2c5Xa5EOfuk)\]
 - Stolen generation of Australia. \[[page](http://t.co/1Z2ZtRGMbX)\]
 - Canadian Indian residential school system \[[wiki](http://en.wikipedia.org/wiki/Canadian_Indian_residential_school_system)\]
+
+
+## Cost of "soul-saving"
+> previously unknown mass graves of children were discovered just this summer on the grounds of Indian residential schools ....
+> the certain fact that souls were saved by the missionaries, the enduring belief of Christians that the Gospel is true and must be spread, is paramount; everything else is secondary. ...  Whatever natural good was present in the piety and community of the pagan past is an infinitesimal fraction of the grace rendered unto those pagans’ descendants who have been received into the Church of Christ. Whatever sacrifices were exacted in pursuit of that grace—the suffocation of a noble pagan culture; an increase in disease and bodily death due to government negligence; even the sundering of natural families—is worth it. 
+> - https://www.theamericanconservative.com/articles/the-meaning-of-the-native-graves/
