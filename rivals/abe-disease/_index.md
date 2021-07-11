@@ -7,6 +7,7 @@ title: +Abrahamisms
 
 "If Hinduism is a single religion, consistency requires Judaism, Xianity & Islam be categorised as sects of a single religion." \- Stietencron  
 
+
 ## Cure
 > "Even if one is truly cured of an abrahma-ruj one can have a lifelong chronic inflammatory condition — this is seen among some mleccha atheists and neo-heathens. That inflammatory condition can be seen in the form of destructive dur-vāsana-s persisting among them." See Neo-pagan part of [compatibility page](../../../polity/external-affairs/population-compatibility/).
 
