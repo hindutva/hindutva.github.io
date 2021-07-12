@@ -5,20 +5,4 @@
     layout: "page"
     comments: true
     search: true
-    sidebar: home_sidebar
--
-  scope:
-    pathPrefix: "main"
-  values:
-    layout: "page"
-    comments: true
-    search: true
     sidebar: hindutvam_sidebar
--
-  scope:
-    pathPrefix: "paganology"
-  values:
-    layout: "page"
-    comments: true
-    search: true
-    sidebar: paganology_sidebar

@@ -5,5 +5,7 @@
 title: Hindutvam
 contents:
   - url: recdir://
-#  - title: <i class="fas fa-hand-holding-heart"></i>Donate!
-#    url: /dharma-via-hindutva/
+  - title: Contributing
+    url: /contributing/
+  - title: <i class="fas fa-hand-holding-heart"></i>Donate!
+    url: /dharma-via-hindutva/
