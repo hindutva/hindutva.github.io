@@ -8,6 +8,8 @@ disablePathToLower = true
 [params]
   githubEditMePathBase = "https://github.com/hindutva/hindutva.github.io/edit/hugo-source/content/"
   contactLink = "https://github.com/hindutva/hindutva.github.io/issues/new"
+  build_img = "https://github.com/hindutva/hindutva.github.io/actions/workflows/build.yml/badge.svg"
+  build_url = "https://github.com/hindutva/hindutva.github.io/actions/workflows/build.yml"
   env = "production"
   disqusShortcode = "hindu-vichaarah"
   background_color_class = "bg-light-red"
