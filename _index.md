@@ -1,14 +1,8 @@
 ---
 title: +"हिन्दु-विचाराः Hindu thoughts"
-keywords: sample homepage
-tags: [getting_started]
-sidebar: home_sidebar
-permalink: index.html
-summary: Welcome page.
 ---
 
 हरिः ॐ! स्वागतम्!
-This website consists of multiple parts. Pick one that you're interested in (menu on the top/ left).
+This website is mostly about oft censored controvertial aspects of political hindutva. There is a nice collection of hindutva-related books as well. You'll find other aspects of hindutva/ hinduness presented on many sites elsewhere. 
 
-[This page](..//main/hinduism/introduction/) is a particularly good place to start.
 ![](images/malla-welcome.jpg)
