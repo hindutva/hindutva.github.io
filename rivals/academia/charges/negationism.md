@@ -63,3 +63,6 @@ As for the count of 80 - he doesnâ€™t even argue about estimated number - thatâ€
 - "hindu heroes were actually ok with muslim kings. it is just the modern hindutva crowd." technique
 - audrey truschke paraphrased: "shivAjI did not successfully join Awrangzeb's court because he did not know court manners."
     - "His main intent of going to the fiend's liar @ Agra was to temporarily gain access to use their vast resources to smash his 2 old foes Adil shAh and Qutb shAh" \[[TW](https://twitter.com/ColonelGerard/status/834458173192802304)\]
+
+## Negationism in Europe
+> Just as ekarAkshasa indologists claim that the recycling of religious monuments in "South Asian" was quite innocent, we have their cousins studying Western Eurasian antiquity claim that the demolition&incorporation of Roman religions monuments into walls by the preta-s had an apotropaic function. - MT
