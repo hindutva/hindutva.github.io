@@ -19,7 +19,7 @@ title: RSS
 - Human Infrastructure for specific missions: यथा पुरा रामानन्दादिसंन्यासिभिर् महाराष्ट्रेषु हनुमन्मन्दिरसंयुक्ता मल्लशालाः प्रारब्धाः शिवराजम् उपचक्रुः, तथैव वयमपि "infrastructure"(आधार)-निर्माणं कुर्मः। 
 - "यद्यपि समुदायस्तरे जातिस्तरे वा सङ्घटन्ते जनाः, हिन्दुत्वे न तथा सङ्घटन्ते, तत्रास्मत् सम्पर्कहेतुना "हिन्दुत्व"भावना+ऐक्यं च जागर्ति।"
 
-### Seeding mission specific organizations:
+### Seeding mission specific organizations
 - उदाहरणानि
     - संस्कृतभारती
     - एकलविद्यालय
@@ -53,8 +53,8 @@ title: RSS
 - Older people have told me about the good work and even self-sacrifice by RSS workers to save Partition victims or to defend Srinagar airport until the Indian troops arrived. As this book documents, RSS volunteers have gone out of their way to save Sikhs during the 1984 Congress-engineered pogrom against them (p.177-179).  \[[KE](http://koenraadelst.blogspot.be/2015/02/three-views-of-hindu-activism.html)\]
 
 ### Leadership problems
-- My meetings with RSS foot soldiers have mainly been positive. On the other hand, as SR Goel had observed, “the higher you go, the bigger the duffer you meet”. \[[KE](http://koenraadelst.blogspot.be/2015/02/three-views-of-hindu-activism.html)\]
-- The cluelessness and inactivity on the Hindu front by the BJP ministers of the erstwhile Vajpayee and several state governments show the limited (or even reverse) effectiveness of the much-flaunted RSS grooming. \[[KE](http://koenraadelst.blogspot.be/2015/02/three-views-of-hindu-activism.html)\]
+- "My meetings with RSS foot soldiers have mainly been positive. On the other hand, as SR Goel had observed, “the higher you go, the bigger the duffer you meet”." \[[KE](http://koenraadelst.blogspot.be/2015/02/three-views-of-hindu-activism.html)\]
+- "The cluelessness and inactivity on the Hindu front by the BJP ministers of the erstwhile Vajpayee and several state governments show the limited (or even reverse) effectiveness of the much-flaunted RSS grooming." \[[KE](http://koenraadelst.blogspot.be/2015/02/three-views-of-hindu-activism.html)\]
     
     
 ## Mildness
