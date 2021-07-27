@@ -3,7 +3,6 @@ title: Meitei lemurism
 ---
 
 ## Background
-- See separate [page](../../../social-cultivation/clan/practice/varNa/kShatriya/meitei/).
 - This is also known as "Sanamahi cult". Sanamahi is revered by manipuri hindus and brAhmaNa-s too.
 
 ## Phullo
