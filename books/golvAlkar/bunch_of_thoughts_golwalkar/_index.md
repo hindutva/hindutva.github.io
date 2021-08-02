@@ -20,6 +20,7 @@ As could be expected, these thoughts cover the eternal and abiding aspects of ou
 In this Third Edition we have added the Index and effected some typographical correction, which had remained in the Second Edition. A short biographical life - sketch of Shri Guruji and some of his thoughts prior to and during 1947 - 48 are two more new features of this Edition. We are sure that the present Edition too will meet with the same enthusiastic and enlightened response that greeted the previous ones. The nation’s continuing demand for ‘Bunch of Thoughts’ is amply proving that it is a Philosophy of Thought and Action par-excellence, with its appeal as eternal as the nation itself which it seeks to resurrect and re-build. 
 
 We offer our heart - felt homage to late Prof. M. A. Venkata Rao, a scholar of vast erudition and great depth of vision. to whom the book is dedicated - for his excellent Introduction. 
+
 We are grateful to Shri V. S. Godbole of U. K. for his detailed observations which, have helped us to improve and update the present Edition in a few respects. Our thanks are due to all those whose loving co- operation has made this arduous though pleasant task, possible. 
 
  -- PUBLISHERS 
@@ -31,6 +32,7 @@ We are grateful to Shri V. S. Godbole of U. K. for his detailed observations whi
 - II. FINAL REFUGE FOR MANKIND III. CHALLENGE OF THE TIMES IV. FOR A RIGHT STRUCTURE V. CALL OF OUR NATIONAL SOUL VI. FOR TRUE NATIONAL GLORY VII. LIVE POSITIVE DYNAMIC HINDUISM VIII. VISION OF OUR WORK 
 - PART TWO - THE NATION AND ITS PROBLEMS 
 - IX. OUR MOTHERLAND 1. THE GRAND VISION 2. WANTED, HEROIC DEVOTION X. CHILDREN OF THE MOTHERLAND XI. FOR A NATIONAL LIFE XII. TERRITORIAL NATIONALISM 1. ITS ROOTS 2. ITS FRUITS XIII. CALL FOR COURAGE OF CONVICTION XIV. UNIQUENESS OF HINDU RASHTRA 1. HINDU RASHTRA AND MINORITIES 2. HINDU RASHTRA AND SECULARISM XV. AFFIRM BASIC TRUTHS XVI. INTERNAL THREATS 1. THE MUSLIMS 2. THE CHRISTIANS 3. THE COMMUNISTS 
+
 - PART THREE – THE PATH TO GLORY 
 - (A) ROUSING NATIONAL CONSCIOUSNESS 
 - XVII. MEETING THE HISTORIC NEED XVIII. WANTED A UNITARY STATE XIX. THE ETERNAL BASIS XX. NOURISH THE ROOTS XXI. THE ONE ANSWER TO MANY CHALLENGES XXII. THE ELIXIR OF NATIONAL LIFE 1. WORLD OF REALITY 2. THE ULTIMATE SANCTION 

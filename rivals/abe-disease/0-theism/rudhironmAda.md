@@ -21,11 +21,12 @@ This, of course, runs counter to hindu ethos:
 - With "intersectionality", you look at all the opperssion classes/ identities one might have - then pare it down to a small group (but never to an individual, because he does not have agency). With "positionality", they measure your position in relation to system of power.
 
 #### Unscientific beliefs
-- This involves some rejection of science (eg. "scientific racism") and even undermining mathematics. There was a movement in 2020 which sought to argue that 2+2=5 based on various nuances/ suppositions such as 2.3+2.4=2.7; two fowl produce a chick etc. - which was actually an attempt to shock, confuse and browbeat into believing that they are stupid and should respect "critical theory" and the like. Similarly - "there are multiple geneders".
+- This involves some rejection of science (eg. "scientific racism") and even undermining mathematics. There was a movement in 2020 which sought to argue that 2+2=5 based on various nuances/ suppositions such as 2.3+2.4=2.7; two fowl produce a chick etc. - which was actually an attempt to shock, confuse and browbeat into believing that they are stupid and should respect "critical theory" and the like. Similarly - "there are multiple genders".
 
 ### Behavioral demands
 - In contemporary America, you have to keep confessing "I am a racist" to prove that you are not a racist. That's the essence of Critical Race Theory.
-
+- Eg. Kneeling in solidarity with BLM protestors.
+- Language changes:  "they", "ze" pronouns
 
 ### Restructuring society 
 - Egalitarianism, anti-elitism, opposition to heredity influence (even in descriptive scientific research on phenotypes important in social functions). 
