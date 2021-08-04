@@ -4,7 +4,7 @@ title = "2 RAJASTHAN AND THE RAJPUTS"
 
 
 
-(1) Rajasthan - Physiography (1) :
+## Rajasthan - Physiography
 
 Rajasthan comprises the area between 23rd degree to 30th degree North latitude and 68th degree to 78th East longitude. The earliest reference to Rajasthan is in connection with its agidity. The word Maru is found in Rugwed the Mahabharat (Vanaparva, 201.41) and Brahatsamhita.
 
@@ -46,7 +46,7 @@ The highest groups of hills in the western Rajasthan stand in this region. These
 
 To the south west and to the south east of Rajasthan lie Gujarat and Malwa plateau respectively. The Malwa plateau is to the North of Narmada and is covered by Vindhya mountain ranges that starts from Gujarat and run towards Raisen and Bhopal. Many of the sub-ranges of Vindhya mountain appear to have risen northwards to embrace the eastern and southern sub ranges of Aravalli; proving the physiographical oneness of Rajasthan and Malwa.
 
-(ii) The Aryanaisation of Rajasthan :
+##  The Aryanaisation of Rajasthan 
 
 In their first stage of penetration into India(2) , as depicted in Rigweda, we see the Aryans occupying Afghanisthan. The valley of Kashmir, Punjab, North Rajasthan and part of Sindha and reaching as far as Sharayu in the east.
 
@@ -80,7 +80,7 @@ The tribal element seems to have gained ground. We hear that Arjun, the renowned
 
 The curtain drops down here, as if after a tragic drama, separating us from the remote antiquity concerned with the Aryan phase in India.
 
-(iii) Historic Rajasthan : (From 600 B.C. to 200 A.D.)
+##  Historic Rajasthan  (From 600 B.C. to 200 A.D.)
 
 When the curtain rises again after the great Bharat war, we see the Matsyas, south of the Kurus and west of Yamuna in the former Jaypur-Alwar region. But they (8) had lost their former political importance.
 
@@ -100,7 +100,7 @@ The Shakas(19) in their turn were followed by the hordes of nomads called the 'G
 
 The Kushan Empire was intact till 185 A.D. It began to crack by the end of second century A.D.
 
-(iv) The Tribal states of Rajasthan (20) : (During 200 B.C. to 500 A.D.) :
+##  The Tribal states of Rajasthan (20) : (During 200 B.C. to 500 A.D.) 
 
 The fall of the Maurya Empire had given rise to many tribal republics in Rajasthan, who had to submit first to the Greeks, then to the Shakas and then to their successors, the Kushanas. But after the fall of the Kushan Empire, by the end of the second century A.D., some of the tribal States gained in importance and strength, till they were forced to acknowledge the suzerainty of the Guptas in about the second half of the fourth century A.D. The Guptas let the Rajasthan States continue in their political career. But theyhad to carry to Emperor's behests and pay tribute and homage.
 
@@ -146,7 +146,7 @@ The capital of the Malva Republic was Malva-nagar, modern Nagar or Karkot-nagar 
 
 The fight of the Malvas of the Eastern Rajasthan with the Kardamakas of Ujjaini continued in the third and fourth century A.D. But while the Guptas extirpated the Kardamkas, the Malva dynasty flourished at Dashpur (Mandasor) as a vassal under the Guptas. But the Malva Kings, even being the subordinates to the Guptas, used their own "Krit" era, called as the era of the Malvas, in perference to the era of the Guptas. Coins of the Malvas bear the legends "Malva Janapadasa", "jayomalavanam" or "malavanam jayah".
 
-(v) The Huna Invasion and the end of Gupta Empire (455 to 500 A.D.) :
+##  The Huna Invasion and the end of Gupta Empire (455 to 500 A.D.) 
 
 From the valley of Oxus(23) , the white Huns, as they are referred to in the Greek accounts, advanced towards both Persia and India. The stream towards India, assailed the Kushan Kingdom of Kabul and then poured into the north Indian plains. But their attack was repelled by Skandagupta in 455 A.D., and India was saved for a while.
 
@@ -162,7 +162,7 @@ Tormana(27) was succeeded by his son Mihirkula, who probably ascended the throne
 
 The political fabric of the Gupta-Empire was brokent up completely out of which emerged new independent States like the Maukharis of Kanuj, the Pushapbhutis of Sthaneshwar and the Gurjaras of Rajasthan and Nandipuri.
 
-(vi) The Gurjaras and the Rajpurts : ( 550 to 950 A.D.) :
+##  The Gurjaras and the Rajpurts : ( 550 to 950 A.D.) 
 
 About sixty years after the destruction of the Huna supremacy in nortthern India, there arose another Empire at Kanuj under Harshavardan (606 to 647 A.D.), but Rajasthan(29) lay out of his suzerainty. Hiuen Tsang mentions the existence of independent Gurjara (Ku-che-lo) kingdom with Pi-lo-mo-lo, which has been indefined with Bhillamala, modern Bhinamal, as its Capital.
 
@@ -188,7 +188,7 @@ And with all this strength(40) , even though the Pratiharas could have easily ex
 
 The Pratihar Empire collapsed in the latter half of 10th century giving rise to new powers, known later on under the collective name Rajputs. It was the lot of these Rajpurt powers to face the new invaders that fell like hurricane on the furtile fields and rich localities of Hindusthan.
 
-(vi) The End of the Ancient Glory :
+##  The End of the Ancient Glory 
 In the year 997 A.D.(41) Abu-I-Qasim Mahmud, the son of Subuktigin captured Ghazni and turned his attention to India and the most crucial age in the Indian Hostory began. "Yamin abdaula Mahmud marched in to India during a period of 30 years and more. God be merciful to both father and son. Mahmud utterly ruined the prosperity of the country and performed there wonderful exploits, by which the Hindus became like atoms like dust scattered in all directions and a tale of old in the mouth of people."
 
 Crossing rivers(42) "deep beyond description". Where "even elephants bodies are concealed in them, so it may be easily conceived what is the case with horses", accompanied by his valiant warriors, receiving submission from the ambassadors sent to him, bidding "farwell to sleep and ease", the Sultan "led the way crossing forest after forest at midnight, the drums sounded the march and the friends of God mounted the horses" and thus they marched on.
@@ -201,7 +201,7 @@ This happened again and again for 30 years and nobody was able to check Mahamud 
 
 Consequently when the Turkish Muizzudddin Muhammad began his attack on India in 1175 A.D. the individual victories over him of Mulraja II Chalukya of Gujarat in 1178 A.D.(46) and Prithviraja Chahamana of Ajmer in 1191 A.D. were of no avail as no two Chiefs could combine against him. Prithviraja fell fighting in 1192 A.D. at Tarai, and the powerful Jayachandra who had remained silent while beholding the destruction of his heighbour, also perished on Yamuna in the neighbourhood of Chandwara in 1193 A.D. Every thing that was sacred and dear to a Hindu mind was destroyed and laong with it the ancient India came to an end. Thus most of North India passes under the foreign yoke by the end of 12th century. It was a tremendous change in the capital and social life of India with far reaching consequences.
 
-(vii) The Rajput Opposition :
+##  The Rajput Opposition 
 
 The efforts of Islam to spread further and the resistence to such a move on the part of the Rajput Chiefs or the main substance of the history of Northern India for the next four centuries, in which the Chahamanas, the Guhilots and the Rathods figure prominently.
 
@@ -221,7 +221,7 @@ Another great ruler like Kumbha was Rana Sanga (53) (1509 to 1528 A.D.) He pushe
 
 The death of Rana Sanga(54), was followed by the invasion of the ambitious Bahadur Shah of Gujarat. Chitod fell after the 'Jauhar' and Mewad got a set back (1534 A.D.).
 
-(viii) The Acceptance of Foreign Yoke :
+##  The Acceptance of Foreign Yoke 
 With crippled Mewad, it was easy for Sher Shah Sur, to break the back-done of Ranathambhor, Raisen and by defeating Maldeo of Marwad(55) in 1544 A.D. Rajasthan had shed ample blood while resisting the Sultans of Delhi for the last three centuries and a half, and the Chiefs were in a mood to submit honourably to Delhi, if they were allowed to rule peacefully in their territories. Hence, most of the Rajput Chiefs fell easy victims to the apparent friendly overtures of Akbar and thus the Rajputs lost by 1670 A.D. what they had preserved till then, namely the independence. But they went a step further and marrying their princesses with the Mughal princes(56), became the members of the Royal Mughal family.
 
 But Mewad continued her heroic resistence even after the fall of Chitod in 1568 A.D. to the foreign Mughals, single-handedly, under Rana Pratap. Had the rest of Rajput Chiefs continued their resistence and helped Rana Pratap whole heatedly, then perhaps the story of Haldighat (1776 A.D.) would have been quite different and with the Afgan opposition to the Mughals in other quarters, the Rajputs would not have been obliged to be the "brave watch dogs of alien regime" in the words of Dr. Qanungo(57).
