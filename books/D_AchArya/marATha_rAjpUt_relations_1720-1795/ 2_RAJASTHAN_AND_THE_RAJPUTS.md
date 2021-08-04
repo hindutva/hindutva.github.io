@@ -12,7 +12,7 @@ Aravalli range runs through Rajasthan, northeast to southwest, for about 430 mil
 
 Aravalli forms the backbone of Rajasthan, dividing it into two regions, with clearly distinguishable features. On its west and north lies the arid plain and on its east and southeast lie plains and forests. Besides being a source to rivers like the Khari, the Gambhari the Banas and the Luni, Aravalli hills have afforded sites to the various forts like Jalor, Sanchor, Bhinmal, Siwana, Mandowar, Jodhput etc. in Western Rajasthan and Chitod, Mandowar, Mandalgadh, Rampura, Ranathambhor, Bundi, Kota, Amer, Alwar etc. in the Eastern Rajasthan. The part played by these forts in the past History of Rajasthan is very well known. No history of Rajasthan can be written without the proper mention of them.
 
-(a) Eastern Rajasthan :
+###  Eastern Rajasthan 
 
 MEWAT :- From Delhi to Narnaul and Khetri, a few scattered mounds, hardly above two hundred feet, rise here and there. But from Khetri to |Ringus they take the regular from of a mountain range. This part of the north east of Rajasthan is called 'Mewat' where the hills rise to a uniform height of two thousand feet. The river Bangana  which rises from Arravalli hills north of Ringus, and falls into Banas, divides Mewat from Dhundbad.
 
@@ -34,7 +34,7 @@ Rising near Mhow and covering a distance of about two hundred miles from its sou
 
 The southern part of Mewad comprising of Dungarpur, Banswara with its semi-circle sub-range of Aravalli, is full of forests and is watered by the river Mahi and its tributary Soma. This part is called Bagad.
 
-(b) Western Rajasthan :
+###  Western Rajasthan 
 
 The west of Aravalli is the sandy desert of 'Maruthali' that extends for about three hundred ninety seven miles from north-east to south-west. With an average width of about 186 miles from west to east and with an extent of about 64,000 square miles covering the former states of Jaisalmer, Bikaner, Major portion of Jodhpur and a part of Jaypur called Shekhavati. Its productivity in the past depended upon the rivers, the Saraswati, Drashdwati and Sutlaj. Saraswati with its tributary Drashdwati, then poured its waters in the Arabian sea. They dried up completely by 1,000 A.D., when arid conditions had become established. The dry beds of these rivers are still visible in the Gaggar area. There is also evidence to suggest that Sutlaj was much bigger in the past and flowed in the prehistoric and historic times through Punjab and Rajasthan, receiving waters from Yamuna and entered into the Runn of Kutch. Its former banks can still be traced.
 

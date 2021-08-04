@@ -218,9 +218,7 @@ The Maharashtrian Brahmins even today chant the Mantra " "bC"b""b "c"C "a"C """>
 
 (52)Badashah Nama in E.D. Vol. 7, PP. 51,58 to 60.
 
-(53) ""<Ȃѣ"C"C" "<""N<"A""}<""b $ ~:"P"DbC : ><~"h""b B""b B"b" "b""C $$>
-
-Shivaji's seal as early as 1645 New. Hist I - P. 111.
+(53) ... Shivaji's seal as early as 1645 New. Hist I - P. 111.
 
 (54) "My armies were employed against him for nineteen years but nevertheless, his state has been always increasing". The Cambridge Hist. Vol. IV. P. 279.
 
