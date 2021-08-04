@@ -16,7 +16,7 @@ With the average rainfall of 100 inches a year in Kokan, which at places is as h
 
 Maharashtra was called Dandakaranya (5) in ancient times by the Aryan (6) colonists who conquered it and settled down there. The Aryan settlers (7) who were called Ratthas, Maharatthas, or Rashtrakuta, must have been a hardy race in whose character, the best traits of the Aryan settlers from the North, were blended with the best - characteristics of the indigenous stock of western India (8) .In course of time, after they had earned great distinction for wealth, velour, and political power, the land which they had occupied, now began to be called after them as the nation of Maharashtra and their language was known as Maharashtri. An image of Maharatta warrior can be seen in Nane Ghat caves near Junner, which were carved out by the Andhra rulers about the first century before Christ. The present Marathi language is the direct descendent of the Prakrit Maharashtri, the language of Maharashtra (9).
 
-The fifth rock edict (10) of Ashok Maurya (273 to 236 B.C.) mentions the countries of the Rashtrikas and the Aparantas who were his feudatories and to whose dominions; he had sent his -"Dharma Matra". The Ceylonese chronicle (11) Mahavamasa mentions the missions sent after the third Buddist Council at Pataliputa - from which we know that one Rakkhita (Rashtrika) was sent to Vanawasi (afterwards the Capital of Kadamb Kingdom) and a Yona Damma Rakkhita was deputed to Apranta (North Kokan) and Maharakkhita to Maharashtra Country. In the cave temples(12) of Maharashtra, which began to be excavated about the middle of first century before Christ, we find among the list of donors, Princes and Chiefs, who call themselves Mahabhojas and Maharathis. In the great case temple of Kara, the lion pillar in the Court near the entrance was scooped out by a Maharathi name d Agimitra. "Varaha - Mihir (13), a famous astronomer of the sixth century, used the word Maharashtra, which later came to be corrupted into Mahratta or Maratha�. Hiuen-Tsang (14) speaks Pulakeshi as the great kshatriya king of Maharashtra. (Mo-ho-la-cha), Rajeshkar (15) a Sanskrit author of the nineth century, used Marahatti (Marathi) in the feminine gender. The poet Jayamangal (16)who lived in twelfth century, clearly defines the geographical limits of Maharashtra as follows : "D�b �TDbD�a���C �"b�b�> <��� " Maharashtra is the name of country between the river Narmada and the province of Karnatak
+The fifth rock edict (10) of Ashok Maurya (273 to 236 B.C.) mentions the countries of the Rashtrikas and the Aparantas who were his feudatories and to whose dominions; he had sent his -"Dharma Matra". The Ceylonese chronicle (11) Mahavamasa mentions the missions sent after the third Buddist Council at Pataliputa - from which we know that one Rakkhita (Rashtrika) was sent to Vanawasi (afterwards the Capital of Kadamb Kingdom) and a Yona Damma Rakkhita was deputed to Apranta (North Kokan) and Maharakkhita to Maharashtra Country. In the cave temples(12) of Maharashtra, which began to be excavated about the middle of first century before Christ, we find among the list of donors, Princes and Chiefs, who call themselves Mahabhojas and Maharathis. In the great case temple of Kara, the lion pillar in the Court near the entrance was scooped out by a Maharathi name d Agimitra. "Varaha - Mihir (13), a famous astronomer of the sixth century, used the word Maharashtra, which later came to be corrupted into Mahratta or Maratha". Hiuen-Tsang (14) speaks Pulakeshi as the great kshatriya king of Maharashtra. (Mo-ho-la-cha), Rajeshkar (15) a Sanskrit author of the nineth century, used Marahatti (Marathi) in the feminine gender. The poet Jayamangal (16)who lived in twelfth century, clearly defines the geographical limits of Maharashtra as follows : "D"b "TDbD"a"""C ""b"b"> <""" " Maharashtra is the name of country between the river Narmada and the province of Karnatak
 
 ##  Ancient Glory and the Subsequent Fall 
 
@@ -119,7 +119,7 @@ A new era providing the best opportunities had dawned for the enterprising Marat
 
 (5)  The Maharashtra region was known as Dandakraya - the Dandak forest - with lot of aboriginal people living in it,.. This region extended southwards up to and beyond Krishna and northwards into the forest belt of Central India "Maharashtra State Gazetteer ". I-P. 5.
 
-The Maharashtrian Brahmins even today chant the Mantra " �bC�b��b �c�C �a�C ���>�Tbٷ� �C~C " at the time of their worship. Those who live, to the South of Godawari change " �<[L " for " �c�C " in the said Mantra. It is very clear that the country to the North and South of Godawari was Dandakaranya.
+The Maharashtrian Brahmins even today chant the Mantra " "bC"b""b "c"C "a"C """>"Tbٷ" "C~C " at the time of their worship. Those who live, to the South of Godawari change " "<[L " for " "c"C " in the said Mantra. It is very clear that the country to the North and South of Godawari was Dandakaranya.
 
 (6) Dr. bhandarkar places the Aryan penetration into Deccan, after the beginning of the seventh Century B.C. Early History of Dekkhan, third edition, P. 16, whereas K.A. Nilkanth Sastri places the starting points of this Aryanlraota, some where about 1000 B.C. in his history South India, p, 70.
 (7) (7) Early History of Dekkan, p. 20. New Hist, I.P. 19.
@@ -158,7 +158,7 @@ The Maharashtrian Brahmins even today chant the Mantra " �bC�b��b �c�
 
 (24)(24) The age of Imperial Kanauj, R.C. Majumdar, P. 17
 
-(25)25) �b�b �t"bq>b�a kbCJ �Tb��N�CT $ �G� ����b�C "a ���b <�}�CT y�Pa �[C><� �>�A�bPN $ �bC P�T��T�b E�b�b�C �bC�a <[�a�N $ ga�b�}�� M - �bDCA�� >
+(25)25) "b"b "t"bq>b"a kbCJ "Tb""N"CT $ "G" """"b"C "a """b <"}"CT y"Pa "[C><" ">"A"bPN $ "bC P"T""T"b E"b"b"C "bC"a <["a"N $ ga"b"}"" M - "bDCA"" >
 
 (26)
 
@@ -182,9 +182,9 @@ The Maharashtrian Brahmins even today chant the Mantra " �bC�b��b �c�
 
 (36) Rise of the Muhammadan power in India V. II, Farshta - PP. 130,131. Hist. of South India - P. 257. "The Minister was devout Sunni Muslim, as ruthless as any one else in slaying and despoiling idolater". - The Oxford History of India - p. 287.
 
-(37) M k"PbJ �Te�b}� JbC�Tb}~a �bJb $ �"� k"� �bG�> �CTJa �DbJb $$ G�T�a y�T ����b
+(37) M k"PbJ "Te"b}" JbC"Tb}~a "bJb $ """ k"" "bG"> "CTJa "DbJb $$ G"T"a y"T """"b
 
-<� �C kbCP �bJa $ ><��CT P� �bE�C� DbDb kN�>bJa $$ G�T�a ��<"La k�b|"La B��><�e�b $ G�T�a ~b}BN�T� �"b�a VTb�T<�e�b $$ G�T�a y�T �C~b}��b ��b <�T�e�b $ G�T�a PN}��b "bJ "bC�Da �Ce�b $$ Da� ��bLa �NiT�� �b�Jb $ �C�C �b�b�<� kN�>bJb $$ �C�~b� k�b|"LbJb $ �TbCL �NPC $$ ��b��b_ ><��N�Tb �CJb $ DNh�b �C~�a ��Jb $$ �CLC �T��b k"R�bJb $ P}�T^> �bJC $$
+<" "C kbCP "bJa $ ><""CT P" "bE"C" DbDb kN">bJa $$ G"T"a ""<"La k"b|"La B""><"e"b $ G"T"a ~b}BN"T" ""b"a VTb"T<"e"b $$ G"T"a y"T "C~b}""b ""b <"T"e"b $ G"T"a PN}""b "bJ "bC"Da "Ce"b $$ Da" ""bLa "NiT"" "b"Jb $ "C"C "b"b"<" kN">bJb $$ "C"~b" k"b|"LbJb $ "TbCL "NPC $$ ""b""b_ ><""N"Tb "CJb $ DNh"b "C~"a ""Jb $$ "CLC "T""b k"R"bJb $ P}"T^> "bJC $$
 
 " The people are completely crushed (by the Muslim rule). There is dire poverty in the land and no ray of hope is visible, Hindu women are molested, raped and sold as slaves in far off countries. Crops failed and villages have been devastated. People fled from their homes in abject misery and several died of starvation. Every thing is taken away and only the country remained. It is a calamity for all and there is no escape from it. When the low born became masters, the religion comes to an end who cares then for the learned brahimin". - Saint Ramdas.
 
@@ -218,7 +218,7 @@ The Maharashtrian Brahmins even today chant the Mantra " �bC�b��b �c�
 
 (52)Badashah Nama in E.D. Vol. 7, PP. 51,58 to 60.
 
-(53) ��<Ȃѣ�C�C� �<��N<�A��}<��b $ ~:"P�DbC : ><~�h��b B��b B�b� �b��C $$>
+(53) ""<Ȃѣ"C"C" "<""N<"A""}<""b $ ~:"P"DbC : ><~"h""b B""b B"b" "b""C $$>
 
 Shivaji's seal as early as 1645 New. Hist I - P. 111.
 

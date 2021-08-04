@@ -193,11 +193,11 @@ In the year 997 A.D.(41) Abu-I-Qasim Mahmud, the son of Subuktigin captured Ghaz
 
 Crossing rivers(42) "deep beyond description". Where "even elephants bodies are concealed in them, so it may be easily conceived what is the case with horses", accompanied by his valiant warriors, receiving submission from the ambassadors sent to him, bidding "farwell to sleep and ease", the Sultan "led the way crossing forest after forest at midnight, the drums sounded the march and the friends of God mounted the horses" and thus they marched on.
 
-In vain the Hindus tried to give a stand but "the friends(43) of God commenced the action, setting upon the enemy with sword, arrow and spear, plundering, seizing and destroying at all which the Hindus, being greatly alarmed, began to kindle the flame of fight�� The elephants moved on from their posts, and line advanced against line, shooting their arrows at one another like boys escaped from school� Swords flashed like lightning amid the blackness of clouds, and fountains of blood flowed like the fall of setting stars. The friends of God defeated their obstinate opponents, and quickly put them to a complete rout".
+In vain the Hindus tried to give a stand but "the friends(43) of God commenced the action, setting upon the enemy with sword, arrow and spear, plundering, seizing and destroying at all which the Hindus, being greatly alarmed, began to kindle the flame of fight"" The elephants moved on from their posts, and line advanced against line, shooting their arrows at one another like boys escaped from school" Swords flashed like lightning amid the blackness of clouds, and fountains of blood flowed like the fall of setting stars. The friends of God defeated their obstinate opponents, and quickly put them to a complete rout".
 
 This happened again and again for 30 years and nobody was able to check Mahamud from plundering and destroying places like Multan(44), Sthaneshwar, Mathura, Kanauj or Sorti Somnath. Noblest monuments of ancient India perished, immence riches were plundered, lakhs of people were killed and enslaved and one of the fairest provinces of India, the Punjab, was detatched, as Sindh was done 300 years ago from the sphere of Aryavarta. The stories of this wanton destruction still make a painful reading, than what must have been the magnitude of the sufferings of the vanquished.
 
-"But (45) a still worse sublime tragedy was the complete indifference of the Indian Chiefs to this growing meance and the fancied security in which they chose to repose during the period intervening between the death of Mahamud and the next invasion by the Ghurs�. The kingdom of Ghazni passed through critical days and was over taken by many dangers, both internal and external, till the nemesis over look it, and its beautiful city, built on the ruins and plunder of India, perished in flames. But the powerful Indian Chiefs, far from taking advantage of any such opportunity during the long period of a century and a half, were more intent upon aggradising themselves at the cost of their neighbouts than turning their whole-hearted attention to the great national task of freeing the Punjab from the yoke of the foreigners of an alien faith".
+"But (45) a still worse sublime tragedy was the complete indifference of the Indian Chiefs to this growing meance and the fancied security in which they chose to repose during the period intervening between the death of Mahamud and the next invasion by the Ghurs". The kingdom of Ghazni passed through critical days and was over taken by many dangers, both internal and external, till the nemesis over look it, and its beautiful city, built on the ruins and plunder of India, perished in flames. But the powerful Indian Chiefs, far from taking advantage of any such opportunity during the long period of a century and a half, were more intent upon aggradising themselves at the cost of their neighbouts than turning their whole-hearted attention to the great national task of freeing the Punjab from the yoke of the foreigners of an alien faith".
 
 Consequently when the Turkish Muizzudddin Muhammad began his attack on India in 1175 A.D. the individual victories over him of Mulraja II Chalukya of Gujarat in 1178 A.D.(46) and Prithviraja Chahamana of Ajmer in 1191 A.D. were of no avail as no two Chiefs could combine against him. Prithviraja fell fighting in 1192 A.D. at Tarai, and the powerful Jayachandra who had remained silent while beholding the destruction of his heighbour, also perished on Yamuna in the neighbourhood of Chandwara in 1193 A.D. Every thing that was sacred and dear to a Hindu mind was destroyed and laong with it the ancient India came to an end. Thus most of North India passes under the foreign yoke by the end of 12th century. It was a tremendous change in the capital and social life of India with far reaching consequences.
 
@@ -243,7 +243,7 @@ Thus having achieved his object in respect of Marwad(68) , Aurangzeb returned to
 
 Aurangzeb's annexation(70) of Marwad was a preliminary step to the conquest of Mewad. The Maharaja Rajsingh was wise enough to comprehended it, moreover, Ajit's mother was his niece. Hence he stood with the Rathods, in their critical time, against the Mughals.
 
-Thus forgetting all their past services rendered to the Empire and all their blood-shed in external as well internal sturggles, Aurangzeb thrust upon the Rajputs a cruel war only to convert "dar-ul-harb"(71) (the Hindu States in his Empire) into 'dar-ul-islam' i.e. realm of Islam. "The Rajputs suffered(72) all the horrors of war in their most extreme form. Many temples were demolished� at or near Udaypur 123, and at Chitod 63 temples were over-thrown. The friendly State of Ambar (Jaypur) suffered the loss of 66 temples". Through destruction of temples, imposition of 'Jazia' and mass conversion to Islam, Aurangzeb meant to struck(73) at the very existence of the Hindus. The Mughal rule, even after its stay for the past 150 years, was a foreign rule after all !
+Thus forgetting all their past services rendered to the Empire and all their blood-shed in external as well internal sturggles, Aurangzeb thrust upon the Rajputs a cruel war only to convert "dar-ul-harb"(71) (the Hindu States in his Empire) into 'dar-ul-islam' i.e. realm of Islam. "The Rajputs suffered(72) all the horrors of war in their most extreme form. Many temples were demolished" at or near Udaypur 123, and at Chitod 63 temples were over-thrown. The friendly State of Ambar (Jaypur) suffered the loss of 66 temples". Through destruction of temples, imposition of 'Jazia' and mass conversion to Islam, Aurangzeb meant to struck(73) at the very existence of the Hindus. The Mughal rule, even after its stay for the past 150 years, was a foreign rule after all !
 
 (x) The Rajput War
 
@@ -283,7 +283,7 @@ In his letter dated October 16, 1708 to Chhatrasal(91) , Jai Singh wrote that th
 
 The Emperor(92) was extremely displeased with the Hindus of the North. After completing his work in in Deccan, he began to march towards North, with the determination to lay waste the lands of the Rajputs. The Rajput Vakil with the Emperor wrote to Sawai Jaysing to be fully prepared with forces and to intimate Ajitsing accordingly. The Udaypur Rana (93) urged Jaysing and Ajitsing to come with forces.
 
-The Rajput showed perfect unity this time. They were determined to free Rajasthan from the Mughals. They laid claim on Ajmer(94) , bikaner, Kishangadh, Palanpur, Jaisalmer, Kasaba Jodhpur, Medta, Sojat, Jataran, Jalor, Siwana, Falodhi, Sanchor, Bhinmal and asked Asafddaula Zulfikar Khan, Khan Khanan and Khan Zaman, the influencial persons of the Court, to vacate these places. Ajitsing wrote the he was determined to get these places vacated and if needed to fight for them. If the Emperor declined, he was determined to leave the Mansaab. ("�b�~b" D �bDC �bC �NDPk n>bC�>Db �TkNJ "�") Of the Mughal diplomats Asafuddaula(95) in particular, it seems, was not inclined to allow the matter to got to extremes. But the Rajputs had no belief in any of them. ("�C �N�T n>C, "�b� kb"Db �T� DC �b��bC ��Jk �C�Pa" ) They perfectly realized that they would not be able to achieve their object of freedom unless they combined. The Emperor was marching towards North with his guns and forces. Though he had written to Ajitsing to keep patience, the latter suspected treachery behind his coming to Rajasthan ("|"b�C �C �a� � �ٳ^> ��bC Da���b�C n>� ") He was determined to oppose the Mughals and asked all the Rajput's to collect forces, irresective of the result. ("���a PNDa �T� �� D� ��a�� BC�a �T� �C �n>� �a �Tb��b� kLPa PN kLb�Pb D�" ) Ajitsing in particular was so disguested with the Mughal yoke that he declared that instead of serving the Mughal Emperor, he would have liked to serve a mere Rawat ("�b�~b"a �b�T�a n>bC�>C D� �b�J��C �Tk�C�C �b�T�a �T�Pb}" ).
+The Rajput showed perfect unity this time. They were determined to free Rajasthan from the Mughals. They laid claim on Ajmer(94) , bikaner, Kishangadh, Palanpur, Jaisalmer, Kasaba Jodhpur, Medta, Sojat, Jataran, Jalor, Siwana, Falodhi, Sanchor, Bhinmal and asked Asafddaula Zulfikar Khan, Khan Khanan and Khan Zaman, the influencial persons of the Court, to vacate these places. Ajitsing wrote the he was determined to get these places vacated and if needed to fight for them. If the Emperor declined, he was determined to leave the Mansaab. (""b"~b" D "bDC "bC "NDPk n>bC">Db "TkNJ """) Of the Mughal diplomats Asafuddaula(95) in particular, it seems, was not inclined to allow the matter to got to extremes. But the Rajputs had no belief in any of them. (""C "N"T n>C, ""b" kb"Db "T" DC "b""bC ""Jk "C"Pa" ) They perfectly realized that they would not be able to achieve their object of freedom unless they combined. The Emperor was marching towards North with his guns and forces. Though he had written to Ajitsing to keep patience, the latter suspected treachery behind his coming to Rajasthan ("|"b"C "C "a" " "ٳ^> ""bC Da"""b"C n>" ") He was determined to oppose the Mughals and asked all the Rajput's to collect forces, irresective of the result. (""""a PNDa "T" "" D" ""a"" BC"a "T" "C "n>" "a "Tb""b" kLPa PN kLb"Pb D"" ) Ajitsing in particular was so disguested with the Mughal yoke that he declared that instead of serving the Mughal Emperor, he would have liked to serve a mere Rawat (""b"~b"a "b"T"a n>bC">C D" "b"J""C "Tk"C"C "b"T"a "T"Pb}" ).
 
 The Rajputs(96) were thus fully determined to face the might of the Mughals. According to the orders of Sawal Jaysing(97) when the Rajput force was about to besiege Tonk, the Muslim officer Muhammad Khan fled and thus the city and pargana of Tonk was captured. Ajitsing drove the Muslims from Raypur and took hold of Sambhar.
 
@@ -308,11 +308,11 @@ Sawai Jaysing (1699-1743 A.D.) had served the Emperor Aurangzeb(112) in Deccan i
 
 (4) I have taken the help of chapters XIV & XV in 'Vedic Age', by A. D. Pusalkar, to construct the traditional history of Rajasthan.
 
-(5)� 'Mahabharat, Vana Paerva' - Ch. 202.
+(5)" 'Mahabharat, Vana Paerva' - Ch. 202.
 
 (6) 'The Combridg History of India', Vol, I, P. 282.
 
-(7)� 'The Age of Imperial Unity', p. 221.
+(7)" 'The Age of Imperial Unity', p. 221.
 
 (8) 'The Cambridge History of Inida', Vol, I, p. 152, 'The Age of Imperial Unity', p. II
 
@@ -320,9 +320,9 @@ Sawai Jaysing (1699-1743 A.D.) had served the Emperor Aurangzeb(112) in Deccan i
 
 (10) 'The Cambridge History of India', Vol. I, Pp. 279, 424. Dr. R.K. Mukharji gives 324 B.C., as the year of the foundation of the Maurya Empire, 'The Age of Imperial Unity', pp. 38,49.
 
-(11)� 'Rajasthan Through the Ages, pp. 48, 49.
+(11)" 'Rajasthan Through the Ages, pp. 48, 49.
 
-(12)� 'The Early History of India', p. 158.
+(12)" 'The Early History of India', p. 158.
 
 (13)'The Cambridge History of India', Vol, I. P. 466.
 
@@ -334,7 +334,7 @@ Sawai Jaysing (1699-1743 A.D.) had served the Emperor Aurangzeb(112) in Deccan i
 
 (17) 'India in the time of Patanjali', p. 58.
 
-(18)� 'The Age of Imperial Unity', p. 118.
+(18)" 'The Age of Imperial Unity', p. 118.
 
 (19) Ibid, p. 144.
 
@@ -444,7 +444,7 @@ Sawai Jaysing (1699-1743 A.D.) had served the Emperor Aurangzeb(112) in Deccan i
 
 (72) 'The Oxford Hist of India', p. 419, 'The Cambridge Hist. of India', Vol. IV, p. 241.
 
-(73) "If the poorer among them discovered that it took away the bulk of their income and thus rendered it impossible for them to maintain themselves, that was none of his business. If they wanted to evade its payment, the way was open to them. They could accept the true faith and escape this burden found it too irksome to bear�
+(73) "If the poorer among them discovered that it took away the bulk of their income and thus rendered it impossible for them to maintain themselves, that was none of his business. If they wanted to evade its payment, the way was open to them. They could accept the true faith and escape this burden found it too irksome to bear"
 
 If manucci is to be believed, it was Aurangzeb's intention to use it for spreading the Muslim religion among his subjects". - 'The religious policy of the Mughal Emperor's by Sri Ram Sharma, pp. 158,159.
 
@@ -478,13 +478,13 @@ If manucci is to be believed, it was Aurangzeb's intention to use it for spreadi
 
 (88) 'Vakil Reports' II, 425,458,460, 'Jaypur Kharitas' 4-1.
 
-(89) '�bC k�P BC�b �"b' - 'Jaypur Kharitas', 7-18 also 16 and 17., Mar. Riya. 5, p. 128.
+(89) '"bC k"P BC"b ""b' - 'Jaypur Kharitas', 7-18 also 16 and 17., Mar. Riya. 5, p. 128.
 
 (90) Life and times of Sawai Jai Singh by Dr. V.S. Bhatnagar, pp. 59 and 60.
 
 (91) Life and times of Sawai Jai Singh by Dr. V. S. Bhatnagar, p. 64.
 
-(92) "<"}���bh�bC k"bC� P��a �T� D�� n>�" Jaypur Records, Mar.-Papers - 159. 'Munt. Lubab' in E.D. Vol. II - p. 420, 'Wakil Reports' I - 959.
+(92) "<"}"""bh"bC k"bC" P""a "T" D"" n>"" Jaypur Records, Mar.-Papers - 159. 'Munt. Lubab' in E.D. Vol. II - p. 420, 'Wakil Reports' I - 959.
 
 (93) 'Jaypur Kharitas', 6-1 7-5.
 
