@@ -458,7 +458,7 @@ While keeping the road of negotiations (9) still open to their advantage, and fo
 
 The blockade was so thorough and the means so effective (11) that on the day of the fight grain in Mahadaji's camp was sold four seers a rupee. It was another Panipat for the Marathas with a superior force in number to face, and an atmosphere of starvation and suspicion in their camp. It is no wonder that with every day adding to his difficulties, Mahadaji grew bitterer vowed never to accept money but to devastate Jaypur (12) and Jodhpur both.
 
-On 19th July Mahadaji received a written challenge from Jaypur King (13), calling him to fight a pitched battle into open, out of the shelter of guns. Mahadaji told Rana Khan, Ambaji, Khanderao and the rest that if he made terms with the Jaypur Raja, he would not be able to show his face in all Hindusthan "A man will not live for ever; come what may!". The Sardars said that unless he paid money, the soldiers would not fight well, up till then they had paid their soldiers by selling their property and equipment. Mahadaji padi rupees 20 thousand to them but non-would accept.
+On 19th July Mahadaji received a written challenge from Jaypur King (13), calling him to fight a pitched battle into open, out of the shelter of guns. Mahadaji told Rana Khan, Ambaji, Khanderao and the rest that if he made terms with the Jaypur Raja, he would not be able to show his face in all Hindusthan "A man will not live for ever; come what may!". The Sardars said that unless he paid money, the soldiers would not fight well, up till then they had paid their soldiers by selling their property and equipment. Mahadaji paid rupees 20 thousand to them but non-would accept.
 
 On 22nd Ambaji sent Daulatram's letter (14) to Mahadaji but he returned it saying "If after bearing the heavy expenses for six months in such humiliation, I accept tribute from Jaypur Raja, the other Rajas too would behave in the same way. Without fighting a battle tribute can not be accepted."
 
@@ -592,7 +592,7 @@ On 21st December 1787 A.D., he explained (45) the reasons of his retreat in a le
 
 Thus the heroic exertions for five months, after his retreat from Lalsot to maintain against the combined might of the Rajputs, Mughalias and the Rohillas failed at last. This was mainly because he had no funds and because, the small number of half hearted Deccani force, eager to return their homes, was worthless to face the powerful and emboldened enemies that dominated him. By the end of 1787 A.D., with his retreat beyond Chambal, the eclipse of his power that thad begun with the Rajput threat that compelled him to give a fight and then retreat from Lalsot, was complete. Even though, he never lost hopes of regaining power and teaching a lesson to the Rajputs, the possibility of the fulfillment of his determination was remote unless a strong army came to his assistance from Deccan. Now he had nothing beyond Chambal excepting the fort of Agra, held precariously and his two friends namely the Rao Raja of Machhedi and the Jat Raja of Bharatpur who were both threatened by the Jaypur King and the Mughalias respectively for their friendship with him.
 
-###  The Rajputs Fall to Dominate Delhi 
+###  The Rajputs Fail to Dominate Delhi 
 
 After Mahadaji had (46) finally crossed Chambal, the Jaypur King with the Jodhpur Bakshi, was busy in reducing the Rao Raja's forts of Harwa, Basi and Satur and setting up posts in his mahals. He was encamped at Sursi, thirty kos from Delhi, in the District of Narnaul.
 
@@ -659,7 +659,10 @@ Ibid - p. 9.
 Jodhpur letters - 3.
 
 (9)
-The King of Jodhpur wrote Mahadaji through Rana Khan "Jayur and Jodhpour are both the kingdoms and Hindus. Till now, even the Musalmans have not disturbed us. Your are a Hindu. We also wish that there should be a Hindu rule (at Delhi) and our kingdoms be protected. But your are seizing our kingdoms. This is no good. You should take (your) Khandani and take back your force from our kingdoms" - Mar. Riya. Vol. II (U.V.) - p. 12
+The King of Jodhpur wrote Mahadaji through Rana Khan
+
+> Jaypur and Jodhpour are both the kingdoms and Hindus. Till now, even the Musalmans have not disturbed us. Your are a Hindu. We also wish that there should be a Hindu rule (at Delhi) and our kingdoms be protected. But your are seizing our kingdoms. This is no good. You should take (your) Khandani and take back your force from our kingdoms.  
+> - Mar. Riya. Vol. II (U.V.) - p. 12
 
 (10)
 M.D. II-147.
