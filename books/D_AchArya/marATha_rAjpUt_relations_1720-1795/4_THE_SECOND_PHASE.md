@@ -296,7 +296,7 @@ Wazir Safdar Jang held the Subhas of Allahabad and Oudh. The Rohillas of Barelli
 
 The Pathans rose against the Wazir in 1749 (4). The next year, they suddenly attacked his camp near Farrukhabad and on 3rd of August, killed his Bakshi Nawalray and plundered his whole camp. Safdar Jang fought (5) a severe battle near Farrukhabad on 12th September 1750, to save his territory, but the Pathans defeated him thoroughly. They then plundered (6) his capital, Lucknow, burnit and plundered the city Allahabad, took possession of Jaunpur and Gazipur and then marched on Benaras by crossing Ganga.
 
-In sore distress Safdar Jang sent his personal agents " Rajaram Narayan (7) and Jugul Kishor to the Marathas inviting them speedily for his help. After settling their work at Jaypur Malharrao and Jayappa proceeded (8) to join him and met him on 2nd March 1751 A.D. It was settled that they should be paid rupees 25 thousand per day (9) for help.
+In sore distress Safdar Jang sent his personal agents Rajaram Narayan (7) and Jugul Kishor to the Marathas inviting them speedily for his help. After settling their work at Jaypur Malharrao and Jayappa proceeded (8) to join him and met him on 2nd March 1751 A.D. It was settled that they should be paid rupees 25 thousand per day (9) for help.
 
 In March and April 1751 A.D., the Marathas exerted so vigorously that the Rohillas and the Pathans were routed (10) completely. Wrote Govind Pant bundele (11) , "Ahmad Khan met the fate he deserved on the banks of Ganga. Had he not been so routed, the Marathas would have lost their labours and acquisitions of former years. The most faithless of all the Pathans, Turai Khan had joined Ahmad Khan Bangash and was killed with all his followers."
 

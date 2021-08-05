@@ -33,6 +33,11 @@ Examples:
 - Soemtimes, a pro-hindu person that takes it for an attempted demonstration of absurdity can go and point out the misrepresentation.
   - In my (pre-Modi) experience, many news outlets which publish silly anti-hindu pieces don't do that - they disallow all pro-hindu comments; or adapt a more sinister strategy - disallow all intelligent and measured pro-hindu comments while allowing ones with bad grammar and abuses.
 
+### Double standards
+The rags practice double standards when reporting on Hindus and their polity.
+
+Cause: There is subconscious distrust & revulsion of our religion all across the political spectrum by many in the "Abrahamic" world because we're polytheists. As a Hindu you are already disliked by them; you just have to make one mistake to be publically castigated.
+
 ## Problem distribution
 - Opindia publishes periodic fake news reports covering prominent rags from Indian and abroad. See the [examples page](../opindia_fake_news_examples_16_18/).
 - MT's observations: [MT-2014](https://manasataramgini.wordpress.com/2014/10/25/a-geopolitical-segment-the-news-traders/).
