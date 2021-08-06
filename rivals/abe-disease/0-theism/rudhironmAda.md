@@ -40,6 +40,7 @@ This, of course, runs counter to hindu ethos:
 
 ## Strains
 - In the old hard strain (ur1) - Dictatorship of the proletariat. Examples: Soviet state. Khmer Rouge. Naxals.
+  - Karl Marx is himself the child of a Jewish (a strongly prophetic tradition) family of rabbis. So it's not surprising Marx drew on it in attacking "injustice".
 - In newer strains (ur2) - Mixture with econolatory (see [main page](../) for intro). 
   - Examples: (Social Justice warriors) SJW-s of Soros who participated in 2020 US Race riots and more. Venus project. Urban naxals of India.
 - SJW
