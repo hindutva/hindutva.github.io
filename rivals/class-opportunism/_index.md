@@ -17,7 +17,15 @@ Their misguided attempts derive from various misunderstandings. In their deeply 
 Sometimes class opportunism is combined with native spiritual movements. See [Ananda addiction page](../aananda-addiction/).
 
 ## Dalitism
-As an archetype, bhIm rAv [ambeDkar](../../https://en.wikipedia.org/wiki/B._R._Ambedkar), who strived for respect and opportunities for the untouchable jAti-s (sAvarkar on him: [img1](http://i.imgur.com/fhQO1Yf.jpg)) \- even at the cost of hinduism or Indian independence. More in the [Heroes page listing](../history/persons/).
+As an archetype, bhIm rAv [ambeDkar](https://en.wikipedia.org/wiki/B._R._Ambedkar), who strived for respect and opportunities for the untouchable jAti-s - even at the cost of hinduism or Indian independence.
+
+### SC-ST Atrocities act 1989
+- Souce [here](https://tribal.nic.in/actRules/preventionofAtricities.pdf).
+- This evil legislation is like blasphemy laws in Muslim countries. In both cases, just speaking can lead to punishment (which is not necessarily death penalty). See 3(r) of the act. 
+- Heavily misused
+  - Only 0.67% of SC-ST act cases found true in court trials, Government data says.
+  - Prominent examples include: viShNu tiwArI case. [FD List](https://twitter.com/Shubham_fd). 
+- Huge damage to देश - perfect tool for विधर्मि-s.
 
 ## Regional forms
 ### Dravidianism/ Lemurism
