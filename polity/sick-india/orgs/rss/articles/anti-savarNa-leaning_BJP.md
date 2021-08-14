@@ -1,5 +1,5 @@
 +++
-title = "Anti-savarNa leaning"
+title = "Anti-savarNa leaning: BJP"
 +++
 
 Author: Gautama
