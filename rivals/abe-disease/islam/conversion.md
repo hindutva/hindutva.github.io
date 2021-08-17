@@ -2,17 +2,39 @@
 title: Conversion
 ---
 
+Counter-conversion considered elsewhere.
 
-## How Islam attracts and retains converts
+## Classical Conversion causes
+- Inducement and threats
+- Egalitarianism/ "freedom from caste" theory doesn't hold water.
+    - Missionaries focus(ed) on high caste hindus.
+    - Huge "dalit" population present in the heart of muslim power - Delhi, UP, Panjab.
+- Sufi effect has been relatively small. (Dead sufi more powerful than a living sufi!)
+- Migration effect is tiny as well (verifiable by genetic studies).
 
-- Examples of converts are noted [here](../../../../hinduism/benefits/).
+Muslim sources: dAwah / invitation → tabligh / preaching → isla/ become muslim in the mould of mo.
 
-### Inducement from power
+Synthesis by Sarvesh Tiwari
+
+- After inducment and threat - nominal converts.
+- Then sufi comes in, consoles and makes them "proper".
+- Then qAzi comes in - makes them even more "proper".
+
+## Vectors
+- Muhammad
+- Salaf - Sahabah / companions of muhammad, folks who knew them - Tabi‘un, folks who know Tabi‘un -  Tabi‘ al-Tabi‘in.
+- Imams
+- kalif-s
+- Wali-s / mystics
+- Leaders of purification movements.
+- ghazi-s and mujAhid-s
+
+## Inducement and threat
 - Communal benefits and threats
     - A brotherhood among the ummah
     - By threats and love marriages.
 
-### Ideology
+## Ideology
 - Philosophical simplicity
     - 1 jealous god who stands apart, 1 devil, 1 final prophet, simple afterlife and origin stories, almost no image veneration
 - Simple practice
@@ -59,13 +81,3 @@ title: Conversion
 - Ambedkar famously [pointed](http://www.ambedkar.org/pakistan/40C.Pakistan%20or%20the%20Partition%20of%20India%20PART%20II.htm) out:
     - As the invasions were accompanied with. destruction of temples and forced conversions, with spoliation of property, with slaughter, enslavement and abasement of men, women and children, what wonder if the memory of these invasions has ever remained green, as a source of pride to the Muslims and as a source of shame to the Hindus ?
     - The only way to make Hindustan homogeneous is to arrange for exchange of population. Until that is done, it must be admitted that even with the creation of Pakistan, the problem of majority vs. minority will remain in Hindustan as before and will continue to produce disharmony in the body politic of Hindustan.
-
-## Vectors
-- Muhammad
-- Salaf - Sahabah / companions of muhammad, folks who knew them - Tabi‘un, folks who know Tabi‘un -  Tabi‘ al-Tabi‘in.
-- Imams
-- kalif-s
-
-- Wali-s / mystics
-- Leaders of purification movements.
-- ghazi-s and mujAhid-s

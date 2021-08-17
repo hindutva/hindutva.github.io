@@ -29,6 +29,27 @@ title: Types
 - Deobandis spawned Tablighi Jama’at, Taliban.
 - Barelvis have Dawat-i-islami.
 
+### Numbers
+100 million in 1941. One third of the population?
+
+
+
+### Indian muslim contribution to global ummah
+- Ships loaded with gifts - stampedes in mecca.
+- Employment preference
+- Khilafat movement
+- Hejaz railway funding
+- Protests for global muslims
+
+### Anti british movements
+- Popular impression: Nationalist anti-british freedom fighters. Actually - khilAfat is often their primary objective.
+- shAh waliullah's biographers oft omitted unpalatable parts of his letters while producing translations - Rizvi comments on it by comparing Persian originals. [ST_YT1](https://youtu.be/ia_puSJRxlI?t=3450)
+
+### Ahmadiyyas
+- Since they claim their founder as imAm mahdi, they're rejected by the rest. But then various islamic sects call each other kAfir-s.
+- As fundamentalist as rest of sunni-s since the origin. Eg - paNDit lekhrAm's murderer.
+- Very polemical against kAfirs.
+
 ## Political demography of muslims
 
 - WikiIslam statistics [here](http://wikiislam.net/wiki/Muslim_Statistics).
