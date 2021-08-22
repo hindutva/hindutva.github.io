@@ -27,6 +27,7 @@ At one time, Hindutva was focused on opposing the Partition of India. Hindutva e
 
 The focus of Hindutva, post-Independence, has primarily been Indian culture and the Indian nation. The Hindutva Hindu culture is the representation of the Indic tradition. Politically, the Hindutva notion is about “Hindu Rashtra,” not the “Hindu Raj.” Girilal Jain (The Hindu Phenomenon, 1996) explains the difference between “Rashtra” and “Raj” in terms of “nationalism” vs. “statism.” However, these subtleties aren’t always easy to explain, especially to ignorant or lazy scholars-commentators.
 
+## An attack tool
 Notwithstanding the History, evolution, and its current formulation, Hindutva has become a tool in attacking Hindus who assert their cultural, religious, and political identity. These days, it is impossible to talk about Hinduism in favorable terms without being accused of being a Hindutva-vadi. In such a discourse, Hindutva is misused as a euphemism for Hindu supremacy, Fascism/Nazism, right-wing, Hindu nationalism, etc.
 
 “As soon as one speaks up for Hinduism,” according to scholar-activist Sankrat Sanu, “one would be dubbed “Hindutva” and demonized in the “secular” discourse.” For Sanu, Hiduvta is “Hinduism that resists.” According to Vishwa Adluri and Joydeep Bagchee (Cry Hindutva: How Rhetoric Trumps Intellect in South Asian Studies), crying Hindutva in academic circles is an effort to “discipline non-conforming [Hindu] scholars.”
