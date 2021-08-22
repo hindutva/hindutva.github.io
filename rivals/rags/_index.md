@@ -66,7 +66,9 @@ It is natural for NYT, Newyorker, BBC etc.. to write from the perspective of USA
 - Ideological anti-hindu bias - socialist, leftist, islamic, leukospheric etc..
   - Audience expectations.
 - Some of it is due to the mlecCha-s' lack of context combined with undue vehemence - also discussed [here](../academia/charges/).
-- Money - sensationalism sells.
+- Money 
+  - sensationalism sells.
+  - Propaganda funding from military industry, energy companies etc..
 
 
 ### Psy-ops connection
@@ -74,6 +76,9 @@ It is natural for NYT, Newyorker, BBC etc.. to write from the perspective of USA
 - Who pulls the strings deep behind the scenes? See the [psyops page](../../polity/sick-india/subversion/).
 - Prominent examples from the past
     - Spanish American war 19cen ([wiki](https://en.wikipedia.org/wiki/Propaganda_of_the_Spanish%E2%80%93American_War)).
+
+
+
 
 ## Alternatives
 
