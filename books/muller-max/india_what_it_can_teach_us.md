@@ -1,7 +1,7 @@
 +++
 title = "India: What can it teach us?"
 +++
-## Front-matter
+## 0 Front-matter
 INDIA: WHAT CAN IT TEACH US?
 
 A Course of Lectures DELIVERED BEFORE THE UNIVERSITY OF CAMBRIDGE BY F. MAX MÜLLER, K.M.
@@ -66,7 +66,7 @@ ALEXANDER WILDER.
 Newark, N. J., May 14th, 1883.
 
 
-## WHAT CAN INDIA TEACH US?
+## 1 WHAT CAN INDIA TEACH US?
 
 When I received from the Board of Historical Studies at Cambridge the invitation to deliver a course of lectures, specially intended for the candidates for the Indian Civil Service, I hesitated for some time, feeling extremely doubtful whether in a few public discourses I could say anything that would be of real use to them in passing their examinations. To enable young men to pass their examinations seems now to have become the chief, if not the only object of the universities; and to no class of students is it of greater importance to pass their examinations, and to pass them well, than to the candidates for the Indian Civil Service.
 
@@ -254,7 +254,7 @@ The names employed in the Hebrew text of the Bible are said to be Tamil.—A. W.
 
 * * *
 
-## Truthful Character of the Hindus.
+## 2 Truthful Character of the Hindus.
 
 In my first Lecture I endeavored to remove the prejudice that everything in India is strange, and so different from the intellectual life which we are accustomed to in England, that the twenty or twenty-five years which a civil servant has to spend in the East seem often to him a kind of exile that he must bear as well as he can, but that severs him completely from all those higher pursuits by which life is made enjoyable at home. This need not be so and ought not to be so, if only it is clearly seen how almost every one of the higher interests that make life worth living here in England, may find as ample scope in India as in England.
 
@@ -692,7 +692,7 @@ Ludlow ("British India," I. 62) writes: "In every Hindu village which has retain
 
 * * *
 
-## HUMAN INTEREST OF SANSKRIT LITERATURE.
+## 3 HUMAN INTEREST OF SANSKRIT LITERATURE.
 
 My first lecture was intended to remove the prejudice that India is and always must be a strange country to us, and that those who have to live there will find themselves stranded, and far away from that living stream of thoughts and interests which carries us along in England and in other countries of Europe.
 
@@ -1022,7 +1022,7 @@ Astronomy was also studied. Âryabhatta the elder had described the earth as mak
 
 * * *
 
-## OBJECTIONS.
+## 4 OBJECTIONS.
 
 It may be quite true that controversy often does more harm than good, that it encourages the worst of all talents, that of plausibility, not to say dishonesty, and generally leaves the world at large worse confounded than it was before. It has been said that no clever lawyer would shrink from taking a brief to prove that the earth forms the centre of the world, and, with all respect for English juries, it is not impossible that even in our days he might gain a verdict against Galileo. Nor do I deny that there is a power and vitality in truth which in the end overcomes and survives all opposition, as shown by the very doctrine of Galileo which at present is held by hundreds and thousands who would find it extremely difficult to advance one single argument in its support. I am ready to admit also that those who have done the best work, and have contributed most largely toward the advancement of knowledge and the progress of truth, have seldom wasted their time in controversy, but have marched on straight, little concerned either about applause on the right or abuse on the left. All this is true, perfectly true, and yet I feel that I cannot escape from devoting the whole of a lecture to the answering of certain objections which have been raised against the views which I have put forward with regard to the character and the historical importance of Vedic literature. We must not forget that the whole subject is new, the number of competent judges small, and mistakes not only possible, but almost inevitable. Besides, there are mistakes and mistakes, and the errors of able men are often instructive, nay one might say sometimes almost indispensable for the discovery of truth. There are criticisms which may be safely ignored, criticisms for the sake of criticism, if not inspired by meaner motives. But there are doubts and difficulties which suggest themselves naturally, objections which have a right to be heard, and the very removal of which forms the best approach to the stronghold of truth. Nowhere has this principle been so fully recognized and been acted on as in Indian literature. Whatever subject is started, the rule is that the argument should begin with the pûrvapaksha, with all that can be said against a certain opinion. Every possible objection is welcome, if only it is not altogether frivolous and absurd, and then only follows the uttarapaksha, with all that can be said against these objections and in support of the original opinion. Only when this process has been fully gone through is it allowed to represent an opinion as siddhânta, or established.
 
@@ -1224,7 +1224,7 @@ B4: Lassen, vol. i. p. 1029, n. 2.
 
 * * *
 
-## THE LESSONS OF THE VEDA.
+## 5 THE LESSONS OF THE VEDA.
 
 Although there is hardly any department of learning which has not received new light and new life from the ancient literature of India, yet nowhere is the light that comes to us from India so important, so novel, and so rich as in the study of religion and mythology. It is to this subject therefore that I mean to devote the remaining lectures of this course. I do so, partly because I feel myself most at home in that ancient world of Vedic literature in which the germs of Aryan religion have to be studied, partly because I believe that for a proper understanding of the deepest convictions, or, if you like, the strongest prejudices of the modern Hindus, nothing is so useful as a knowledge of the Veda. It is perfectly true that nothing would give a falser impression of the actual Brahmanical religion than the ancient Vedic literature, supposing we were to imagine that three thousand years could have passed over India without producing any change. Such a mistake would be nearly as absurd as to deny any difference between the Vedic Sanskrit and the spoken Bengali. But no one will gain a scholarlike knowledge or a true insight into the secret springs of Bengali who is ignorant of the grammar of Sanskrit; and no one will ever understand the present religious, philosophical, legal, and social opinions of the Hindus who is unable to trace them back to their true sources in the Veda.
 
@@ -1594,7 +1594,7 @@ What we want for a proper understanding of our verse, are passages where we have
 
 * * *
 
-## VEDIC DEITIES.
+## 6 VEDIC DEITIES.
 
 The next important phenomenon of nature which was represented in the Veda as a terrestrial deity is Fire, in Sanskrit Agni, in Latin _ignis_. In the worship which is paid to the Fire and in the high praises bestowed on Agni we can clearly perceive the traces of a period in the history of man in which not only the most essential comforts of life, but life itself, depended on the knowledge of producing fire. To us fire has become so familiar that we can hardly form an idea of what life would be without it. But how did the ancient dwellers on earth get command and possession of fire? The Vedic poets tell us that fire first came to them from the sky, in the form of lightning, but that it disappeared again, and that then Mâtari_s_van, a being to a certain extent like Prometheus, brought it back and confided it to the safe keeping of the clan of the Bh_r_igus (Phlegyas).[^221]
 
@@ -1724,21 +1724,21 @@ Another representative of the highest heaven, as covering, embracing, and shield
 
 I shall read you one of the hymns addressed to him:[^255]
 
-"Let us be blessed in thy service, O Varu_n_a, for we always think of thee and praise thee, greeting thee day by day, like the fires lighted on the altar, at the approach of the rich dawns."    2.
+"Let us be blessed in thy service, O Varu_n_a, for we always think of thee and praise thee, greeting thee day by day, like the fires lighted on the altar, at the approach of the rich dawns."2.
 
-"O Varu_n_a, our guide, let us stand in thy keeping, thou who art rich in heroes and praised far and wide! And you, unconquered sons of Aditi, deign to accept us as your friends, O gods!"    3.
+"O Varu_n_a, our guide, let us stand in thy keeping, thou who art rich in heroes and praised far and wide! And you, unconquered sons of Aditi, deign to accept us as your friends, O gods!"3.
 
-"Âditya, the ruler, sent forth these rivers; they follow the law of Varu_n_a. They tire not, they cease not; like birds they fly quickly everywhere."    4.
+"Âditya, the ruler, sent forth these rivers; they follow the law of Varu_n_a. They tire not, they cease not; like birds they fly quickly everywhere."4.
 
-"Take from me my sin, like a fetter, and we shall increase, O Varu_n_a, the spring of thy law. Let not the thread be cut while I weave my song! Let not the form of the workman break before the time!    5.
+"Take from me my sin, like a fetter, and we shall increase, O Varu_n_a, the spring of thy law. Let not the thread be cut while I weave my song! Let not the form of the workman break before the time!5.
 
-"Take far away from me this terror, O Varu_n_a; Thou, O righteous king, have mercy on me! Like as a rope from a calf, remove from me my sin; for away from thee I am not master even of the twinkling of an eye."    6.
+"Take far away from me this terror, O Varu_n_a; Thou, O righteous king, have mercy on me! Like as a rope from a calf, remove from me my sin; for away from thee I am not master even of the twinkling of an eye."6.
 
-"Do not strike us, Varu_n_a, with weapons which at thy will hurt the evil-doer. Let us not go where the light has vanished! Scatter our enemies, that we may live."    7.
+"Do not strike us, Varu_n_a, with weapons which at thy will hurt the evil-doer. Let us not go where the light has vanished! Scatter our enemies, that we may live."7.
 
-"We did formerly, O Varu_n_a, and do now, and shall in future also, sing praises to thee, O mighty one! For on thee, unconquerable hero, rest all statutes, immovable, as if established on a rock."    8.
+"We did formerly, O Varu_n_a, and do now, and shall in future also, sing praises to thee, O mighty one! For on thee, unconquerable hero, rest all statutes, immovable, as if established on a rock."8.
 
-"Move far away from me all self-committed guilt, and may I not, O king, suffer for what others have committed! Many dawns have not yet dawned; grant us to live in them, O Varu_n_a."    9.
+"Move far away from me all self-committed guilt, and may I not, O king, suffer for what others have committed! Many dawns have not yet dawned; grant us to live in them, O Varu_n_a."9.
 
 You may have observed that in several verses of this hymn Varu_n_a was called Âditya, or son of Aditi. Now Aditi means _infinitude_, from _dita_, bound, and _a_, not, that is, not bound, not limited, absolute, infinite. Aditi itself is now and then invoked in the Veda, as the Beyond, as what is beyond the earth and the sky, and the sun and the dawn—a most surprising conception in that early period of religious thought. More frequently, however, than Aditi, we meet with the Âdityas, literally the sons of Aditi, or the gods beyond the visible earth and sky—in one sense, the infinite gods. One of them is Varu_n_a, others Mitra and Aryaman (Bhaga, Daksha, A_ms_a), most of them abstract names, though pointing to heaven and the solar light of heaven as their first, though almost forgotten source.
 
@@ -1846,7 +1846,7 @@ Only let us be careful in the use of that phrase "it is a mere name." No name is
 
 * * *
 
-## VEDA AND VEDANTA.
+## 7 VEDA AND VEDANTA.
 
 I do not wonder that I should have been asked by some of my hearers to devote part of my last lecture to answering the question, how the Vedic literature could have been composed and preserved, if writing was unknown in India before 500 b.c., while the hymns of the Rig-Veda are said to date from 1500 b.c. Classical scholars naturally ask what is the date of our oldest MSS. of the Rig-Veda, and what is the evidence on which so high an antiquity is assigned to its contents. I shall try to answer this question as well as I can, and I shall begin with a humble confession that the oldest MSS. of the Rig-Veda, known to us at present, date not from 1500 b.c., but from about 1500 a.d.
 
