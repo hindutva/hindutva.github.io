@@ -4,7 +4,7 @@ title = "+Stock taking of sangh parivAr"
 +++
 ------------------------------------------------------------------------
 
-# TIME FOR STOCK TAKING
+TIME FOR STOCK TAKING
 
 **WHITHER SANGH PARIVAR?**  
  
@@ -15,8 +15,6 @@ title = "+Stock taking of sangh parivAr"
 **Voice of India, New Delhi**
 
 ------------------------------------------------------------------------
-
-![](tfst.jpg)
 
 **Contents**
 
@@ -140,6 +138,3 @@ APPENDIX – II: **Shape of Things to Come**
  
 
 ------------------------------------------------------------------------
-
-**[Back to Home](http://voiceofdharma.org)   [Back to VOI
-Books](http://voiceofdharma.org/books)   [Back to Top](#top)**
