@@ -23,12 +23,27 @@ title: USA
 - patriotic "manifest destiny" core
     - Push the false claim: Western ethics = human rights.  
 
-### Regarding India  
+## Country policies
+### India
 - Hindu thought has penetrated US pop culture (though not the core). So, India is worthy of being a "cool" satellite to the US core. \[See [American Veda](http://americanveda.com/), for details.\]
-- USA wants subservient powers in the region to offset China. It is averse to India or Japan growing into assertive and powerful "equal" partners.
+
+#### Desiderata
+- USA wants subservient powers in the region to offset China. It is averse to India or Japan growing into assertive and powerful "equal" partners. "India is too big to exist, too unreliable to be an ally - a colonial society rapidly trying to indigenise. A billion plus people not just passively consuming western goods but also trying to compete with the West is a terrifying idea. A semi-colonial barely functional Nehruvian behemoth is borderline acceptable; atmanirbhar Bharat with a distinctive civilisational is certainly not."
 - Evangelical Abrahamist lobby is powerful. NGO's receiving funds from USAID and American public are active in suberting hindu culture and power. Example:
-    - They [were active](http://plus.url.google.com/url?sa=z&n=1388342848381&url=http%3A%2F%2Findia.blogs.nytimes.com%2F2013%2F12%2F05%2Fu-s-evangelicals-indian-expats-teamed-up-to-push-through-modi-visa-ban%2F%3Femc%3Dedit_tnt_20131205%26tntemail0%3Dy%26_r%3D1%26&usg=UL19d9G051BEu0wXCAZdk2_6fzs.) in denying narendra moDi a visa.
+    - They were active in denying narendra moDi a visa.
     - This influence has been explored in detail in ["Breaking India: Western Interventions in Dravidian and Dalit Faultlines".](http://www.breakingindia.com/)
+
+#### Balkanization project
+> The long term goal is balkanisation. Russia, China, India need to be needled, the best possible way is unrest on their borders (Source: https://threader.app/thread/1430184519345184772)
+
+### Pakistan
+Pakistan, since partition, has dutifully played the role it was created for: as a spoiler in the great game that is still in play. It's function (oft via jihAdis) is to destabilize India and certain other regional powers (Russia, China, Iran). The US has turned a blind eye to Pakistan grooming Taliban. 
+
+### Afghanistan
+The US has the best possible means of fomenting trouble in Iran, in Kashmir, in Central Asia, and possibly even China with just one move - let loose the Taliban. One of the goals of course is to balkanise India, in which Pakistan plays a key role.
+
+#### tAlibAn
+The US has turned a blind eye to Pakistan grooming Taliban. Does it not know what is plain to a child in the remotest village in Afghanistan? Of course it knows. Taliban is a rabid dog on a leash, and Pakistan the handler. To sow chaos it loosens the leash on occasion. (Source: https://threader.app/thread/1430184519345184772)
 
 ## Threat narrative
 - Growing economic and military might of China.
