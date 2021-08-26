@@ -31,7 +31,7 @@ title: USA
 - USA wants subservient powers in the region to offset China. It is averse to India or Japan growing into assertive and powerful "equal" partners. "India is too big to exist, too unreliable to be an ally - a colonial society rapidly trying to indigenise. A billion plus people not just passively consuming western goods but also trying to compete with the West is a terrifying idea. A semi-colonial barely functional Nehruvian behemoth is borderline acceptable; atmanirbhar Bharat with a distinctive civilisational is certainly not."
 - Evangelical Abrahamist lobby is powerful. NGO's receiving funds from USAID and American public are active in suberting hindu culture and power. Example:
     - They were active in denying narendra moDi a visa.
-    - This influence has been explored in detail in ["Breaking India: Western Interventions in Dravidian and Dalit Faultlines".](http://www.breakingindia.com/)
+    - This influence has been explored in detail in ["Breaking India: Western Interventions in Dravidian and Dalit Faultlines".](httकोp://www.breakingindia.com/)
 
 #### Balkanization project
 > The long term goal is balkanisation. Russia, China, India need to be needled, the best possible way is unrest on their borders (Source: https://threader.app/thread/1430184519345184772)
