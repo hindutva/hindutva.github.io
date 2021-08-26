@@ -5,13 +5,12 @@ title = "Witzel dossier"
 
 **Is Harvard Professor Michael Witzel a Hindu-Hater?**  
  **A CASE STUDY IN ACADEMIC HINDUPHOBIA**  
-**_Rev B (31 March 2009) _**
+**_Rev B (31 March 2009)_**
 
 By Vishal Agarwal and others.
 
 > “I always get misrepresented that I am a Hindu-hater, but I am not.”  
->
-Michael Witzel in _India Abroad_, issue dated 16 December 2005
+> Michael Witzel in _India Abroad_, issue dated 16 December 2005
 
 ## 00 
 ### DISCLAIMER
