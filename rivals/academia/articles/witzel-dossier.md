@@ -4,10 +4,11 @@ title = "Witzel dossier"
 
 
 **Is Harvard Professor Michael Witzel a Hindu-Hater?**  
-# **A CASE STUDY IN ACADEMIC HINDUPHOBIA**  
+ **A CASE STUDY IN ACADEMIC HINDUPHOBIA**  
 **_Rev B (31 March 2009) _**
 
-> “I always get misrepresented that I am a Hindu-hater, but I am not.”
+> “I always get misrepresented that I am a Hindu-hater, but I am not.”  
+>
 Michael Witzel in _India Abroad_, issue dated 16 December 2005
 
 ## 00 Foreword
@@ -44,25 +45,20 @@ To my mind, there is no doubt that Michael Witzel harbors a deep seated hatred a
 Practically every other month, Professor Witzel publishes a statement (in print or on the internet) that denigrates and stereotypes Indian-Americans. We are a hard-working and law-abiding community that has contributed immensely to the United States and reject such characterizations as prejudiced and hateful. We give the recent example of his stereotypical statements[^12]:
 
 
-> “Rajesh, I agree: The Hindus in North America (HINAs) are not just hiina, "lost, abandoned", but they (understandably) cling to their homeland in all manners they can come up with. "Reforming" our schoolbooks according to an imagined Golden Age (Ram Raj), hoary India is just one of the expressions we can observe.
+> “Rajesh, I agree: The Hindus in North America (HINAs) are not just hiina, "lost, abandoned", but they (understandably) cling to their homeland in all manners they can come up with. "Reforming" our schoolbooks according to an imagined Golden Age (Ram Raj), hoary India is just one of the expressions we can observe.  
+>
+> They also tell their daughters to study Classical Indian dance (not exactly a highly regarded occupation back home), they build many temples and have Sunday schools (as many other ethnicities do). But, they hardly invest in Higher Education as other successful Asians have done. Nor allow their children to study items outside Law or Medicine, such as Indian Studies, --- the only way that members of their group could speak with real authority (for example, in school books).  
+>
+> However, as they are NRIs ("non returning Indians", as I just learned from a Hindi movie), they have begun ---as an old, very conservative US Brahmin friend pointed out to me already in 1994—building crematoria as well.  
+>
+> And see that they children marry within the local caste of origin (preferably, as per advertisement, of "fair' or "wheatish" color), if necessary imported out of India. (I have represented in court for one unfortunate victim of such a cross-cultural RNI-Indian marriage).  
+>
+> Or at least, they look for a spouse within the same general Indian caste (jaati), or worse, class (varna), or worst, among any Indians.  They have seen too many of their children marry US people (whether of other Asian or of European descent; Blacks seem unthinkable). And loose their Hinduism, which second generation people just understand as "boaring rituals" (puja, etc.), temple visits and Indian (mythological) comic books ...  
+>
+> All such items add to the heady brew that we have seen emerging here...  
+>
+> Cheers, MW”  
 
-
-> They also tell their daughters to study Classical Indian dance (not exactly a highly regarded occupation back home), they build many temples and have Sunday schools (as many other ethnicities do). But, they hardly invest in Higher Education as other successful Asians have done. Nor allow their children to study items outside Law or Medicine, such as Indian Studies, --- the only way that members of their group could speak with real authority (for example, in school books).
-
-
-> However, as they are NRIs ("non returning Indians", as I just learned from a Hindi movie), they have begun ---as an old, very conservative US Brahmin friend pointed out to me already in 1994—building crematoria as well.
-
-
-> And see that they children marry within the local caste of origin (preferably, as per advertisement, of "fair' or "wheatish" color), if necessary imported out of India. (I have represented in court for one unfortunate victim of such a cross-cultural RNI-Indian marriage).
-
-
-> Or at least, they look for a spouse within the same general Indian caste (jaati), or worse, class (varna), or worst, among any Indians.  They have seen too many of their children marry US people (whether of other Asian or of European descent; Blacks seem unthinkable). And loose their Hinduism, which second generation people just understand as "boaring rituals" (puja, etc.), temple visits and Indian (mythological) comic books ...
-
-
-> All such items add to the heady brew that we have seen emerging here...
-
-
-> Cheers, MW”
 
 **<span style="text-decoration:underline;">Critique</span>:** It is a completely wrong to suggest that learning dance is considered disreputable in India or amongst Hindus. We have dozens of festivals in which people of all genders and social strata indulge in dancing and singing. Thousands of families in India hire professional dance teachers to teach traditional dances to their children. Why is Professor Witzel annoyed at us for teaching our classical dances to our children when we are, in the process, also enriching American culture?
 
@@ -87,8 +83,8 @@ In short, Witzel’s rant against Indian-Americans reflects his hatred towards t
 Witzel has also repeatedly questioned the agency and intelligence of Indian Americans in defining and understanding their own culture. He tends to portray their interest in their heritage and history as singularly motivated by goals of what he terms as ‘chauvinism’ and ‘nationalism’. It appears that only Europeans with white skins such as he can do objective academic research. For instance, in criticizing an attempt at the decipherment of the Indus script by Natwar Jha (who lives in India) and Navaratna Rajaram (who left USA to live in India several years ago, much before Witzel wrote the article below), Witzel then goes on to lampoon entire Indian Americans as a group[^14] -
 
 
-> “Given the scholarly inclinations among the expatriate communities in North America we may expect a slew of new interpretations, in fact, a whole new cottage industry. Their impact will appear especially on the internet. This fits in very well with some of their goals, --they have backed several nationalistic and even chauvinistic web sites-- the gaining of respect in their new and old homelands.”
-
+> “Given the scholarly inclinations among the expatriate communities in North America we may expect a slew of new interpretations, in fact, a whole new cottage industry. Their impact will appear especially on the internet. This fits in very well with some of their goals, --they have backed several nationalistic and even chauvinistic web sites-- the gaining of respect in their new and old homelands.”  
+>
 Similar stereotypical remarks about Indian Americans are inserted deliberately by him whenever he writes negative reviews of books or articles authored by an Indian scholar, irrespective of whether that scholar lives in India or elsewhere. Clearly, according the Harvard Professor, Indian expats suffer from an identity crisis and cannot do research objectively. The question is – where is all this crass and crude contempt for the Indian diaspora in the minds of ‘world class’ Indologists and scholars in ‘South Asian’ coming from?
 
 **_2.3: Indian/Hindu American groups are Hindu fundamentalists:_**
@@ -100,8 +96,8 @@ These groups of Hindu Americans meticulously followed the procedures of the Stat
 Witzel and three other ‘world class specialists’ were invited by a panicked SBE to offer their own comments on the edits proposed by Hindu groups. In response, Witzel et al submitted 58 objections, many of which were clearly derogatory to Hindus. For instance, where the Hindu group proposed a correction of the statement that the ‘Mahabharata was written earlier than Ramayana’, Witzel and team remarked:
 
 
-> “How does a sixth grade student care which text was ‘written’ earlier”
-
+> “How does a sixth grade student care which text was ‘written’ earlier”  
+>
 Understandably, one of the state commissioners Dr Metzenberg was appalled and said that this is offensive to Hindus because it obviously matters to them.[^18]
 
 The entire episode caused a lot of consternation in the Hindu American and Indian American communities, and articles and online petitions were initiated to expose the prejudices[^19], faulty scholarship and political connections of these scholars. It is still uncertain whether Witzel and his cohorts have even seen the disputed textbooks in the last 8 weeks. At least one does not see any evidence of his familiarity with them. In fact, the edits of the Vedic Foundation (one of the Hindu groups that approached) are not even public to this day and yet Witzel and Farmer have been maligning them on the basis of what they **_may_** have submitted!
@@ -117,14 +113,12 @@ Many Indians, who have interacted with him for several years, have not failed to
 In an adverse and abusive online review[^21] of the work of an Indian scholar, Professor Witzel proceeds to make extraneous remarks characterizing entire Sanskrit scholarship in India:
 
 
-> “In sum, amusing reading, like so many of the decipherment books.
-
-
-> (More of them, and other Aryan fantasies, will be  reviewed here, in due course). The only real surprise remaining then  is this:  M.  Mishra (author of several Indo-Aryan grammars) was for many years the "Assistant and Deputy Director (academic) of the Rasthriya Sanskrit Sansthan, Delhi (1973-93)." 
-
-
-> One would like to know what other cutting edge, innovative, thought provoking, seminal and trend setting research is carried out by academic (ex)members of this Government financed institution?”
-
+> “In sum, amusing reading, like so many of the decipherment books.  
+>
+> (More of them, and other Aryan fantasies, will be  reviewed here, in due course). The only real surprise remaining then  is this:  M.  Mishra (author of several Indo-Aryan grammars) was for many years the "Assistant and Deputy Director (academic) of the Rasthriya Sanskrit Sansthan, Delhi (1973-93)."   
+>
+> One would like to know what other cutting edge, innovative, thought provoking, seminal and trend setting research is carried out by academic (ex)members of this Government financed institution?”  
+>
 He has made similar derogatory remarks against other institutes of Sanskrit learning in India. And while India is acknowledged as an emerging technology power, one can do a quick google search to find numerous derogatory remarks made by Witzel against Indian science and engineering institutes, which could impact how Americans perceive the technical competence of the Indian American immigrant minority.
 
 **_3.2: “Indians are uncomfortable with changing opinions”:_**
@@ -132,8 +126,8 @@ He has made similar derogatory remarks against other institutes of Sanskrit lear
 In criticizing a Greek scholar Nicholas Kazanas (!), Witzel cannot resist the temptation to make another side swipe at Indians. He says[^22]:
 
 
-> "Of course, this is not really part of the Indian tradition or ethos:  change of opinion often is regarded as "defeat." We want to learn from such conversations.  There is a serious cultural difference here, usually not noted. But very important in our context.  As one Indian colleague told me, some 20 years ago, proudly:  "I never change my opinion".  Well, good for him! "
-
+> "Of course, this is not really part of the Indian tradition or ethos:  change of opinion often is regarded as "defeat." We want to learn from such conversations.  There is a serious cultural difference here, usually not noted. But very important in our context.  As one Indian colleague told me, some 20 years ago, proudly:  "I never change my opinion".  Well, good for him! "  
+>
 So a grand-total of one data point is used to condemn and stereotype all Indians. Such behavior is quite typical of Witzel, and reflects poorly on how he may have used textual data to draw his conclusions in his academic papers. In fact, it is Witzel who refused to ‘change his opinion’ and  accept his mistranslation of a Vedic text. Instead, he went on to give several mutually conflicting explanations[^23], even blaming the editor of the book in question with creating that misprint! Perhaps Witzel would like to call it the polluting influence of ‘_hiina_’ Indian Americans in his midst.
 
 **_3.3: Defending other Ethnocentrics:_**
@@ -143,8 +137,8 @@ Not only does Witzel denigrate Indians himself, he willingly and approvingly par
 In his preface to a book by Jonathan Mark Kenoyer[^24] (another signatory to Witzel petition), Richard Meadow (another signatory to the Witzel Petition) makes the following remark:
 
 
-> “This picture represents one man’s view of the past informed by 23 years of archaeological and ethnographic research in Pakistan and India and by 18 years of growing up in India. But the paints, often applied with a broad brush necessarily in an impressionist manner, are tempered by Western academic skepticism. Thus we do not see those wild flights of fancy or long leaps of faith that characterize some literature of the region. What flights and leaps are there do not require a suspension of disbelief to entertain.” 
-
+> “This picture represents one man’s view of the past informed by 23 years of archaeological and ethnographic research in Pakistan and India and by 18 years of growing up in India. But the paints, often applied with a broad brush necessarily in an impressionist manner, are tempered by Western academic skepticism. Thus we do not see those wild flights of fancy or long leaps of faith that characterize some literature of the region. What flights and leaps are there do not require a suspension of disbelief to entertain.”   
+>
 The statement by Meadow contrasts Indian scholarship unfavorably with Western scholarship stereotypically and clearly smacks of ethno-centrism. And yet, Witzel went on to defend Meadow quite openly and shamelessly by arguing that the word ‘region’ denotes not the geographic region of South Asia but rather the academic area of studies on Harappan culture![^25]
 
 In the Indo-Eurasian_Research (IER) group moderated by Witzel and Steve Farmer, the “western scholars”, were contrasted favorably with the “natives” (a fall back on racist anthropology), and it is often alleged that the ‘natives’ are often swayed by nationalisms and other ‘isms’ which makes their research findings questionable, and less objective than those of respectable “western scholars”. In fact in the IndicTraditions yahoogroup, Witzel’s close collaborator Steve Farmer has sometimes dismissed historical interpretations by Indians on the grounds that no “respectable western scholar” would accept them. I would leave it to the reader to decide what this means.
@@ -153,14 +147,15 @@ In the Indo-Eurasian_Research (IER) group moderated by Witzel and Steve Farmer, 
 
 Likewise, on the Indology Yahoogroup, in behavior reminiscent of colonial signs reading “Indians and Dogs are not allowed”, some Indologists proposed using languages (such as French and German) in which Indians are normally not proficient for their internet discussion. To prevent Indians not knowing German and French from participating in discussions, German Indologist Roland Steiner[^26] started his posts in German. This was approved by Lars Martin Fosse[^27] and of course by Michael Witzel[^28].
 
-As an another example, let us look at what happened on the Liverpool Indology list, there were 650 members, of which an overwhelming majority were Americans and Europeans. From March 1999 to April 2001, the moderator Dominik Wujastyk (another signatory of the Witzel Petition) expelled about 15 members, all of whom were Indians. This itself would be deemed as racism by the usual 4/5th rule in the United States. The Indians were expelled for any imaginable reason – rudeness, excessive posts, lengthy posts, advertising and what not. In fact, such flaws for which Indians were expelled, could be seen to a much greater extent demonstrably in the posts of European/American Indologists, notably Robert Zydenbos, Michael Witzel, Lars Martin Fosse (another signatory of Witzel petition) – their posts were often filled with abuses (‘fascist’. ‘liar’ etc. used for other list members) but these people were never touched; or mildly rebuked at the most. In contrast, Indians and others sympathetic to Hindus (e.g. Subhash Kak, Koenraad Elst for e.g.) were harassed so much by Western Indologists (many of them signatories to Witzel Petition) with the perfect connivance of Dominik for their views that they had to leave the list. These people had maintained their politeness till the end but the harassment and name-calling became unbearable. Moreover, Dominik tolerated 250 posts from Western Indologists deriding the level of science and engineering<span style="text-decoration:underline;"> </span>in India in a period of two months (this is strange because Indologists have little appreciation of science themselves!) in late 2000, another 250 posts using sarcastic and totally un-academic language on Indus script decipherment of Rajaram et al (who was not present to defend himself) but expelled Indians left and right when they protested against insults to Indians in general. Needless to say, Witzel was not found wanting and played a leading role in this fracas[^29].
-
+As an another example, let us look at what happened on the Liverpool Indology list, there were 650 members, of which an overwhelming majority were Americans and Europeans. From March 1999 to April 2001, the moderator Dominik Wujastyk (another signatory of the Witzel Petition) expelled about 15 members, all of whom were Indians. This itself would be deemed as racism by the usual 4/5th rule in the United States. The Indians were expelled for any imaginable reason – rudeness, excessive posts, lengthy posts, advertising and what not. In fact, such flaws for which Indians were expelled, could be seen to a much greater extent demonstrably in the posts of European/American Indologists, notably Robert Zydenbos, Michael Witzel, Lars Martin Fosse (another signatory of Witzel petition) – their posts were often filled with abuses (‘fascist’. ‘liar’ etc. used for other list members) but these people were never touched; or mildly rebuked at the most. In contrast, Indians and others sympathetic to Hindus (e.g. Subhash Kak, Koenraad Elst for e.g.) were harassed so much by Western Indologists (many of them signatories to Witzel Petition) with the perfect connivance of Dominik for their views that they had to leave the list. These people had maintained their politeness till the end but the harassment and name-calling became unbearable. Moreover, Dominik tolerated 250 posts from Western Indologists deriding the level of science and engineering<span style="text-decoration:underline;"> </span>in India in a period of two months (this is strange because Indologists have little appreciation of science themselves!) in late 2000, another 250 posts using sarcastic and totally un-academic language on Indus script decipherment of Rajaram et al (who was not present to defend himself) but expelled Indians left and right when they protested against insults to Indians in general. Needless to say, Witzel was not found wanting and played a leading role in this fracas[^29].  
+>
 **_3.5 Michael Witzel said – “Indians living east of Delhi are ‘empty’”_**
 
 Perhaps Witzel likes only those native Ghentoos who are servile to the White Man on a civilizing mission. For that matter, more than 3 years ago, Witzel declared on his Indo-Eurasian_Research yahoogroup that –
 
 
-> “Please note that to forward that goal we plan to expand our Moderator \
+> “Please note that to forward that goal we plan to expand our Moderator \  
+>
 pool in the next six weeks to include researchers from the Far East and \
 the Pacific Basin, S. Asia, the Near East, and Europe. \
 \
@@ -178,13 +173,14 @@ It appears that just as racists judge the worth of a person’s research finding
 Not content with this demeaning characterization of an apolitical Indian scholar, Witzel also made some cheap personal attacks against him –
 
 
-> “Now see this message by the main author, Gyaneshwar Chaubey, sent to \
+> “Now see this message by the main author, Gyaneshwar Chaubey, sent to \  
+>
 the chauvinistic Hindu Civilization list today. It seems that he is \
 neither 'a lord of knowledge' (Jnaanes'vara) nor a reciter of the 4 \
 Vedas (Chaubey &lt; Caturvedin), but a parrot of Hindutva beliefs:”
 
-Now Witzel lacks the necessary scientific and mathematical skills to do an individual evaluation of research papers on genetic studies. And so, he dismisses the findings just because they disagree with his own Aryan theories. Witzel’s dismissal of scientific evidence contradicting his untenable dogmas about Aryans reminds one of the behavior of 18<sup>th</sup>-19<sup>th</sup> century Bible thumpers who claimed that the world was created in 4004 B.C. When scientists discovered fossils clearly predating 4004 B.C., these fundamentalists claimed that “God had deliberately planted such fossils to test men of little faith”!
-
+Now Witzel lacks the necessary scientific and mathematical skills to do an individual evaluation of research papers on genetic studies. And so, he dismisses the findings just because they disagree with his own Aryan theories. Witzel’s dismissal of scientific evidence contradicting his untenable dogmas about Aryans reminds one of the behavior of 18<sup>th</sup>-19<sup>th</sup> century Bible thumpers who claimed that the world was created in 4004 B.C. When scientists discovered fossils clearly predating 4004 B.C., these fundamentalists claimed that “God had deliberately planted such fossils to test men of little faith”!  
+>
 Witzel seems to have inherited this trait from his teacher F B J Kuiper, who too had such an arrogant attitude towards Indians. For instance, in his review of an Indian scholar S. S. Bhawe’s translation of the Soma hymns of the Rigveda, Kuiper said that
 
 In my opinion, this tendency of some European scholars to ‘nativise’ the work of Indian scholars is clear racism. It appears that for these scholars, only Caucasians can do objective research.
@@ -195,73 +191,58 @@ Witzel’s critics have shown that he has written adverse reviews and comments o
 
 **_4.1 Loutish and unscholarly behavior in academic journals-_**
 
-The following is only a brief sample of the irrelevant and inappropriate remarks that permeate <span style="text-decoration:underline;">just one</span> published paper[^32] of Michael Witzel.
-
-
+The following is only a brief sample of the irrelevant and inappropriate remarks that permeate <span style="text-decoration:underline;">just one</span> published paper[^32] of Michael Witzel.  
+>
     **Page. 107, fn. 2:** “Or, as Kazanas suggests – since he seems secretly proud of the “revisionist” label….”
 
 
     **Page 108:** “Hardly by coincidence, this makes the RV the oldest text in the world – a doctrine routinely expressed in Hindu fundamentalist circles, but not one accepted by any serious scholar. Kazanas is hardly the first (or best-known) “revisionist” in recent decades to revive these views of Indo-European and South Asian history, which can be found with trivial modifications in the works of Elst, Danino, Frawley, Kak, Klostermaier, S. S. Misra, Rajaram, Sethna, and so on. Kazanas’ arguments are even less sublte than those of most of his predecessors….”
 
 
-> **Page 109:** “Kazanas’ claim about a fourth millennium (or earlier!) Rgveda, which is again repeated in Indian fundamentalist circles…
-
-
-> **Page 109, fn. 5**: “In the fundamentalist/nationalistic circles from, which Kazanas draws support – despite his pretense of political naivete….
-
-
-> **Page 110, fn. 7:** “…thus copied with the consistent misspelling introduced by another “specialist” of Ancient India, the former Manila ADB Bank employee S. Kalyanaraman.”
-
-
-> **Page 111:** “The spiritual center, Omilos Meleton, that Kazanas runs in Athens derives its inspiration “from numerous spiritual traditions of mankind – Indian, ancient Greek, Buddhist, Christian Gnostic, and so on” – all dumped in one New Age basket. Views like this put Kazanas in the same class as his better known confrère David Frawley (aka Pandit Vamadeva Shastri), whose Vedic Institute in New Mexico offers correspondence courses in Vedic Astrology..”
-
-
-> **Page 112:** “All this is the mark of a zealous neo-convert clinging to firmly held beliefs – which, despite his claims, can be connected both to fundamentalist Hindu views and associated political movements in India.”
-
-
-> **Page 115**: “But resources like this which are indispensable in Vedic scholarship, are not part of Kazanas’ repertoire…Again we find that Kazanas is guided by the methodology of the courtroom lawyer or scholastic disputant...”
-
-
-> **Page 117:** “But these are, of course, mere empirical data, which cannot stand against Kazanas’ neo-convert’s faith.”
-
-
-> **Page 120**: “Maybe Kazanas has an English debating club or an assembly of medieval disputers in mind. But in this case at hand, one would hope that a verdict would rest on more than the horse sense of an English gentleman or the disputational skills of a medieval pandit.”
-
-
-> **Page 122**: “Kazanas’ other uses of “historical records” are no less absurd. Manifold contradictions show up in his paper, adopted wholesale from earlier mythologizers of Indian history..The theater of the absurd of Kazanas and his forerunners could be best dismissed with laughter, if it were not for the serious damage that accompanies these black comedies…”
-
-
-> “It is not necessary to dwell on Kazanas’ motives in producing his work, beyond pointing to his obvious affinities to other South Asian and Western writers linked to Indian fundamentalist movements.”
-
-
-> **Page 126:** “Other writers in Kazanas’ class, including D. Frawley, K. Elst, and N. S. Rajaram, have already caused significant damage to linguistics, philology, Indology, archaeology, and history. This damage is especially evident in Indian universities, where researchers are increasingly being pushed to embrace mythological approaches to writing Indian history.” 
-
-
-> **Page 127**: “The only lasting value in Kazanas’ work is in the material that his work and that of his colleagues will  provide future Ph.D. students interested in the ties between so-called “revisionist” history and fundamentalist/political movements in twenty-first century India.”
-
-
-> **Page 134:** “If Kazanas had done some comparative research…”
-
-
-> **Page 147**: “Talageri is a bank employee and may be excused; the Sanskritist Kazanas cannot.” 
-
-
-> **Page 152:** “…his fellow “revisionist” K. Elst…”
-
+> **Page 109:** “Kazanas’ claim about a fourth millennium (or earlier!) Rgveda, which is again repeated in Indian fundamentalist circles…  
+>
+> **Page 109, fn. 5**: “In the fundamentalist/nationalistic circles from, which Kazanas draws support – despite his pretense of political naivete….  
+>
+> **Page 110, fn. 7:** “…thus copied with the consistent misspelling introduced by another “specialist” of Ancient India, the former Manila ADB Bank employee S. Kalyanaraman.”  
+>
+> **Page 111:** “The spiritual center, Omilos Meleton, that Kazanas runs in Athens derives its inspiration “from numerous spiritual traditions of mankind – Indian, ancient Greek, Buddhist, Christian Gnostic, and so on” – all dumped in one New Age basket. Views like this put Kazanas in the same class as his better known confrère David Frawley (aka Pandit Vamadeva Shastri), whose Vedic Institute in New Mexico offers correspondence courses in Vedic Astrology..”  
+>
+> **Page 112:** “All this is the mark of a zealous neo-convert clinging to firmly held beliefs – which, despite his claims, can be connected both to fundamentalist Hindu views and associated political movements in India.”  
+>
+> **Page 115**: “But resources like this which are indispensable in Vedic scholarship, are not part of Kazanas’ repertoire…Again we find that Kazanas is guided by the methodology of the courtroom lawyer or scholastic disputant...”  
+>
+> **Page 117:** “But these are, of course, mere empirical data, which cannot stand against Kazanas’ neo-convert’s faith.”  
+>
+> **Page 120**: “Maybe Kazanas has an English debating club or an assembly of medieval disputers in mind. But in this case at hand, one would hope that a verdict would rest on more than the horse sense of an English gentleman or the disputational skills of a medieval pandit.”  
+>
+> **Page 122**: “Kazanas’ other uses of “historical records” are no less absurd. Manifold contradictions show up in his paper, adopted wholesale from earlier mythologizers of Indian history..The theater of the absurd of Kazanas and his forerunners could be best dismissed with laughter, if it were not for the serious damage that accompanies these black comedies…”  
+>
+> “It is not necessary to dwell on Kazanas’ motives in producing his work, beyond pointing to his obvious affinities to other South Asian and Western writers linked to Indian fundamentalist movements.”  
+>
+> **Page 126:** “Other writers in Kazanas’ class, including D. Frawley, K. Elst, and N. S. Rajaram, have already caused significant damage to linguistics, philology, Indology, archaeology, and history. This damage is especially evident in Indian universities, where researchers are increasingly being pushed to embrace mythological approaches to writing Indian history.”   
+>
+> **Page 127**: “The only lasting value in Kazanas’ work is in the material that his work and that of his colleagues will  provide future Ph.D. students interested in the ties between so-called “revisionist” history and fundamentalist/political movements in twenty-first century India.”  
+>
+> **Page 134:** “If Kazanas had done some comparative research…”  
+>
+> **Page 147**: “Talageri is a bank employee and may be excused; the Sanskritist Kazanas cannot.”   
+>
+> **Page 152:** “…his fellow “revisionist” K. Elst…”  
+>
 **_4.2 Slander in his own cottage journals (co-edited by other Witzel Petition signatories)_**
 
-Or let us consider another example where he wrote a ‘review’[^33] of a dissenting scholar Shrikant Talageri’s book[^34]. Nearly every paragraph of Witzel’s article contains references to things that Talageri does not “know” (although they are “well known” “since the 19<sup>th</sup> century” to everybody, “but not to Talageri”), do not “mention”, do not “discuss”, do not “acknowledge”, do not “refer” to, do not “reveal”, am “unaware” of or “oblivious” to, “miss” out on, do not “bother” about, do not “point out”, etc. etc.
-
+Or let us consider another example where he wrote a ‘review’[^33] of a dissenting scholar Shrikant Talageri’s book[^34]. Nearly every paragraph of Witzel’s article contains references to things that Talageri does not “know” (although they are “well known” “since the 19<sup>th</sup> century” to everybody, “but not to Talageri”), do not “mention”, do not “discuss”, do not “acknowledge”, do not “refer” to, do not “reveal”, am “unaware” of or “oblivious” to, “miss” out on, do not “bother” about, do not “point out”, etc. etc.  
+>
 The things Talageri is “ignorant” of, according to Witzel, include[^35] -
 
 
-> “Sanskrit–let alone…. the obscure Old Vedic forms of the RV”, “any modern scholarly language besides English”, “Old Vedic, Old Iranian, and other ancient Indo-European languages”, “archaic forms of Sanskrit (Old Vedic) and closely related languages”, “Old Vedic”, “Linguistics”, “pre-pANinean grammar and …. disputed Rgvedic words”, “linguistic evidence”, “philological knowledge”, “scholarly linguistic and philological skills”, “linguistic and dialectical variants, meters, substrate words, grammatical innovations, linguistic archaisms and so on,” “myriad well-known linguistic, zoological and archaeological data”, “historical, technological, zoological and archaeological details”, “requisite language skills, scholarly acumen, or historical and political objectivity”, “linguistic rigor, independence from purANic-like worldviews… political integrity”, “climate”, “geography”, “geographical facts such as the nature of Panjab rivers”, “zoological details”, “critical zoological and archaeological evidence, horse and two-wheeled chariot… river dolphins in the Indus”, “the habitat of the Gangetic dolphins”, “South Asian zoological facts”, “archaeology”, “the evidence of archaeology”, “comparative Indo-European mythology”, “realia of the RV period … workings of tribal societies, early states”, “social questions… vast comparative literature on semi-nomadic peoples”, “semi-nomadic transhumance life or the workings of early pre-state tribal societies”, “standard scholarly research”, “all the detailed work that has been conducted over the past 200 years”, (and) “discussed for more than a hundred years, although T. is not apparently aware of the discussions”, “any of the vast scholarly literature from the past 150 years”, “over a century and a half of research”, “known details regarding the redaction history of the family books”, “known complications in the codification of the RV ascribed to zAkalya” “the redaction of the RV”, “RV stratigraphy”, “well-known structural details in the nucleus of the RV”, “the redaction history of the RV” which is “well-known”, a long list of books and authors about whom I “do not leave a clue” that “I am aware that these works exist”, including “Oldenberg (1888)… Macdonell (1886) and Scheftelowitz (1922) … Tokunaga (1997)”, “KF Geldner (1951…) L. Renou (1955-1969..) and …. T. Elizarenkova (1989-99)” “K.R. Potdar (1945)… van den Bosch (1985)”, etc. etc. etc.  
-
+> “Sanskrit–let alone…. the obscure Old Vedic forms of the RV”, “any modern scholarly language besides English”, “Old Vedic, Old Iranian, and other ancient Indo-European languages”, “archaic forms of Sanskrit (Old Vedic) and closely related languages”, “Old Vedic”, “Linguistics”, “pre-pANinean grammar and …. disputed Rgvedic words”, “linguistic evidence”, “philological knowledge”, “scholarly linguistic and philological skills”, “linguistic and dialectical variants, meters, substrate words, grammatical innovations, linguistic archaisms and so on,” “myriad well-known linguistic, zoological and archaeological data”, “historical, technological, zoological and archaeological details”, “requisite language skills, scholarly acumen, or historical and political objectivity”, “linguistic rigor, independence from purANic-like worldviews… political integrity”, “climate”, “geography”, “geographical facts such as the nature of Panjab rivers”, “zoological details”, “critical zoological and archaeological evidence, horse and two-wheeled chariot… river dolphins in the Indus”, “the habitat of the Gangetic dolphins”, “South Asian zoological facts”, “archaeology”, “the evidence of archaeology”, “comparative Indo-European mythology”, “realia of the RV period … workings of tribal societies, early states”, “social questions… vast comparative literature on semi-nomadic peoples”, “semi-nomadic transhumance life or the workings of early pre-state tribal societies”, “standard scholarly research”, “all the detailed work that has been conducted over the past 200 years”, (and) “discussed for more than a hundred years, although T. is not apparently aware of the discussions”, “any of the vast scholarly literature from the past 150 years”, “over a century and a half of research”, “known details regarding the redaction history of the family books”, “known complications in the codification of the RV ascribed to zAkalya” “the redaction of the RV”, “RV stratigraphy”, “well-known structural details in the nucleus of the RV”, “the redaction history of the RV” which is “well-known”, a long list of books and authors about whom I “do not leave a clue” that “I am aware that these works exist”, including “Oldenberg (1888)… Macdonell (1886) and Scheftelowitz (1922) … Tokunaga (1997)”, “KF Geldner (1951…) L. Renou (1955-1969..) and …. T. Elizarenkova (1989-99)” “K.R. Potdar (1945)… van den Bosch (1985)”, etc. etc. etc.    
+>
 Consequently, Talageri’s book is, among countless other things –
 
 
-> “imaginary”, “a patriotic or chauvinistic, ultimately pre-enlightenment enterprise”, “garbage in, garbage out”, “like his old one…a purANa-like fantasy”, etc. – containing “frustrating contradictions”, “amateurish errors”, things “haphazardly draw(n) from a handful of… works” (without “anything approaching a serious grasp of the subject”) “scholarly pretensions”, “myriad of factual errors”, “undisciplined etymologizing”, “most ridiculous claims”, “impossible chronological ideas”, “obvious anachronisms”, “historical fantasies”, “purANa-inspired fictions”, “Hindutva fantasies”, “fantastic claims”, “hodge-podge of linguistic facts and fictions”, “familiar Hindutva myths”, “absurdities”, “morass of unverified charts and lists”, “intellectual detours”, “countless examples of methodological laxness”, etc. etc. etc.
-
+> “imaginary”, “a patriotic or chauvinistic, ultimately pre-enlightenment enterprise”, “garbage in, garbage out”, “like his old one…a purANa-like fantasy”, etc. – containing “frustrating contradictions”, “amateurish errors”, things “haphazardly draw(n) from a handful of… works” (without “anything approaching a serious grasp of the subject”) “scholarly pretensions”, “myriad of factual errors”, “undisciplined etymologizing”, “most ridiculous claims”, “impossible chronological ideas”, “obvious anachronisms”, “historical fantasies”, “purANa-inspired fictions”, “Hindutva fantasies”, “fantastic claims”, “hodge-podge of linguistic facts and fictions”, “familiar Hindutva myths”, “absurdities”, “morass of unverified charts and lists”, “intellectual detours”, “countless examples of methodological laxness”, etc. etc. etc.  
+>
 The overflowing chaff in Witzel’s ‘review’ appears to be intended to serve three distinct purposes:
 
 
@@ -294,38 +275,28 @@ Witzel frequently alleges, without basis, that people who dissent with him on ac
 **_5.1 Slander and Threats on public lists_**[^38]_ _
 
 
-> “Steve,
-
-
-> * for your amusement : see what Elst, Frawdley are doing....
-
-
-> YOU MISSED THEM!!!!
-
-
-> also:  bharat-nir-bhaya seems  to be a group which calls itself "India -
-
-
-> without - fear" !!
-
-
-> *  and see our old friend Sam Garg, at the bottom...
-
-
-> * I wonder how our friend Agarwal finds so much time?  Recently, he
-
-
-> mentioned that school has started....  Doesn't he work any more? And who
-
-
-> pays him then?  (Malhotra?? BJP ?? -- his VHP uncles???)
-
-
-> Didn't get around to send you the booklet yesterday;  Will do so tomorrow....
-
-
-> M>”
-
+> “Steve,  
+>
+> * for your amusement : see what Elst, Frawdley are doing....  
+>
+> YOU MISSED THEM!!!!  
+>
+> also:  bharat-nir-bhaya seems  to be a group which calls itself "India -  
+>
+> without - fear" !!  
+>
+> *  and see our old friend Sam Garg, at the bottom...  
+>
+> * I wonder how our friend Agarwal finds so much time?  Recently, he  
+>
+> mentioned that school has started....  Doesn't he work any more? And who  
+>
+> pays him then?  (Malhotra?? BJP ?? -- his VHP uncles???)  
+>
+> Didn't get around to send you the booklet yesterday;  Will do so tomorrow....  
+>
+> M>”  
+>
 **Comment:** Note that he has mis-spelt ‘Frawley’ as ‘Frawdley’ deliberately and has alleged that ‘Agarwal’ receives money from politicians. This is quite typical of his behavior. Perhaps an inkling into his own sources of income? One may rather, in a Witzellian manner, ask how Steve Farmer survives in his Portola Valley home when he has no job? Does Witzel pay him on the pretext of various conferences in USA and Japan organized by none other than Witzel?
 
 Likewise, Witzel has threatened me with dire consequences on other public lists. For instance,
@@ -335,128 +306,58 @@ Likewise, Witzel has threatened me with dire consequences on other public lists.
 This example is from a closed and secretive list[^39] started by Lars Martin Fosse (another signatory of the Witzel Petition) where the following ‘scholarly’ discussion took place. It may be noted that the scholar maligned by Witzel and Fosse lives in abject poverty and cannot pay his own medical bills:
 
 
-> > >At 10:07 pm -0500 7/2/03, Michael Witzel wrote: \
-> > \
-> >>.... One wonders how he survives with 4 children...
-
-
-> >>(just his Indian > >>book sales??),
-
-
-> > >>since he doesn't do astrology like Pt Frawley (who has now switched off his
-
-
-> > >>consultations page -- I noticed due to Steve's report-- and now points to a
-
-
-> > >>NM colleague!! Criticism can move things ... a bit)
-
-
-> >
-
-
->  
-
-
-> > > Dear Scholarly Colleagues
-
-
-> > >
-
-
-> > >Surely this list is intended to be a place for us to discuss freely
-
-
-> > >among ourselves, without constantly having to defend our existence as
-
-
-> > >Indologists.  It does not seem appropriate, therefore, to use it as a
-
-
-> > >place to discuss the private lives of third parties, especially their
-
-
-> > >children.
-
-
-> > >
-
-
-> > >Dr Valerie J Roebuck
-
-
-> > >Manchester, UK
-
-
->  
-
-
-> Michael Witzel replied:
-
-
-> > Obviously, the point is not Elst's private life or his unnamed children.
-
-
-> > Rather, his financing. Which is a mystery. We know that he is financed by
-
-
-> > some Indian publishers and that he gives lectures here and there. But there
-
-
-> > must be other sources.
-
-
-> > And his financing is of *some* interest, given the various VERY political
-
-
-> > stances he takes.  This is not an ivory tower scholar, but a rather public
-
-
-> > figure, and we thus can take interest in his financial dealings, like those
-
-
-> > of -- ahem, much better known politicians, say  Rev. Jackson or  Mrs. Blair
-
-
-> > or of our great leaders here.
-
-
-> > Thus: curious... about the politics behind this.
-
-
-> > Why : to start with, obvious extremist right wing politics apart,  Elst et
-
-
-> > al., are giving Indology a bad name. We have *some* social reponsibility.
-
-
-> > > In this sense.
-
-
-> >  Don't want to psychoanalyze too much here, yet take a look at the Belgian
-
-
-> > (Flemish) scene, the invited (!)  Muslim (Moroccan etc.) immigration there
-
-
-> > starting in the Sixties, and the Flemish right wing response ("first
-
-
-> > wronged by French speaking Belgians, now by Muslims"...)  echoed by Elst:
-
-
-> > he has often written about that as well, with predictable wording.
-
-
-> >  One thing is sure though: Elst sees himself wronged by the Belgian
-
-
-> > Indological 'establishment' (long story), complains about oportunities
-
-
-> > denied do him, etc.>MW
-
-
+> > >At 10:07 pm -0500 7/2/03, Michael Witzel wrote: \  
+>
+> > \  
+>
+> >>.... One wonders how he survives with 4 children...  
+> >> (just his Indian > >>book sales??),  
+> 
+> > >>since he doesn't do astrology like Pt Frawley (who has now switched off his  
+> > >>consultations page -- I noticed due to Steve's report-- and now points to a  
+> > >>NM colleague!! Criticism can move things ... a bit)  
+
+> > > Dear Scholarly Colleagues  
+> > >  
+> > >Surely this list is intended to be a place for us to discuss freely  
+> > >among ourselves, without constantly having to defend our existence as  
+> > >Indologists.  It does not seem appropriate, therefore, to use it as a  
+> > >place to discuss the private lives of third parties, especially their  
+> > >children.  
+>
+> > >Dr Valerie J Roebuck  
+> > >Manchester, UK  
+>
+
+Michael Witzel replied:  
+
+> Obviously, the point is not Elst's private life or his unnamed children.  
+> Rather, his financing. Which is a mystery. We know that he is financed by  
+> some Indian publishers and that he gives lectures here and there. But there  
+> must be other sources.  
+>
+> And his financing is of *some* interest, given the various VERY political  
+> stances he takes.  This is not an ivory tower scholar, but a rather public  
+> figure, and we thus can take interest in his financial dealings, like those  
+> of -- ahem, much better known politicians, say  Rev. Jackson or  Mrs. Blair  
+> or of our great leaders here.  
+>
+> Thus: curious... about the politics behind this.  
+>
+> Why : to start with, obvious extremist right wing politics apart,  Elst et  
+> al., are giving Indology a bad name. We have *some* social reponsibility.  
+>
+> In this sense.  
+>  Don't want to psychoanalyze too much here, yet take a look at the Belgian  
+> (Flemish) scene, the invited (!)  Muslim (Moroccan etc.) immigration there  
+> starting in the Sixties, and the Flemish right wing response ("first  
+> wronged by French speaking Belgians, now by Muslims"...)  echoed by Elst:  
+> he has often written about that as well, with predictable wording.
+> 
+>  One thing is sure though: Elst sees himself wronged by the Belgian  
+> Indological 'establishment' (long story), complains about oportunities  
+> denied do him, etc.>MW  
+>
 
 **_5.3 Labeling dissenting scholars:_**
 
@@ -489,24 +390,22 @@ And what are these 'new' path-breaking state-of-art explanations?
 Let us see how Witzel today describes the movement of Aryan speakers into India. He compares the ‘migration’ of Indo-Aryans into India with the ‘migration’ of Normans into England and with the ‘arrival’ of Huns, Scythians etc., into India[^45] –
 
 
-> “The immigrating group(s) may have been relatively small one(s), such as Normans who came to England in 1066 and who nearly turned England into French speaking country- while they originally had been Scandinavians, speaking N. Germanic. This may supply a model for the Indo-Aryan immigration as well...…..However, the introduction of the horse and especially of the horse-drawn chariot was a powerful weapon in the hands of the Indo-Aryans. It must have helped to secure military and political dominance even if some of the local elite were indeed quick to introduce the new cattle-based economy and the weapon, the horse drawn chariot, - just as the Near Eastern peoples did on a much larger and planned scale.”
-
+> “The immigrating group(s) may have been relatively small one(s), such as Normans who came to England in 1066 and who nearly turned England into French speaking country- while they originally had been Scandinavians, speaking N. Germanic. This may supply a model for the Indo-Aryan immigration as well...…..However, the introduction of the horse and especially of the horse-drawn chariot was a powerful weapon in the hands of the Indo-Aryans. It must have helped to secure military and political dominance even if some of the local elite were indeed quick to introduce the new cattle-based economy and the weapon, the horse drawn chariot, - just as the Near Eastern peoples did on a much larger and planned scale.”  
+>
 Everyone knows that Normans did not merely ‘come’ to England, they invaded.
 
 Elsewhere, Witzel elaborates on the role played by the chariot (‘Vedic tank’) and the horse in enabling the Aryans secure elite domination over the descendants of Harappans[^46]:
 
 
-> “The first appearance of thundering chariots must have stricken the local population with a terror, similar to that experienced by the Aztecs and Incas upon the arrival of the iron-clad, horse riding Spaniards.”
-
+> “The first appearance of thundering chariots must have stricken the local population with a terror, similar to that experienced by the Aztecs and Incas upon the arrival of the iron-clad, horse riding Spaniards.”  
+>
 On wonders if Witzel seriously thinks that the ‘Vedic tanks’ (see next quote) were capable of cross the Afghani mountain ranges when even American tanks can do so today.
 
 He elaborates further[^47] –
 
 
-> “Something of this fear of the horse and of the thundering chariot, the "tank" of the 2nd millennium B.C. is transparent in the famous horse  'Dadhikra' of the Puru king Trasadasya ("Tremble enemy" in RV 4.38.8) ……..The first appearance of thundering chariots must have stricken the local population with terror similar to that experienced by the Aztecs and the Incas upon the arrival of the iron-clad, horse riding Spaniards.”
-
-
-
+> “Something of this fear of the horse and of the thundering chariot, the "tank" of the 2nd millennium B.C. is transparent in the famous horse  'Dadhikra' of the Puru king Trasadasya ("Tremble enemy" in RV 4.38.8) ……..The first appearance of thundering chariots must have stricken the local population with terror similar to that experienced by the Aztecs and the Incas upon the arrival of the iron-clad, horse riding Spaniards.”  
+>
 Witzel draws also an analogy from Japan, where a few ‘aggressive horse riders’ from Northern China were able to influence the Japanese culture dramatically[^48] .
 
 **_6.4 You’ve got the ‘Aryan’ look according to Michael Witzel_**
@@ -514,15 +413,15 @@ Witzel draws also an analogy from Japan, where a few ‘aggressive horse riders�
 Witzel even speculates[^49] how these Aryans may have looked like:
 
 
-> “If they had resided and intermarried with the local population of the northern borderlands of Iran (the so called Bactro-Margiana archaeological complex) for some centuries, the immigrating Indo-Aryan clans and tribes may originally have looked like Bactrians, Afghanis or Kashmiris, and must have been racially submerged quickly in the population of the Punjab, just like later immigrants whose staging area was in Bactria as well: the Saka, Kusana, Huns, etc.”
-
+> “If they had resided and intermarried with the local population of the northern borderlands of Iran (the so called Bactro-Margiana archaeological complex) for some centuries, the immigrating Indo-Aryan clans and tribes may originally have looked like Bactrians, Afghanis or Kashmiris, and must have been racially submerged quickly in the population of the Punjab, just like later immigrants whose staging area was in Bactria as well: the Saka, Kusana, Huns, etc.”  
+>
 Since when did Huns, Shakas and Kushanas merely become ‘immigrants’. Didn’t they INVADE India?
 
 Victor Mair (a recent collaborator of Witzel), a doyen of Indo-European studies, is not content with these partial European looks of migrating Aryans, and he suggests[^50] that they even had light eyes, skin and hair –
 
 
-> “There may be instances in world history where a dominant or highly influential elite who were few in number were nonetheless able to impose their language on a subject population. (I suspect that could have happened where the conquered population was also small in number and ravaged by war, disease, and the like. But then, would they have survived at all?). North India, Pakistan and Afghanistan 3500 years ago have been suggested as examples of such a scenario, with a relatively small number of Aryan warriors supposedly being able to impose Indic languages upon the native population. In light of the above discussion, I find this to be an unconvincing explanation of how IE languages entered the subcontinent. The fact that a **significant portion of the population in these countries possesses blue eyes, fair skin, and brown or even blond hair **(where the environment makes these traits which are more suited to northern latitudes disadvantageous from the standpoint of survival) would seem to indicate that sizeable numbers if IE speakers actually did intrude upon the subcontinent and have left not only their linguistic but their genetic imprint upon it as well.” [Emphasis added by us]
-
+> “There may be instances in world history where a dominant or highly influential elite who were few in number were nonetheless able to impose their language on a subject population. (I suspect that could have happened where the conquered population was also small in number and ravaged by war, disease, and the like. But then, would they have survived at all?). North India, Pakistan and Afghanistan 3500 years ago have been suggested as examples of such a scenario, with a relatively small number of Aryan warriors supposedly being able to impose Indic languages upon the native population. In light of the above discussion, I find this to be an unconvincing explanation of how IE languages entered the subcontinent. The fact that a **significant portion of the population in these countries possesses blue eyes, fair skin, and brown or even blond hair **(where the environment makes these traits which are more suited to northern latitudes disadvantageous from the standpoint of survival) would seem to indicate that sizeable numbers if IE speakers actually did intrude upon the subcontinent and have left not only their linguistic but their genetic imprint upon it as well.” [Emphasis added by us]  
+>
 One wonders how Mair concluded that a ‘significant’ proportion of the population of north India etc., have blue eyes. Most of the compilers of this case study have lived for several years in India and Pakistan and yet we have not seen a ‘significant’ number of people who have the Aryan looks **(blond hair and blue eyes).** Anyway, a laudatory review of the conference whose published proceedings contain the above claim, has been written by Witzel[^51].
 
 We do not see how these scenarios are essentially different from the 19th century myths about Aryans. It is nothing but colonial myths couched with currently trendy lingo.
@@ -540,8 +439,8 @@ Those who want to see proof for the validity of this theory will of course see i
 Witzel offers the following 'proof'[^54],
 
 
-> “Taking a look at the data relating to the immigration of the Indo-Aryans into South Asia, one is stuck by the number of vague reminiscences of foreign localities and tribes in the Rgveda, in spite repeated assertions to the contrary in the secondary literature. Then, there is the following direct statement contained in (the admittedly much later) BSS (=Baudhayana Shrauta Sutra) 18.44:397.9 sqq which has once again been overlooked, not having been translated yet: "Ayu went eastwards. His (people) are the Kuru Panchala and the Kasi-Videha. This is the Ayava (migration). (His other people) stayed at home. His      people are the Gandhari, Parsu and Aratta. This is the Amavasava (group)"
-
+> “Taking a look at the data relating to the immigration of the Indo-Aryans into South Asia, one is stuck by the number of vague reminiscences of foreign localities and tribes in the Rgveda, in spite repeated assertions to the contrary in the secondary literature. Then, there is the following direct statement contained in (the admittedly much later) BSS (=Baudhayana Shrauta Sutra) 18.44:397.9 sqq which has once again been overlooked, not having been translated yet: "Ayu went eastwards. His (people) are the Kuru Panchala and the Kasi-Videha. This is the Ayava (migration). (His other people) stayed at home. His      people are the Gandhari, Parsu and Aratta. This is the Amavasava (group)"  
+>
 When it was pointed out that this proof was a mistranslation that violated rules of Sanskrit grammar, comparison with parallel textual passages in Vedic literature and so on, Witzel tried to wiggle out by giving numerous mutually contradictory excuses, including the allegation that the editor of that publication George Erdosy was actually responsible for what Witzel called a misrepresentation of his views! This entire controversy would have been very funny had it not been so pathetic, and Witzel's explanations are compiled on a webpage available for all to see[^55]. Some scholars have openly alleged that Witzel’s ‘mistranslation’ defies all principles of ethics and is willful[^56].
 
 **_6.7 Bluffs as evidence for Aryan invasion:_**
@@ -555,13 +454,13 @@ Witzel is also on a frantic hunt for the Aryan gene. Numerous genetic studies ha
 Witzel cites several recent articles, notes that they do suffer from some deficiencies, but concludes nevertheless that –
 
 
-> “Recent work by Bamshad, Majumder, Underhill, Sells, and many others has uncovered preliminary evidence that not only points to prehistorical movements into India from Africa and the Middle East, but movements in later periods as well from Central and even East Asia.”
-
+> “Recent work by Bamshad, Majumder, Underhill, Sells, and many others has uncovered preliminary evidence that not only points to prehistorical movements into India from Africa and the Middle East, but movements in later periods as well from Central and even East Asia.”  
+>
 Let us see what Stanley Wolpert, who formed a second review committee (together with Witzel and James Heitzman) to look at California textbooks has to say[^61] about this Aryan gene:
 
 
-> “The final wave of tribal invasions may have come some centuries after the first Aryans started over the northwest passes. This was the most important invasion in all of India’s history, since the Aryans brought with their Caucasian genes a new language – Sanskrit…”
-
+> “The final wave of tribal invasions may have come some centuries after the first Aryans started over the northwest passes. This was the most important invasion in all of India’s history, since the Aryans brought with their Caucasian genes a new language – Sanskrit…”  
+>
 So this is how Indology creationists explain the intelligent design of the superior Aryans with perfect Caucasian genes!
 
 But, anyone who questions Witzel's Aryan fantasies is immediately smeared with his barrage of verbal abuses. Employing reckless free association, Witzel immediately pontificates that his academic dissenter is on the pay of some politician, or that he is linked to some fundamentalist ideology. This of course begs the question - is Witzel too motivated by similar considerations in propagating his Aryan theories? Numerous scholars have alleged that he uses inappropriate and non-academic techniques in promoting his theories. A collection of these critiques (by no means exhaustive) may be accessed by scrolling down at the following website [http://www.voiceofdharma.org/indology.html](http://www.voiceofdharma.org/indology.html) (scroll down and see under ‘Michael Witzel’).
@@ -587,30 +486,28 @@ During an internet discussion, and Indian discussant argued that the draconian T
 But Witzel differed. He lamented[^64] –
 
 
-> “WRONG, as usual. The Allied Forces had a program of several years of "denazification" where every party member (enforced by the Nazis for Govt. officals at *all* levels), and even lowly members of (enforced) membership in low-level organizations, were investigated by a long series of questions ("Der Fragebogen") and had to show that they were 'clean'…..”
-
+> “WRONG, as usual. The Allied Forces had a program of several years of "denazification" where every party member (enforced by the Nazis for Govt. officals at *all* levels), and even lowly members of (enforced) membership in low-level organizations, were investigated by a long series of questions ("Der Fragebogen") and had to show that they were 'clean'…..”  
+>
 Witzel also complained, as an example, how his anti-Nazi teacher Paul Thieme was wrongly imprisoned because he was confused for another person by the same name. But the Indian discussant disagreed and responded[^65] –
 
 
-> “Allied action was reasonable and expected, somewhat more civilized than India's TADA act which can lock up any suspect. The cultural cleansing mentioned by your partner magazine is a communist term meant to eliminate any suspect, or get them eliminated by the party red guards or whoever.”
-
+> “Allied action was reasonable and expected, somewhat more civilized than India's TADA act which can lock up any suspect. The cultural cleansing mentioned by your partner magazine is a communist term meant to eliminate any suspect, or get them eliminated by the party red guards or whoever.”  
+>
 Witzel then went on to make a strange comment[^66] –
 
 
-> “Obviously, my correction only dealt with the misinformation about Allied action in Germany and Austria after 1945.
-
-
-> No one would object to persecuting Nazis; the stupidity of the Allies was to expand that to all German/Austrians, thereby creating some sympathy of, and even active help by common citizens in avoiding such persecution. 
-
-
-> All of which would not have happened if only the active Nazis and their active collaborators had been persecuted... The effect of all of this frequently was the opposite of what was intended.”
-
+> “Obviously, my correction only dealt with the misinformation about Allied action in Germany and Austria after 1945.  
+>
+> No one would object to persecuting Nazis; the stupidity of the Allies was to expand that to all German/Austrians, thereby creating some sympathy of, and even active help by common citizens in avoiding such persecution.   
+>
+> All of which would not have happened if only the active Nazis and their active collaborators had been persecuted... The effect of all of this frequently was the opposite of what was intended.”  
+>
 Of course, Witzel did not try to defend the indefensible Nazi ideology. But he seems to mitigate the monstrosity of the acts of fellow Germans in helping Nazi war criminals escape! It is strange that considering the horrendous nature of the Nazi regime, Witzel is so sensitive to the detoxification of the German society that was justifiably carried out by the Allies.
 
 Now, if I were Witzel, I would say that his statement that the heavy-handedness of Allies caused some Germans to conceal Nazi war criminals smacks of negationist sympathies.
 
-Anyhow, one cannot help noticing that whereas on one hand, Witzel is very careful in distinguishing guilty Germans from non-guilty Germans, on the other hand he often does not consider it necessary in hedging his sweeping negative stereotypical remarks about Indian Americans with words such as ‘some’ or ‘few’. He taints <span style="text-decoration:underline;">all</span> of them with labels and denigrates all of them with stereotypical statements in some of his stereotypical remarks.
-
+Anyhow, one cannot help noticing that whereas on one hand, Witzel is very careful in distinguishing guilty Germans from non-guilty Germans, on the other hand he often does not consider it necessary in hedging his sweeping negative stereotypical remarks about Indian Americans with words such as ‘some’ or ‘few’. He taints <span style="text-decoration:underline;">all</span> of them with labels and denigrates all of them with stereotypical statements in some of his stereotypical remarks.  
+>
 **_7.3 Quoting Nazi Indologists:_**
 
 While some Indologists such as Johannes Hertel[^67] were supporters of the Nazi National Socialist party, other Indologists such as Walther Wust[^68] (author of a celebrated book on Rgvedic chronology besides numerous other works on Indo-Iranian linguistics) actually actively engaged in enriching Nazi 'Aryan mysticism'! In any respectable field, works of these scholars would be anathema. But not so in Indology, where they are still cited with approval. For instance, Witzel quotes Wust as a former scholar approvingly in one his own publications[^69]. After all, Indology has just not a prejudiced past, but also a prejudiced present!
@@ -638,7 +535,8 @@ Witzel signed a petition in support of K N Panikkar, who is a self professed Mar
 Witzel has also openly supported D N Jha, a self-professed Marxist historian. In an earlier interview, Witzel supported Jha’s book on beef eating in ancient India and said[^81] –
 
 
-> “Indeed, until the Bharatiya Janata Party came to power (sic!),  \
+> “Indeed, until the Bharatiya Janata Party came to power (sic!),  \  
+>
 said Michael Witzel, a professor of Sanskrit at Harvard  \
 University, much of the history Mr. Jha records was taught in Indian schools.”
 
@@ -671,48 +569,43 @@ Anyway, with such impeccable political connections and support, it seems somewha
 **_9.1 Example of denigration of Hindu texts: _**
 
 
-> “Dan,
-
-
->  Many short mantras (the later biija mantras) like oM have humble origins the Veda.
-
-
->  Him (hiM) is used in the Veda to call your goat .. and your wife.  Cheers,
-
-
-> Michael(Witzel)”
-
+> “Dan,  
+>
+>  Many short mantras (the later biija mantras) like oM have humble origins the Veda.  
+>
+>  Him (hiM) is used in the Veda to call your goat .. and your wife.  Cheers,  
+>
+> Michael(Witzel)”  
+>
 and then Steve Farmer replies:
 
 
-> What if you want to call your goat and your wife _simultaneously_, Michael? :^) 
-
-
->  Steve”
-
-And then in a subsequent post with follow up conversation, Steve Farmer states that <span style="text-decoration:underline;">‘I will try it on my girlfriend tonight”</span>[^93]<span style="text-decoration:underline;">.</span> On a list of the Indian diaspora members spread all over the world, a member later joked if Steve Farmer’s girlfriend is a goat!
-
+> What if you want to call your goat and your wife _simultaneously_, Michael? :^)   
+>
+>  Steve”  
+>
+And then in a subsequent post with follow up conversation, Steve Farmer states that <span style="text-decoration:underline;">‘I will try it on my girlfriend tonight”</span>[^93]<span style="text-decoration:underline;">.</span> On a list of the Indian diaspora members spread all over the world, a member later joked if Steve Farmer’s girlfriend is a goat!  
+>
 We would like the readers to ponder if in a multicultural environment, could we afford such people with a contempt towards sacred chants of minority faiths to decide what school going children should study or not study? Time and again, many of the signatories including Professor Witzel have demonstrated a lack of sensitivity towards the culture and heritage of Hindus and Indians, when such a behavior forms the bed-rock of a multi-cultural society.
 
 In another article, Witzel accuses Navaratna Rajaram of morphing or deliberately doctoring an Indus seal to prove fraudulently that it depicted a horse, whereas it actually depicted a unicorn bull. Witzel then remarks sarcastically[^94] –
 
 
-> "This certainly is better than to find, with Rajaram et al., horses (or "fire altars") all over the early subcontinent (see Frontline,Oct./Nov. 2000). Such writers see horses everywhere, just as some see Krishna everywhere: "He who sees me everywhere and sees everything in me..." (Bhagavad-Gita 6. 30) Or at least, Rajaram did so...."
-
+> "This certainly is better than to find, with Rajaram et al., horses (or "fire altars") all over the early subcontinent (see Frontline,Oct./Nov. 2000). Such writers see horses everywhere, just as some see Krishna everywhere: "He who sees me everywhere and sees everything in me..." (Bhagavad-Gita 6. 30) Or at least, Rajaram did so...."  
+>
 The verse of Gita cited by him, as any devout Hindu or any scholar of Hinduism would know, refers to the over-powering, overwhelming and all-encompassing Gnostic vision of the Divine as discussed in Hindu spirituality. Therefore, the misuse of this verse from a very important and sacred Hindu text in such a derisive context by Witzel betrays his insensitivity, to put it very euphemistically.
 
 **_9.2 India is just a cultural ‘cul-de-sac’!_**
 
-Even the Indian-ness of Buddhism is being question by Witzel and his cohorts. For instance, on various yahoogroups such as ‘Indo_Iranian’, they are arguing that ‘shaakya’ the name of Gautama Buddha’s lineage, is derived from the names of Shakas (Scythians) and that the practice of raising Stupas over the remains of the Buddha is derived from the practice of Scythian burial mounds. Even certain Buddhist doctrines, not to mention Upanishadic doctrines, are being derived from more Western (Scythian or Greek) sources. All this is being of course couched in a ‘scholarly’ garb, but it is strongly reminiscent of 19<sup>th</sup> century Indology that traced all developments in India (art, literature, architecture, political institutions etc) to some Western stimulus pouring into a passive recipient India.
-
+Even the Indian-ness of Buddhism is being question by Witzel and his cohorts. For instance, on various yahoogroups such as ‘Indo_Iranian’, they are arguing that ‘shaakya’ the name of Gautama Buddha’s lineage, is derived from the names of Shakas (Scythians) and that the practice of raising Stupas over the remains of the Buddha is derived from the practice of Scythian burial mounds. Even certain Buddhist doctrines, not to mention Upanishadic doctrines, are being derived from more Western (Scythian or Greek) sources. All this is being of course couched in a ‘scholarly’ garb, but it is strongly reminiscent of 19<sup>th</sup> century Indology that traced all developments in India (art, literature, architecture, political institutions etc) to some Western stimulus pouring into a passive recipient India.  
+>
 Hindus and Indians are bound to be wary then, when Witzel now openly states, that India is just a ‘cul-de-sac’[^95] in terms of human migrations and also cultural aspects. Witzel’s hate object David Frawley aptly comments _(ibid)_-
 
 
-> “Witzel quotes favourably a statement at the beginning of this rather long article about India's role as "the cultural diffusion cul-de-sac of Asia" (p.1), an idea that has "kept me occupied on and off over the past few years." This sums up Witzel's view of Indian civilisation — it is the cultural backwater and dead end of Asia, where wandering nomads can go no further, with no real civilisation of its own. 
-
-
-> Not surprisingly Witzel has little appreciation for the Vedas, Vedanta, Yoga, Buddhism or anything else India has produced. His extensive bibliographies on ancient India seldom refer to any Indian scholars, and certainly avoid mentioning any yogis like Aurobindo who have different views. You would never find Witzel chanting Om, practicing Yoga or in any other way honouring the great traditions of the region. His anti-India views reflect those of the colonial era which he is continuing. For this reason Witzel is mainly honoured by Marxists in India whose political agenda favours rejecting anything great not only in the Vedas but in Indian civilisation as a whole, which many Marxists following Marx himself see as an invention of the British. However, no one who really studies and loves the Vedas will be fooled by such theatrics. There is much more to the Vedas than Witzel's philology. For my more detailed response to Witzel, please note the web site, [http://www.voiceofdharma.org/indology/ReplytoWitzel.html](http://www.voiceofdharma.org/indology/ReplytoWitzel.html)” 
-
+> “Witzel quotes favourably a statement at the beginning of this rather long article about India's role as "the cultural diffusion cul-de-sac of Asia" (p.1), an idea that has "kept me occupied on and off over the past few years." This sums up Witzel's view of Indian civilisation — it is the cultural backwater and dead end of Asia, where wandering nomads can go no further, with no real civilisation of its own.   
+>
+> Not surprisingly Witzel has little appreciation for the Vedas, Vedanta, Yoga, Buddhism or anything else India has produced. His extensive bibliographies on ancient India seldom refer to any Indian scholars, and certainly avoid mentioning any yogis like Aurobindo who have different views. You would never find Witzel chanting Om, practicing Yoga or in any other way honouring the great traditions of the region. His anti-India views reflect those of the colonial era which he is continuing. For this reason Witzel is mainly honoured by Marxists in India whose political agenda favours rejecting anything great not only in the Vedas but in Indian civilisation as a whole, which many Marxists following Marx himself see as an invention of the British. However, no one who really studies and loves the Vedas will be fooled by such theatrics. There is much more to the Vedas than Witzel's philology. For my more detailed response to Witzel, please note the web site, [http://www.voiceofdharma.org/indology/ReplytoWitzel.html](http://www.voiceofdharma.org/indology/ReplytoWitzel.html)”   
+>
 If an Aryan invasion of India was not sufficient, he is now proposing even a Dravidian invasion! Even the Munda languages are said to have arrived from South East Asia. Anything but India! Witzel must be totally ignorant of India’s contributions to the culture of a large part of humanity outside the Indian subcontinent to make such stupid comments.
 
 **_9.3 Modern Indian languages are not scholarly -_**
@@ -720,20 +613,18 @@ If an Aryan invasion of India was not sufficient, he is now proposing even a Dra
 In a publication, Witzel implies[^96] that the literature in Indian languages is not scholarly when it comes to interpreting the Rigveda. He says –
 
 
-> “But Talageri, who cannot read any modern scholarly language besides English, does not leave a clue that he is aware that these works exist.” 
-
+> “But Talageri, who cannot read any modern scholarly language besides English, does not leave a clue that he is aware that these works exist.”   
+>
 Readers will recall that in the 1830’s, when colonialism and European imperialism was gaining ground in Asia and Africa, a British administrator named Lord Macaulay had made a similar remark to the effect that the languages of India and Arabia have not produced any worthwhile literature in comparison with European languages. Witzel is merely echoing Macaulay’s Eurocentric and racist remarks with respect to the state of Vedic studies in India. While Macaulay’s prejudice can be blamed on the white-supremacist worldview of Imperialists and on the prevalent notions of his era of Colonialism, Witzel’s clearly sounds repugnant in this “post enlightenment” age.
 
 **_9.4 Obsession with negative interpretations of Hindu heritage -_**
 
-And if Indians or Hindus are justifiably proud of some incident mentioned in ancient texts, that incident is explained otherwise by Witzel. Consider for instance the narrative in the spiritual text of Brihadaranyaka Upanishad III.3, where a lady Sage Gargi represents <span style="text-decoration:underline;">all</span> male Sages to dispute with the great Sage Yajnavalkya. Hindus are justifiably proud of the fact that although Gargi lost, the incident gives an example where several male Sages accepted her leadership and that she was defeated only by the best. But, Witzel has his own take on the issue. He says[^97] –
-
-
-> “* we should not read these texts as statements of actual facts, historical records but employ a bit of philological scepticism…..
-
-
-> * the loss of Gargi may be just a literary trick (as mentioned before). In addition, women do not usually attend such meetings as the middle Vedic text say (see before)….”
-
+And if Indians or Hindus are justifiably proud of some incident mentioned in ancient texts, that incident is explained otherwise by Witzel. Consider for instance the narrative in the spiritual text of Brihadaranyaka Upanishad III.3, where a lady Sage Gargi represents <span style="text-decoration:underline;">all</span> male Sages to dispute with the great Sage Yajnavalkya. Hindus are justifiably proud of the fact that although Gargi lost, the incident gives an example where several male Sages accepted her leadership and that she was defeated only by the best. But, Witzel has his own take on the issue. He says[^97] –  
+>
+> “* we should not read these texts as statements of actual facts, historical records but employ a bit of philological scepticism…..  
+>
+> * the loss of Gargi may be just a literary trick (as mentioned before). In addition, women do not usually attend such meetings as the middle Vedic text say (see before)….”  
+>
 Now what exactly is the proof that the inclusion of Gargi here is fictional and that she did not really attend this philosophical assembly? The proof is that Harvard Professor Witzel has said so. Thus spake the Lord (= Witzel). Hallelujah! No additional proof is needed to convert his opinion to fact!
 
 ## 10 Michael Witzel’s Terror Links?
@@ -775,8 +666,8 @@ The Wikipedia carries a biographical page on Michael Witzel.[^99] Due to Witzel�
 A website[^102] claims that Michael Witzel tool the “Original Garamond” font and renamed it Nina. The website asks:
 
 
-> “It is easily recognizable that "Nina" is identical with "Original Garamond", designed by D. Stempel AG in 1926 on the basis of a typecut attributed to the Renaissance typecutter Claude Garamond. In 1996, the trademark "Original Garamond" was replaced by the fancy name "Nina", and the "International Journal of Tantric Studies" (IJTS), edited by Prof. Michael Witzel (Harvard University), claimed that the IJTS holds the "copyright" in the "Nina" font. Is this the usual method, by which "original" works are created at Harvard? It is assumed that academics are mentally able to understand that the trademark "Original Garamond" should not have been replaced by the fancy name "Nina" and that the original notice should not have been replaced by the notice "Copyright (c) 1996 International Journal of Tantric Studies. All rights reserved."”
-
+> “It is easily recognizable that "Nina" is identical with "Original Garamond", designed by D. Stempel AG in 1926 on the basis of a typecut attributed to the Renaissance typecutter Claude Garamond. In 1996, the trademark "Original Garamond" was replaced by the fancy name "Nina", and the "International Journal of Tantric Studies" (IJTS), edited by Prof. Michael Witzel (Harvard University), claimed that the IJTS holds the "copyright" in the "Nina" font. Is this the usual method, by which "original" works are created at Harvard? It is assumed that academics are mentally able to understand that the trademark "Original Garamond" should not have been replaced by the fancy name "Nina" and that the original notice should not have been replaced by the notice "Copyright (c) 1996 International Journal of Tantric Studies. All rights reserved."”  
+>
 So far, we have not heard any public rebuttal of this charge from Witzel’s side. It may be recalled that the Ed. in Chief of the IJTS Enrica Garzilli is the same lady whom Witzel was accused of favoring excessively in a controversy at the Harvard University several years ago.[^103]
 
 Witzel’s scholarly opponent Shrikant Talageri too alleged[^104] that Witzel had plagiarized without acknowledgement Talageri’s chronological ordering of the books of the Rigveda. Witzel never responded to the allegation, which seems correct to me.
@@ -812,8 +703,8 @@ Therefore, it is appropriate to examine Steve Farmer’s behavior here in brief.
 Every now and then, Farmer mentions on his group therapy list (the Indo-Eurasian_Research yahoogroup) that he has to meet a ‘writing deadline’. With so many deadlines that he has to meet, it is surprising that one does not really encounter any significant output from him[^105] as published works! I wonder therefore if he is a copy-editor or a ghost writer for journals or magazines and utilizes the help of the yahoogroup members for his professional work. In a message sent to the IndianCivilization yahoogroup on 29 October 2000, Farmer claimed that he is working on a book under contract (“with a generous advance”) and another “on my own”. Eight years have elapsed but we have not encountered either book so far. In that same message to the yahoogroup, Farmer boasted that,
 
 
-> “I am a comparative historian, know a great deal of the secondary and primary literature in Indian studies (in translation, but I have been hard at work for many months in Sanskrit) and obviously have close contacts with many world-class Indologists. My work involves building general models of how manuscript traditions evolve -- a topic that travels remarkably well from premodern field to premodern [sic!] field. I think that that model can solve a lot of problems in Indology. I know several prominent Indologists who take it very seriously.”
-
+> “I am a comparative historian, know a great deal of the secondary and primary literature in Indian studies (in translation, but I have been hard at work for many months in Sanskrit) and obviously have close contacts with many world-class Indologists. My work involves building general models of how manuscript traditions evolve -- a topic that travels remarkably well from premodern field to premodern [sic!] field. I think that that model can solve a lot of problems in Indology. I know several prominent Indologists who take it very seriously.”  
+>
 For all his boasts name dropping, the fact remains that Steve Farmer is evidently member of the Liverpool Indology discussion list because he lacks the required credentials! In these eight long years since then, Farmer does not seem to have given any evidence of having mastered Sanskrit to any degree. He calls himself a ‘comparative historian’, but his behavior adheres to the adage ‘Jack of all trades, master of none’. In my opinion, his standard methodology appears to normalize disparate and disconnected cultures, so as to deny uniqueness of different cultures. In other words, if some cultural trait was not present in a non-Indian culture, it was not present in the Indian culture as well. If someone contradicts him on that score, prompt come abuses from Farmer like ‘Hindu nationalist’ and so on. And yet, Michael and Witzel have no moral compunctions about criticizing bonafide experts who differ from them while themselves pontificating on any and every topic under the sun outside their areas of specialization – astronomy, archaeology, skeletal anthropology, genetics and so on.
 
 Whatever he may be, Farmer is a ‘Quickie Indologist’ for sure. He does not understand adequately nor has any significant depth of knowledge in any branch of Indian culture or literary tradition. Yet, he loves to wax eloquent on the ‘different chronological layers’ in various Indian texts as if he has seen through the layering of these complex texts that people claim to understand after several years of intensive study. And when Farmer is pressed by genuine scholars such as grammarian George Cardona to discuss any particular section in any particular text to buttress his claims, one largely meets with silence!
@@ -830,16 +721,17 @@ Faced with an increasing crescendo of charges of hatred and prejudice against Hi
 
 **_13.5 Sexist remarks and other titillations: _**
 
-In the context of side comment on weather in Poland during the winter of 2006-2007, Farmer made the following comment[^108] on 23<sup>rd</sup> Dec 2006:
-
-
-> “Just wait until global warming gets worse, Artur: Italian girls sunning \
+In the context of side comment on weather in Poland during the winter of 2006-2007, Farmer made the following comment[^108] on 23<sup>rd</sup> Dec 2006:  
+>
+> “Just wait until global warming gets worse, Artur: Italian girls sunning \  
+>
 themselves on Polish beaches in February....”
 
 Perhaps his own comment titillated Farmer so much that he repeated the same statement[^109] on his own list just 10 days later –
 
 
-> “Again, Artur, with global warming accelerating, I predict you can look \
+> “Again, Artur, with global warming accelerating, I predict you can look \  
+>
 forward to Italian girls frolicking on Polish beaches in February soon.”
 
 Quite cheap and juvenile behavior on a supposedly academic list, in my opinion.
@@ -865,22 +757,22 @@ Meanwhile, a group of Indian Americans have initiated an Internet petition urgin
 The controversy over alleged hatred of Witzel towards Hindus has spilled out overseas from the USA. A mainstream Indian newspaper, Hindustan Times, carried an article[^112] where numerous interviewees all over India and the USA were quite outright in condemning what they thought was his racist and hatemongering attitude towards Hindus. Jagan Mohan from Pondicherry for instance alleged-
 
 
-> “The Witzel group is trying to maintain the status quo by showing India as a backward, cultural inferior civilisation by taking refuge behind the anti-Hindutva facade.”
-
+> “The Witzel group is trying to maintain the status quo by showing India as a backward, cultural inferior civilisation by taking refuge behind the anti-Hindutva facade.”  
+>
 A second article by a political commentator in another mainstream newspaper[^113] was actually titled ‘Harvard don denigrates Hindus’ and noted his boorish attitude towards Hindu discussants amongst many other aspects of his behavior. It calls him a mere linguist who promotes theories of Indian leftists and refers to his statements on Hindus, Indian Americans and Indians as ‘Witzel unprintables’. Numerous articles in Indian American newspapers were along similar lines.
 
 With regard to the allegations made by members of the Hindu American and Indian American communities, Witzel thinks that he is being mis-characterized. In a recent interview[^114] he says–
 
 
-> “I always get misrepresented that I am a Hindu-hater, but I am not. I hate people who misrepresent history.”
-
+> “I always get misrepresented that I am a Hindu-hater, but I am not. I hate people who misrepresent history.”  
+>
 Concerning other allegations against his insulting behavior towards Indians, Witzel remarks[^115] –
 
 
-> "I, for one, do not mind to be called pompous, indeed I am --- to people who deserve it. I do not suffer fools gladly."
-
-**What does the reader think**, in the <span style="text-decoration:underline;">light of the definitions of prejudice, ethnocentrism and racism</span> that were stated at the beginning of this compilation?
-
+> "I, for one, do not mind to be called pompous, indeed I am --- to people who deserve it. I do not suffer fools gladly."  
+>
+**What does the reader think**, in the <span style="text-decoration:underline;">light of the definitions of prejudice, ethnocentrism and racism</span> that were stated at the beginning of this compilation?  
+>
 ______________________________________
 
 **DISCLAIMER: This case study, modeled after Harvard Business School case studies, is a compilation done by several concerned netizens opposed to racism, for the purpose of discussion only. All attempts have been made to check the original sources. The compilers are not responsible for the opinions and statements of Dr Witzel stated in this study. We acknowledge the immensely useful material cut and paste (with slight modification) from several public websites. We hope the authors of these websites will not object, and that the discussants of this case study will verify the veracity of our citations directly.  **
@@ -1238,11 +1130,11 @@ _Sanskrit Dept. in Disarray, Students, Officials Say_; Published On Wednesday, J
 “_End Harvard Association of Hate Groups_” at [http://www.petitiononline.com/stopIER/petition.html](http://www.petitiononline.com/stopIER/petition.html)
 
 [^112]:
-“Stop this anti-Hindu tirade”, _Hindustan Times_, Internet edn. dt. 9<sup>th</sup> Dec 05’
-
+“Stop this anti-Hindu tirade”, _Hindustan Times_, Internet edn. dt. 9<sup>th</sup> Dec 05’  
+>
 [^113]:
-Kanchan Gupta, _The Daily Pioneer_, 25<sup>th</sup> Dec 05’, available at [http://www.dailypioneer.com/indexn12.asp?main_variable=front%5Fpage&file_name=story1%2Etxt&counter_img=1](http://www.dailypioneer.com/indexn12.asp?main_variable=front%5Fpage&file_name=story1%2Etxt&counter_img=1)
-
+Kanchan Gupta, _The Daily Pioneer_, 25<sup>th</sup> Dec 05’, available at [http://www.dailypioneer.com/indexn12.asp?main_variable=front%5Fpage&file_name=story1%2Etxt&counter_img=1](http://www.dailypioneer.com/indexn12.asp?main_variable=front%5Fpage&file_name=story1%2Etxt&counter_img=1)  
+>
 [^114]:
 _India Abroad_: December 16, 2005
 
