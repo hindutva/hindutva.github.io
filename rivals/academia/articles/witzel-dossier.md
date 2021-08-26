@@ -68,7 +68,7 @@ Practically every other month, Professor Witzel publishes a statement (in print 
 > Cheers, MW”  
 
 
-**<span style="text-decoration:underline;">Critique</span>:** It is a completely wrong to suggest that learning dance is considered disreputable in India or amongst Hindus. We have dozens of festivals in which people of all genders and social strata indulge in dancing and singing. Thousands of families in India hire professional dance teachers to teach traditional dances to their children. Why is Professor Witzel annoyed at us for teaching our classical dances to our children when we are, in the process, also enriching American culture?
+**<u>Critique</u>:** It is a completely wrong to suggest that learning dance is considered disreputable in India or amongst Hindus. We have dozens of festivals in which people of all genders and social strata indulge in dancing and singing. Thousands of families in India hire professional dance teachers to teach traditional dances to their children. Why is Professor Witzel annoyed at us for teaching our classical dances to our children when we are, in the process, also enriching American culture?
 
 Also note that ‘Hina’, if pronounced with a particular phonetic stress (as done by Witzel in his transliteration ‘hiina’ above), means ‘deprived’, ‘lowly’ and ‘insecure’ amongst other negative things in many Indian languages. Such terms have been used in the past to denigrate Jewish minorities. Professor Witzel, a first generation German immigrant himself, could not have been unaware of these meanings.
 
@@ -99,7 +99,7 @@ Similar stereotypical remarks about Indian Americans are inserted deliberately b
 
 Another incident where he unfairly accused groups of Hindu Americans may be discussed now. The State of California in the United States adopts new textbooks every six years. For several decades, Hindu Americans and Indian Americans have been dismayed at the slanted, erroneous and prejudiced descriptions of their heritage in these textbooks[^15]. In 2005 however, they organized themselves and approached the State Board of Education (SBE) in California to rectify these errors, before the textbooks were formally adopted and the text was frozen.
 
-These groups of Hindu Americans meticulously followed the procedures of the State Board in offering their comments, suggestions and edits to the texts that were submitted to the Board for reviews. However, just when these corrections were about to be accepted, a group of traditional India-bashers (e.g. Michael Witzel), non-scholars (e.g., astrophysicist Rajesh Kocchar[^16]), Indian Marxists (e.g., D N Jha, Romila Thapar), non-specialists in ancient India (e.g. economist Sudha Shenoy, post-colonial studies scholar Homi Bhabha, comparative historian Steve Farmer), scholars alleged to have demonstrated Eurocentric bias in the past (e.g., M Tosi[^17] of Italy), non-Indologists (e.g., S. Palaniappan, PhD in Road Transportation) and obscure linguists wrote an arrogant and pompous letter (on Harvard University letterhead, signed by Michael Witzel with endorsing signatures from 46 other ‘scholars’) to the State Board, addressing themselves as “all equally famous world class specialists” <span style="text-decoration:underline;">on ancient Indian history</span>. The letter (henceforth referred to as ‘Witzel Petition’) alleged that all these Hindu groups proposing edits in the textbooks under review were dangerous Hindu nationalists who were somehow connected with the slaughter of 1000 people in Gujarat, and whose friends in India routinely discriminate against millions of Indian minority members and Dalits!
+These groups of Hindu Americans meticulously followed the procedures of the State Board in offering their comments, suggestions and edits to the texts that were submitted to the Board for reviews. However, just when these corrections were about to be accepted, a group of traditional India-bashers (e.g. Michael Witzel), non-scholars (e.g., astrophysicist Rajesh Kocchar[^16]), Indian Marxists (e.g., D N Jha, Romila Thapar), non-specialists in ancient India (e.g. economist Sudha Shenoy, post-colonial studies scholar Homi Bhabha, comparative historian Steve Farmer), scholars alleged to have demonstrated Eurocentric bias in the past (e.g., M Tosi[^17] of Italy), non-Indologists (e.g., S. Palaniappan, PhD in Road Transportation) and obscure linguists wrote an arrogant and pompous letter (on Harvard University letterhead, signed by Michael Witzel with endorsing signatures from 46 other ‘scholars’) to the State Board, addressing themselves as “all equally famous world class specialists” <u>on ancient Indian history</u>. The letter (henceforth referred to as ‘Witzel Petition’) alleged that all these Hindu groups proposing edits in the textbooks under review were dangerous Hindu nationalists who were somehow connected with the slaughter of 1000 people in Gujarat, and whose friends in India routinely discriminate against millions of Indian minority members and Dalits!
 
 Witzel and three other ‘world class specialists’ were invited by a panicked SBE to offer their own comments on the edits proposed by Hindu groups. In response, Witzel et al submitted 58 objections, many of which were clearly derogatory to Hindus. For instance, where the Hindu group proposed a correction of the statement that the ‘Mahabharata was written earlier than Ramayana’, Witzel and team remarked:
 
@@ -155,7 +155,7 @@ In the Indo-Eurasian_Research (IER) group moderated by Witzel and Steve Farmer, 
 
 Likewise, on the Indology Yahoogroup, in behavior reminiscent of colonial signs reading “Indians and Dogs are not allowed”, some Indologists proposed using languages (such as French and German) in which Indians are normally not proficient for their internet discussion. To prevent Indians not knowing German and French from participating in discussions, German Indologist Roland Steiner[^26] started his posts in German. This was approved by Lars Martin Fosse[^27] and of course by Michael Witzel[^28].
 
-As an another example, let us look at what happened on the Liverpool Indology list, there were 650 members, of which an overwhelming majority were Americans and Europeans. From March 1999 to April 2001, the moderator Dominik Wujastyk (another signatory of the Witzel Petition) expelled about 15 members, all of whom were Indians. This itself would be deemed as racism by the usual 4/5th rule in the United States. The Indians were expelled for any imaginable reason – rudeness, excessive posts, lengthy posts, advertising and what not. In fact, such flaws for which Indians were expelled, could be seen to a much greater extent demonstrably in the posts of European/American Indologists, notably Robert Zydenbos, Michael Witzel, Lars Martin Fosse (another signatory of Witzel petition) – their posts were often filled with abuses (‘fascist’. ‘liar’ etc. used for other list members) but these people were never touched; or mildly rebuked at the most. In contrast, Indians and others sympathetic to Hindus (e.g. Subhash Kak, Koenraad Elst for e.g.) were harassed so much by Western Indologists (many of them signatories to Witzel Petition) with the perfect connivance of Dominik for their views that they had to leave the list. These people had maintained their politeness till the end but the harassment and name-calling became unbearable. Moreover, Dominik tolerated 250 posts from Western Indologists deriding the level of science and engineering<span style="text-decoration:underline;"> </span>in India in a period of two months (this is strange because Indologists have little appreciation of science themselves!) in late 2000, another 250 posts using sarcastic and totally un-academic language on Indus script decipherment of Rajaram et al (who was not present to defend himself) but expelled Indians left and right when they protested against insults to Indians in general. Needless to say, Witzel was not found wanting and played a leading role in this fracas[^29].  
+As an another example, let us look at what happened on the Liverpool Indology list, there were 650 members, of which an overwhelming majority were Americans and Europeans. From March 1999 to April 2001, the moderator Dominik Wujastyk (another signatory of the Witzel Petition) expelled about 15 members, all of whom were Indians. This itself would be deemed as racism by the usual 4/5th rule in the United States. The Indians were expelled for any imaginable reason – rudeness, excessive posts, lengthy posts, advertising and what not. In fact, such flaws for which Indians were expelled, could be seen to a much greater extent demonstrably in the posts of European/American Indologists, notably Robert Zydenbos, Michael Witzel, Lars Martin Fosse (another signatory of Witzel petition) – their posts were often filled with abuses (‘fascist’. ‘liar’ etc. used for other list members) but these people were never touched; or mildly rebuked at the most. In contrast, Indians and others sympathetic to Hindus (e.g. Subhash Kak, Koenraad Elst for e.g.) were harassed so much by Western Indologists (many of them signatories to Witzel Petition) with the perfect connivance of Dominik for their views that they had to leave the list. These people had maintained their politeness till the end but the harassment and name-calling became unbearable. Moreover, Dominik tolerated 250 posts from Western Indologists deriding the level of science and engineering<u> </u>in India in a period of two months (this is strange because Indologists have little appreciation of science themselves!) in late 2000, another 250 posts using sarcastic and totally un-academic language on Indus script decipherment of Rajaram et al (who was not present to defend himself) but expelled Indians left and right when they protested against insults to Indians in general. Needless to say, Witzel was not found wanting and played a leading role in this fracas[^29].  
 >
 ### 3.5 Michael Witzel said – “Indians living east of Delhi are ‘empty’”
 
@@ -199,7 +199,7 @@ Witzel’s critics have shown that he has written adverse reviews and comments o
 
 ### 4.1 Loutish and unscholarly behavior in academic journals-
 
-The following is only a brief sample of the irrelevant and inappropriate remarks that permeate <span style="text-decoration:underline;">just one</span> published paper[^32] of Michael Witzel.  
+The following is only a brief sample of the irrelevant and inappropriate remarks that permeate <u>just one</u> published paper[^32] of Michael Witzel.  
 >
     **Page. 107, fn. 2:** “Or, as Kazanas suggests – since he seems secretly proud of the “revisionist” label….”
 
@@ -437,7 +437,7 @@ We do not see how these scenarios are essentially different from the 19th centur
 
 ### 6.5 Anti-Aryanism is a ‘Hindu Conspiracy’:
 
-Although no proof credible archaeological, genetic, anthropological, literary or other proof exists that Aryans invaded/migrated/acculturated/diffused/osmosized into India around 1500 BCE, the theory must <span style="text-decoration:underline;">always </span>be retained as the default explanation of ancient Indian history and the genesis of Hinduism in Indology textbooks, or even grade VI textbooks per Witzel. The theory is inferred using most tendentious logic from the soft evidence of historical linguistics. Although most linguists today have no connection with racist ideologies, it is a fact that in the past, many of them were at the service of Nazism[^52] and so on.
+Although no proof credible archaeological, genetic, anthropological, literary or other proof exists that Aryans invaded/migrated/acculturated/diffused/osmosized into India around 1500 BCE, the theory must <u>always </u>be retained as the default explanation of ancient Indian history and the genesis of Hinduism in Indology textbooks, or even grade VI textbooks per Witzel. The theory is inferred using most tendentious logic from the soft evidence of historical linguistics. Although most linguists today have no connection with racist ideologies, it is a fact that in the past, many of them were at the service of Nazism[^52] and so on.
 
 Another interesting example where Witzel and his cohorts on the IER list are defending the AIT is the attack on a BBC website[^53] by some signatories of Witzel Petition. It is being alleged on the Indology and IER yahoogroups that the content of the website is motivated by Hindutva interpretations of ancient Indian history! The website lists clear reasons as to why the Aryan invasion theory is rejected, and how it demeans Indian heritage and intelligence. One wonders why these Indologists are planning to attack the BBC now if they do not uphold the AIT? Are these people still using AIT as a bargaining point, in the hope that their opponents will at least concede the equally baseless Aryan migration theory as a compromise? What exactly is so offensive on this webpage? The webpage does not even replace AIT with the opposite indigenous Aryan theory. So why are these Indologists so peeved?
 
@@ -515,7 +515,7 @@ Of course, Witzel did not try to defend the indefensible Nazi ideology. But he s
 
 Now, if I were Witzel, I would say that his statement that the heavy-handedness of Allies caused some Germans to conceal Nazi war criminals smacks of negationist sympathies.
 
-Anyhow, one cannot help noticing that whereas on one hand, Witzel is very careful in distinguishing guilty Germans from non-guilty Germans, on the other hand he often does not consider it necessary in hedging his sweeping negative stereotypical remarks about Indian Americans with words such as ‘some’ or ‘few’. He taints <span style="text-decoration:underline;">all</span> of them with labels and denigrates all of them with stereotypical statements in some of his stereotypical remarks.  
+Anyhow, one cannot help noticing that whereas on one hand, Witzel is very careful in distinguishing guilty Germans from non-guilty Germans, on the other hand he often does not consider it necessary in hedging his sweeping negative stereotypical remarks about Indian Americans with words such as ‘some’ or ‘few’. He taints <u>all</u> of them with labels and denigrates all of them with stereotypical statements in some of his stereotypical remarks.  
 >
 ### 7.3 Quoting Nazi Indologists:
 
@@ -593,15 +593,15 @@ and then Steve Farmer replies:
 >
 >  Steve”  
 >
-And then in a subsequent post with follow up conversation, Steve Farmer states that <span style="text-decoration:underline;">‘I will try it on my girlfriend tonight”</span>[^93]<span style="text-decoration:underline;">.</span> On a list of the Indian diaspora members spread all over the world, a member later joked if Steve Farmer’s girlfriend is a goat!  
->
+And then in a subsequent post with follow up conversation, Steve Farmer states that <u>‘I will try it on my girlfriend tonight”</u>[^93]. On a list of the Indian diaspora members spread all over the world, a member later joked if Steve Farmer’s girlfriend is a goat!  
+
 We would like the readers to ponder if in a multicultural environment, could we afford such people with a contempt towards sacred chants of minority faiths to decide what school going children should study or not study? Time and again, many of the signatories including Professor Witzel have demonstrated a lack of sensitivity towards the culture and heritage of Hindus and Indians, when such a behavior forms the bed-rock of a multi-cultural society.
 
 In another article, Witzel accuses Navaratna Rajaram of morphing or deliberately doctoring an Indus seal to prove fraudulently that it depicted a horse, whereas it actually depicted a unicorn bull. Witzel then remarks sarcastically[^94] –
 
 
 > "This certainly is better than to find, with Rajaram et al., horses (or "fire altars") all over the early subcontinent (see Frontline,Oct./Nov. 2000). Such writers see horses everywhere, just as some see Krishna everywhere: "He who sees me everywhere and sees everything in me..." (Bhagavad-Gita 6. 30) Or at least, Rajaram did so...."  
->
+
 The verse of Gita cited by him, as any devout Hindu or any scholar of Hinduism would know, refers to the over-powering, overwhelming and all-encompassing Gnostic vision of the Divine as discussed in Hindu spirituality. Therefore, the misuse of this verse from a very important and sacred Hindu text in such a derisive context by Witzel betrays his insensitivity, to put it very euphemistically.
 
 ### 9.2 India is just a cultural ‘cul-de-sac’!
@@ -628,7 +628,7 @@ Readers will recall that in the 1830’s, when colonialism and European imperial
 
 ### 9.4 Obsession with negative interpretations of Hindu heritage -
 
-And if Indians or Hindus are justifiably proud of some incident mentioned in ancient texts, that incident is explained otherwise by Witzel. Consider for instance the narrative in the spiritual text of Brihadaranyaka Upanishad III.3, where a lady Sage Gargi represents <span style="text-decoration:underline;">all</span> male Sages to dispute with the great Sage Yajnavalkya. Hindus are justifiably proud of the fact that although Gargi lost, the incident gives an example where several male Sages accepted her leadership and that she was defeated only by the best. But, Witzel has his own take on the issue. He says[^97] –  
+And if Indians or Hindus are justifiably proud of some incident mentioned in ancient texts, that incident is explained otherwise by Witzel. Consider for instance the narrative in the spiritual text of Brihadaranyaka Upanishad III.3, where a lady Sage Gargi represents <u>all</u> male Sages to dispute with the great Sage Yajnavalkya. Hindus are justifiably proud of the fact that although Gargi lost, the incident gives an example where several male Sages accepted her leadership and that she was defeated only by the best. But, Witzel has his own take on the issue. He says[^97] –  
 >
 > “* we should not read these texts as statements of actual facts, historical records but employ a bit of philological scepticism…..  
 >
@@ -778,7 +778,7 @@ Concerning other allegations against his insulting behavior towards Indians, Wit
 
 > "I, for one, do not mind to be called pompous, indeed I am --- to people who deserve it. I do not suffer fools gladly."  
 >
-**What does the reader think**, in the <span style="text-decoration:underline;">light of the definitions of prejudice, ethnocentrism and racism</span> that were stated at the beginning of this compilation?  
+**What does the reader think**, in the <u>light of the definitions of prejudice, ethnocentrism and racism</u> that were stated at the beginning of this compilation?  
 >
 
 
@@ -786,359 +786,359 @@ Concerning other allegations against his insulting behavior towards Indians, Wit
 ## Notes
 
 [^1]:
-“_Thus Spake Professor Michael Witzel: A Harvard Case Study in Prejudice_” available online at [http://www.vigilonline.com/downloads/Dossier_on_Witzel.pdf](http://www.vigilonline.com/downloads/Dossier_on_Witzel.pdf) and also at [http://www.vigilonline.com/downloads/Dossier_on_Witzel.doc](http://www.vigilonline.com/downloads/Dossier_on_Witzel.doc)
+     “_Thus Spake Professor Michael Witzel: A Harvard Case Study in Prejudice_” available online at [http://www.vigilonline.com/downloads/Dossier_on_Witzel.pdf](http://www.vigilonline.com/downloads/Dossier_on_Witzel.pdf) and also at [http://www.vigilonline.com/downloads/Dossier_on_Witzel.doc](http://www.vigilonline.com/downloads/Dossier_on_Witzel.doc) 
 
 [^2]:
-For details of this controversy and associated resources, refer to the website “Internet Resources on the California Hindu Textbook Controversy” at [http://letindiadevelop.org/irochtc/](http://letindiadevelop.org/irochtc/)
-For a resume of the errors in these textbooks, refer the article: Vishal Agarwal, 2006-7, “Misrepresentation of Ancient India in American School Textbooks”, in _History Today - Journal of History and Historical Archaeology_, No. 7, pp. 72-89. For e-copies, write to me at [vishalsagarwal@yahoo.com](mailto:vishalsagarwal@yahoo.com)
+     For details of this controversy and associated resources, refer to the website “Internet Resources on the California Hindu Textbook Controversy” at [http://letindiadevelop.org/irochtc/](http://letindiadevelop.org/irochtc/) 
+    For a resume of the errors in these textbooks, refer the article: Vishal Agarwal, 2006-7, “Misrepresentation of Ancient India in American School Textbooks”, in _History Today - Journal of History and Historical Archaeology_, No. 7, pp. 72-89. For e-copies, write to me at [vishalsagarwal@yahoo.com](mailto:vishalsagarwal@yahoo.com) 
 
 [^3]:
-Their website is at [http://www.hafsite.org](http://www.hafsite.org)
+     Their website is at [http://www.hafsite.org](http://www.hafsite.org) 
 
 [^4]:
-Their website is at [http://www.capeem.org](http://www.capeem.org)
+     Their website is at [http://www.capeem.org](http://www.capeem.org) 
 
 [^5]:
-[http://pacer.psc.uscourts.gov/](http://pacer.psc.uscourts.gov/)
+     [http://pacer.psc.uscourts.gov/](http://pacer.psc.uscourts.gov/) 
 
 [^6]:
-The document is public information and therefore, I have the legal right to discuss and disseminate its contents now that I have downloaded it online.
+     The document is public information and therefore, I have the legal right to discuss and disseminate its contents now that I have downloaded it online. 
 
 [^7]:
-Joel M. Charon. 2001. _Ten Questions, A Sociological Perspective_. Wadsworth Thompson Learning: Belmont (California), pp. 247-265
+     Joel M. Charon. 2001. _Ten Questions, A Sociological Perspective_. Wadsworth Thompson Learning: Belmont (California), pp. 247-265
 
 [^8]:
-The following study gives a nultifaceted view on prejudice and discrimination –
-Gordon W. Allport. 1954. _The Nature of Prejudice_. Addison-Wesley Publishing Company, Inc.: New York
+     The following study gives a nultifaceted view on prejudice and discrimination –
+    Gordon W. Allport. 1954. _The Nature of Prejudice_. Addison-Wesley Publishing Company, Inc.: New York
 
 [^9]:
-Claire M. Renzetti ad Daniel Curran, ‘Living Sociology’, Allyn and Bacon, Needham Heights (MA, USA): 1998, p. 287
+     Claire M. Renzetti ad Daniel Curran, ‘Living Sociology’, Allyn and Bacon, Needham Heights (MA, USA): 1998, p. 287
 
 [^10]:
-Konrad Phillip Kottak, “_Cultural Anthropology_”, McGraw-Hill, Inc. : 1994, p. 79
-See also Milton Kleg. 1993. Hate Prejudice and Racism. SUNY: lbany (New York)
+     Konrad Phillip Kottak, “_Cultural Anthropology_”, McGraw-Hill, Inc. : 1994, p. 79
+    See also Milton Kleg. 1993. Hate Prejudice and Racism. SUNY: lbany (New York)
 
 [^11]:
-For example, in an email message sent to a group of 8 people (including myself) in September 1999, Witzel remarked that** _“Many Indians still cannot read their texts critically…..But Indian women are better than men”._**
-We have also completely ignored the scary information about Michael Witzel that comes from grapevines in various universities in the United States.
+     For example, in an email message sent to a group of 8 people (including myself) in September 1999, Witzel remarked that** _“Many Indians still cannot read their texts critically…..But Indian women are better than men”._**
+    We have also completely ignored the scary information about Michael Witzel that comes from grapevines in various universities in the United States.
 
 [^12]:
-Message number 2300 dt. 11/13/05, on http:/groups.yahoo.com/group/indo-eurasian_research
+     Message number 2300 dt. 11/13/05, on http:/groups.yahoo.com/group/indo-eurasian_research   
 
 [^13]:
-In fact, many cohorts of Witzel who signed on the ‘Witzel Petition’ (see later in this article) have Christian missionary links. Asko Parpola’s maternal grandfather was a Christian missionary in Japan. His wife Marjatta Parpola talks of ‘our Christian friend’ in her recent book on Kerala Brahmins (‘_Kerala Brahmins in Transition_’, Finnish Oriental Society: Helsinki, 2000).
-Jonathan Kenoyer’s father was the chief physician at a Mission hospital in Shillong (the hub of Christian evangelization even today).
-Lars Martin Fosse contacted Father John Dayal, a right wing Christian leader from India, for help on the California textbook controversy issue in 2005.
-The late James Heitzman (who formed the CRP committee with Witzel) seems to be a Christian miracle monger, if his writings are seen.
-Many other Indologists such as Wilhelm Rau (whose writings are sacrosanct for Witzel) started their careers as Christian theologians. Rau has many biographies of great Lutheran Christians to his credit.
-Despite their Christian missionary links, no Indologist questions the objectivity of worth of their writings. On the other hand, on lists such as the ones moderated by likes of Witzel (e.g., the Indo-Eurasian_Research Yahoogroup, or IER), aspersions are routinely cast on Hindus or Indians (or even South Asians in general) that the writings of these ‘natives’ are tainted by nationalism or pre-scientific religious viewpoints!
+     In fact, many cohorts of Witzel who signed on the ‘Witzel Petition’ (see later in this article) have Christian missionary links. Asko Parpola’s maternal grandfather was a Christian missionary in Japan. His wife Marjatta Parpola talks of ‘our Christian friend’ in her recent book on Kerala Brahmins (‘_Kerala Brahmins in Transition_’, Finnish Oriental Society: Helsinki, 2000). 
+    Jonathan Kenoyer’s father was the chief physician at a Mission hospital in Shillong (the hub of Christian evangelization even today). 
+    Lars Martin Fosse contacted Father John Dayal, a right wing Christian leader from India, for help on the California textbook controversy issue in 2005. 
+    The late James Heitzman (who formed the CRP committee with Witzel) seems to be a Christian miracle monger, if his writings are seen. 
+    Many other Indologists such as Wilhelm Rau (whose writings are sacrosanct for Witzel) started their careers as Christian theologians. Rau has many biographies of great Lutheran Christians to his credit. 
+    Despite their Christian missionary links, no Indologist questions the objectivity of worth of their writings. On the other hand, on lists such as the ones moderated by likes of Witzel (e.g., the Indo-Eurasian_Research Yahoogroup, or IER), aspersions are routinely cast on Hindus or Indians (or even South Asians in general) that the writings of these ‘natives’ are tainted by nationalism or pre-scientific religious viewpoints!
 
 [^14]:
-See Section 6 at the webpage [http://www.people.fas.harvard.edu/~witzel/R&J.htm](http://www.people.fas.harvard.edu/~witzel/R&J.htm)
+     See Section 6 at the webpage [http://www.people.fas.harvard.edu/~witzel/R&J.htm](http://www.people.fas.harvard.edu/~witzel/R&J.htm)
 
 [^15]:
-For examples of such distortions, see [http://www.india-forum.com/index.php?news=39](http://www.india-forum.com/index.php?news=39)  It is precisely these kinds of errors, slanted descriptions, prejudiced discussions and outdated information in the textbooks (as mentioned above by me) that alarmed the parents of the Indian American and Hindu American communities in California. And yet, Michael Witzel, Romila Thapar and other prejudiced ‘scholars’ launched a Goebbelsian blitzkrieg, labeling these California residents, apolitical parents who pay their taxes regularly and contribute to the US society immensely, as dangerous Hindu fundamentalists linked to murderers and what not.
+     For examples of such distortions, see [http://www.india-forum.com/index.php?news=39](http://www.india-forum.com/index.php?news=39)  It is precisely these kinds of errors, slanted descriptions, prejudiced discussions and outdated information in the textbooks (as mentioned above by me) that alarmed the parents of the Indian American and Hindu American communities in California. And yet, Michael Witzel, Romila Thapar and other prejudiced ‘scholars’ launched a Goebbelsian blitzkrieg, labeling these California residents, apolitical parents who pay their taxes regularly and contribute to the US society immensely, as dangerous Hindu fundamentalists linked to murderers and what not. 
 
 [^16]:
-Amongst the crackpot theories of this protégé of Romila Thapar is the ingenious suggestion that not just the Rigvedic Saraswati, but even the Ganga and Yamuna mentioned in the Rigveda should be located in Afghanistan!
+     Amongst the crackpot theories of this protégé of Romila Thapar is the ingenious suggestion that not just the Rigvedic Saraswati, but even the Ganga and Yamuna mentioned in the Rigveda should be located in Afghanistan! 
 
 [^17]:
-For the anti-Indian bias of Maurizio Tosi, refer Dilip Chakrabarti’s _Colonial Indology_ (1997), Munshiram Manoharlal: New Delhi, 167ff.
-Chakrabarti has also cited several relevant examples from Tosi’s writings in the above book. For instance, in a 1992 paper [TOSI, M. 1992. “The Harappan Civilization beyond the Indian Subcontinent”, in Gregory L. Possehl ed., _Harappan Civilization_, Delhi, pp. 365-378], Tosi argues: “……it is relevant to establish whether the investments in people and resources the Indus civilization would deserve should compare with those directed in the past to the study of ancient Mesopotamia and, more recently, pre-Columbian Meso-America.” If Tosi is so unconcerned about the Indian past, then why did he bother signing the Witzel letter in the first place?
-It is not out of place to mention here that when Dr Kalyanaraman wrote an open letter to 47 signatories, including Tosi, who had urged the State Board to ignore the suggestions of Hindu groups. In response, Tosi sent a most shameless, xenophobic letter that one would not normally expect of a seasoned scholar. Dated 11 Dec 2005, the letter read – _“So if you choose to send your chjildren to our schools, to train them in a competitive environment of science....DO NOT bother us with the crap of your souls and fears. We have enough of fanatics who exploit our liberality; Your freedom ends where mine begins..... ". _The letter sounds like the rant of a xenophobic right-winger.
+     For the anti-Indian bias of Maurizio Tosi, refer Dilip Chakrabarti’s _Colonial Indology_ (1997), Munshiram Manoharlal: New Delhi, 167ff. 
+    Chakrabarti has also cited several relevant examples from Tosi’s writings in the above book. For instance, in a 1992 paper [TOSI, M. 1992. “The Harappan Civilization beyond the Indian Subcontinent”, in Gregory L. Possehl ed., _Harappan Civilization_, Delhi, pp. 365-378], Tosi argues: “……it is relevant to establish whether the investments in people and resources the Indus civilization would deserve should compare with those directed in the past to the study of ancient Mesopotamia and, more recently, pre-Columbian Meso-America.” If Tosi is so unconcerned about the Indian past, then why did he bother signing the Witzel letter in the first place?
+    It is not out of place to mention here that when Dr Kalyanaraman wrote an open letter to 47 signatories, including Tosi, who had urged the State Board to ignore the suggestions of Hindu groups. In response, Tosi sent a most shameless, xenophobic letter that one would not normally expect of a seasoned scholar. Dated 11 Dec 2005, the letter read – _“So if you choose to send your chjildren to our schools, to train them in a competitive environment of science....DO NOT bother us with the crap of your souls and fears. We have enough of fanatics who exploit our liberality; Your freedom ends where mine begins..... ". _The letter sounds like the rant of a xenophobic right-winger. 
 
 [^18]:
-“California School Board Accepts Most Hindu Changes to Sixth Grade Textbooks”, _Hindu Press International_, ezine dated December 4<sup>th</sup>, 2005.
+     “California School Board Accepts Most Hindu Changes to Sixth Grade Textbooks”, _Hindu Press International_, ezine dated December 4<sup>th</sup>, 2005.
 
 [^19]:
-See [http://www.petitiononline.com/stopIER/petition.html](http://www.petitiononline.com/stopIER/petition.html) Within four days,  more than 1000 people signed this petition, showing how widespread was the sentiment against Witzel.
+     See [http://www.petitiononline.com/stopIER/petition.html](http://www.petitiononline.com/stopIER/petition.html) Within four days,  more than 1000 people signed this petition, showing how widespread was the sentiment against Witzel.
 
 [^20]:
-The archives of the yahoogroup named ‘Indictraditions’ may be seen for dozens of examples of Witzel’s disgusting behavior.
+     The archives of the yahoogroup named ‘Indictraditions’ may be seen for dozens of examples of Witzel’s disgusting behavior. 
 
 [^21]:
-Witzel, Michael. 2001. “_Little Words with Profound Meaning_” at [http://northshore.shore.net/%7Eindia/ejvs/ejvs0701/ejvs0701.txt](http://northshore.shore.net/%7Eindia/ejvs/ejvs0701/ejvs0701.txt)
+     Witzel, Michael. 2001. “_Little Words with Profound Meaning_” at [http://northshore.shore.net/%7Eindia/ejvs/ejvs0701/ejvs0701.txt](http://northshore.shore.net/%7Eindia/ejvs/ejvs0701/ejvs0701.txt) 
 
 [^22]:
-[http://www.people.fas.harvard.edu/~witzel/Kazanas.htm](http://www.people.fas.harvard.edu/~witzel/Kazanas.htm)
+     [http://www.people.fas.harvard.edu/~witzel/Kazanas.htm](http://www.people.fas.harvard.edu/~witzel/Kazanas.htm) 
 
 [^23]:
-“_The Aryan Migration Theory, Fabricating literary evidence_” by Vishal Agarwal at [http://vishalagarwal.voiceofdharma.com/articles/indhistory/amt/index.htm](http://vishalagarwal.voiceofdharma.com/articles/indhistory/amt/index.htm)
+     “_The Aryan Migration Theory, Fabricating literary evidence_” by Vishal Agarwal at [http://vishalagarwal.voiceofdharma.com/articles/indhistory/amt/index.htm](http://vishalagarwal.voiceofdharma.com/articles/indhistory/amt/index.htm) 
 
 [^24]:
-_Ancient Cities of the Indian Civilization_, Oxford University Press (Karachi), 1998
+     _Ancient Cities of the Indian Civilization_, Oxford University Press (Karachi), 1998
 
 [^25]:
-Message 1848 dated Nov 11, 2000 on the IndicTraditions yahoogroup
+     Message 1848 dated Nov 11, 2000 on the IndicTraditions yahoogroup
 
 [^26]:
-See [http://groups.yahoo.com/group/INDOLOGY/message/1029](http://groups.yahoo.com/group/INDOLOGY/message/1029)
+     See [http://groups.yahoo.com/group/INDOLOGY/message/1029](http://groups.yahoo.com/group/INDOLOGY/message/1029) 
 
 [^27]:
-[http://groups.yahoo.com/group/INDOLOGY/message/1030](http://groups.yahoo.com/group/INDOLOGY/message/1030)
+     [http://groups.yahoo.com/group/INDOLOGY/message/1030](http://groups.yahoo.com/group/INDOLOGY/message/1030) 
 
 [^28]:
-[http://groups.yahoo.com/group/INDOLOGY/message/1032](http://groups.yahoo.com/group/INDOLOGY/message/1032)
+     [http://groups.yahoo.com/group/INDOLOGY/message/1032](http://groups.yahoo.com/group/INDOLOGY/message/1032)
 
 [^29]:
-While people holding a particular set of opinions were derided as Hindu fanatics, all other varieties of ideologues like Dravidian Nationalists, Islamists, Marxists were given total freedom and even encouragement by some [For instance Zydenbos said that he advocated the splitting up of India into several nations!]. Eventually, the list became an Indian vs non-Indian mudslinging group and had to be closed on April 14, 2001. The list was re-opened after a few months but with new requirements that effectively eliminated the Indian membership. This new list was moderated by a committee of about 10 scholars now, none of whom is Indian.
+     While people holding a particular set of opinions were derided as Hindu fanatics, all other varieties of ideologues like Dravidian Nationalists, Islamists, Marxists were given total freedom and even encouragement by some [For instance Zydenbos said that he advocated the splitting up of India into several nations!]. Eventually, the list became an Indian vs non-Indian mudslinging group and had to be closed on April 14, 2001. The list was re-opened after a few months but with new requirements that effectively eliminated the Indian membership. This new list was moderated by a committee of about 10 scholars now, none of whom is Indian. 
 
 [^30]:
-[http://groups.yahoo.com/group/Indo-Eurasian_research/message/5853](http://groups.yahoo.com/group/Indo-Eurasian_research/message/5853)
+     [http://groups.yahoo.com/group/Indo-Eurasian_research/message/5853](http://groups.yahoo.com/group/Indo-Eurasian_research/message/5853) 
 
 [^31]:
-See for instance pp. 430-432 in Shrikant Talageri, _The Rigveda, a Historical Analysis_. Aditya Prakashan: New Delhi (2000). Also available online at [http://voiceofdharma.org/books/rig/ch9.htm](http://voiceofdharma.org/books/rig/ch9.htm)
+     See for instance pp. 430-432 in Shrikant Talageri, _The Rigveda, a Historical Analysis_. Aditya Prakashan: New Delhi (2000). Also available online at [http://voiceofdharma.org/books/rig/ch9.htm](http://voiceofdharma.org/books/rig/ch9.htm) 
 
 [^32]:
-‘Ein Fremdling im Rgveda’  (_Journal of Indo-European Studies_, Vol. 31, No.1-2: pp.107-185, 2003)
+     ‘Ein Fremdling im Rgveda’  (_Journal of Indo-European Studies_, Vol. 31, No.1-2: pp.107-185, 2003)
 
 [^33]:
-[http://nautilus.shore.net/~india/ejvs/ejvs0702/ejvs0702article.pdf](http://nautilus.shore.net/~india/ejvs/ejvs0702/ejvs0702article.pdf)
+     [http://nautilus.shore.net/~india/ejvs/ejvs0702/ejvs0702article.pdf](http://nautilus.shore.net/~india/ejvs/ejvs0702/ejvs0702article.pdf) 
 
 [^34]:
-Shrikant Talageri, _The Rigveda a Historical Analysis_, Aditya Prakashan: New Delhi (2000)
+     Shrikant Talageri, _The Rigveda a Historical Analysis_, Aditya Prakashan: New Delhi (2000)
 
 [^35]:
-This material is taken verbatim from a 80 point by point rebuttal by Talageri showing how fraudulent Witzel’s so called review is. Therefore many first person comments are kept as in the original.
+     This material is taken verbatim from a 80 point by point rebuttal by Talageri showing how fraudulent Witzel’s so called review is. Therefore many first person comments are kept as in the original. 
 
 [^36]:
-Referred to as the ‘Witzel Petition’ in this article elsewhere.
+     Referred to as the ‘Witzel Petition’ in this article elsewhere.
 
 [^37]:
-Message 2563 dt. 15 December 2005 available at [http://groups.yahoo.com/group/Indo-Eurasian_research/message/2563](http://groups.yahoo.com/group/Indo-Eurasian_research/message/2563)
+     Message 2563 dt. 15 December 2005 available at [http://groups.yahoo.com/group/Indo-Eurasian_research/message/2563](http://groups.yahoo.com/group/Indo-Eurasian_research/message/2563) 
 
 [^38]:
-Message number 7805 dt. 22 July 2001 on the ‘IndianCivilization’ yahoogroup
+     Message number 7805 dt. 22 July 2001 on the ‘IndianCivilization’ yahoogroup
 
 [^39]:
-Yahoogroup called ‘scholarlyservices’. Membership is only by invitation of Dr Fosse. The list has an unwritten rule that Indians and dogs are not allowed, although a certain type of Indian that is servile is allowed.
+     Yahoogroup called ‘scholarlyservices’. Membership is only by invitation of Dr Fosse. The list has an unwritten rule that Indians and dogs are not allowed, although a certain type of Indian that is servile is allowed.
 
 [^40]:
-Bryant, Edwin and Laurie Patton. 2005. _The Indo-Aryan Controversy._ New York: Routledge
+     Bryant, Edwin and Laurie Patton. 2005. _The Indo-Aryan Controversy._ New York: Routledge
 
 [^41]:
-Message 2213 dt. Nov 5, 2005 by Michael Witzel available online at [http://groups.yahoo.com/group/Indo-Eurasian_research/message/2213](http://groups.yahoo.com/group/Indo-Eurasian_research/message/2213)
+     Message 2213 dt. Nov 5, 2005 by Michael Witzel available online at [http://groups.yahoo.com/group/Indo-Eurasian_research/message/2213](http://groups.yahoo.com/group/Indo-Eurasian_research/message/2213) 
 
 [^42]:
-Dr Vasudha Narayanan has been the president of the American Academy of Religion, the first non-Judeo-Christian to be elected to this position.
+     Dr Vasudha Narayanan has been the president of the American Academy of Religion, the first non-Judeo-Christian to be elected to this position. 
 
 [^43]:
-See for instance: [http://users.primushost.com/~india/ejvs/ejvs0702/ejvs0702a.txt](http://users.primushost.com/~india/ejvs/ejvs0702/ejvs0702a.txt)
+     See for instance: [http://users.primushost.com/~india/ejvs/ejvs0702/ejvs0702a.txt](http://users.primushost.com/~india/ejvs/ejvs0702/ejvs0702a.txt) 
 
 [^44]:
-Poliakov, Leon. 1974. _The Aryan Myth, a History of Racist and Nationalist Ideas in Europe_. New York: Basic Books
+     Poliakov, Leon. 1974. _The Aryan Myth, a History of Racist and Nationalist Ideas in Europe_. New York: Basic Books
 
 [^45]:
-See page xxii, note 54 in Witzel, Michael; Lubotsky, A; M. S. Oort, M. S. (Eds.); 1997; _F. B. J. Kuiper- Selected Writings on Indian Linguistics and Philology_; Rodopi; Amsterdam/Atlanta (Note: The introduction to the text, which alone is cited in this webpage, has Witzel as the    sole author).
+     See page xxii, note 54 in Witzel, Michael; Lubotsky, A; M. S. Oort, M. S. (Eds.); 1997; _F. B. J. Kuiper- Selected Writings on Indian Linguistics and Philology_; Rodopi; Amsterdam/Atlanta (Note: The introduction to the text, which alone is cited in this webpage, has Witzel as the    sole author).
 
 [^46]:
-Page 114 in Michael Witzel. 1995; ‘Early Indian History: Linguistic and Textual Parameters’; in George Erdosy (ed.), _The Indo-Aryans of    Ancient South Asia_: 85-125; Walter de Gryuter; Berlin
+     Page 114 in Michael Witzel. 1995; ‘Early Indian History: Linguistic and Textual Parameters’; in George Erdosy (ed.), _The Indo-Aryans of    Ancient South Asia_: 85-125; Walter de Gryuter; Berlin
 
 [^47]:
-_Ibid_, footnote 74
+     _Ibid_, footnote 74
 
 [^48]:
-IndicTraditions Yahoogroup ([http://groups.yahoo.com/group/indictraditions/](http://groups.yahoo.com/group/indictraditions/)) on 11 December 2000, message # 2735
+     IndicTraditions Yahoogroup ([http://groups.yahoo.com/group/indictraditions/](http://groups.yahoo.com/group/indictraditions/)) on 11 December 2000, message # 2735 
 
 [^49]:
-See page xxii, note 54 in Witzel, Michael; Lubotsky, A; M. S. Oort, M. S. (Eds.); 1997; _F. B. J. Kuiper- Selected Writings on Indian Linguistics and Philology_; Rodopi; Amsterdam/Atlanta (Note: The introduction to the text, which alone is cited in this webpage, has Witzel as the    sole author).
+     See page xxii, note 54 in Witzel, Michael; Lubotsky, A; M. S. Oort, M. S. (Eds.); 1997; _F. B. J. Kuiper- Selected Writings on Indian Linguistics and Philology_; Rodopi; Amsterdam/Atlanta (Note: The introduction to the text, which alone is cited in this webpage, has Witzel as the    sole author).
 
 [^50]:
-pp. 14-15 in Mair, Victor; 1998; ‘Priorities’; pg. 4-41 in _The Bronze Age and Early Iron Age Peoples of Eastern Central Asia_, vol. I (ed. Victor Mair); The Institute for the Study of Man, Washington D.C. (in collaboration with the University of Pennsylvania    Museum Publications, Philadelphia); 1998 (Journal of the Indo-European Studies Monograph No. 26
+     pp. 14-15 in Mair, Victor; 1998; ‘Priorities’; pg. 4-41 in _The Bronze Age and Early Iron Age Peoples of Eastern Central Asia_, vol. I (ed. Victor Mair); The Institute for the Study of Man, Washington D.C. (in collaboration with the University of Pennsylvania    Museum Publications, Philadelphia); 1998 (Journal of the Indo-European Studies Monograph No. 26
 
 [^51]:
-[http://www.people.fas.harvard.edu/~witzel/mt26i.html](http://www.people.fas.harvard.edu/~witzel/mt26i.html) In fact the webpage of the conference itself is maintained by Witzel.
+     [http://www.people.fas.harvard.edu/~witzel/mt26i.html](http://www.people.fas.harvard.edu/~witzel/mt26i.html) In fact the webpage of the conference itself is maintained by Witzel. 
 
 [^52]:
-See the following book in this regard: Christopher Hutton, “_Linguistics and the Third Reich, Mother-Tongue Facsism, Race and the Science of Language_”, Routledge, New York (1999)
+     See the following book in this regard: Christopher Hutton, “_Linguistics and the Third Reich, Mother-Tongue Facsism, Race and the Science of Language_”, Routledge, New York (1999)
 
 [^53]:
-The page, which may soon disappear as a result of these ‘scholarly’ pressures is currently available at [http://www.bbc.co.uk/religion/religions/hinduism/history/history5.shtml](http://www.bbc.co.uk/religion/religions/hinduism/history/history5.shtml)
+     The page, which may soon disappear as a result of these ‘scholarly’ pressures is currently available at [http://www.bbc.co.uk/religion/religions/hinduism/history/history5.shtml](http://www.bbc.co.uk/religion/religions/hinduism/history/history5.shtml) 
 
 [^54]:
-pg. 320-321 of  Witzel, M.; Rgvedic History: Poets, Chieftains and Politics; in "_The Indo-Aryans of Ancient South Asia_" ed. by Erdosy, George (Walter de Gruyter, Berlin); 1995
+     pg. 320-321 of  Witzel, M.; Rgvedic History: Poets, Chieftains and Politics; in "_The Indo-Aryans of Ancient South Asia_" ed. by Erdosy, George (Walter de Gruyter, Berlin); 1995
 
 [^55]:
-See, Vishal Agarwal, “The Aryan Migration Theory: Fabricating Literary Evidence”, available online at [http://vishalagarwal.voiceofdharma.com/articles/indhistory/amt/index.htm](http://vishalagarwal.voiceofdharma.com/articles/indhistory/amt/index.htm)
+     See, Vishal Agarwal, “The Aryan Migration Theory: Fabricating Literary Evidence”, available online at [http://vishalagarwal.voiceofdharma.com/articles/indhistory/amt/index.htm](http://vishalagarwal.voiceofdharma.com/articles/indhistory/amt/index.htm) 
 
 [^56]:
-See B B Lal’s write up “Should one give up all ethics to promote one’s theory”, contained in his recent (2005) book : “_The Homeland of the Aryans, Evidence of Rigvedic Flora and Fauna & Archaeology_” by B.B. Lal (with contributions by K.S. Saraswat), New Delhi: Aryan Books International
+     See B B Lal’s write up “Should one give up all ethics to promote one’s theory”, contained in his recent (2005) book : “_The Homeland of the Aryans, Evidence of Rigvedic Flora and Fauna & Archaeology_” by B.B. Lal (with contributions by K.S. Saraswat), New Delhi: Aryan Books International
 
 [^57]:
-Michael Witzel’s ‘Ein Fremdling im Rgveda’  (_Journal of Indo-European Studies_, Vol. 31, No.1-2: pp.107-185, 2003), pp. 174-175, fn. 112
+     Michael Witzel’s ‘Ein Fremdling im Rgveda’  (_Journal of Indo-European Studies_, Vol. 31, No.1-2: pp.107-185, 2003), pp. 174-175, fn. 112
 
 [^58]:
-Meteoric iron has a higher nickel content. None of the standard works on Archaeometallurgy of ancient India, including recent ones by Vibha Tripathi [2001], and by D. P. Agrawal [2000], contain any such information which enables to decide if these ancient iron artifacts in a bronze age context are derived from meteoric iron or not.
+     Meteoric iron has a higher nickel content. None of the standard works on Archaeometallurgy of ancient India, including recent ones by Vibha Tripathi [2001], and by D. P. Agrawal [2000], contain any such information which enables to decide if these ancient iron artifacts in a bronze age context are derived from meteoric iron or not. 
 
 [^59]:
-Gregory Possehl. 2002. _The Indus Civilization_. Walnut Creek (California): Alta Mira Press, p. 93
+     Gregory Possehl. 2002. _The Indus Civilization_. Walnut Creek (California): Alta Mira Press, p. 93
 
 [^60]:
-Michael Witzel’s ‘Ein Fremdling im Rgveda’  (_Journal of Indo-European Studies_, Vol. 31, No.1-2: pp.107-185, 2003), pp. 152-153
+     Michael Witzel’s ‘Ein Fremdling im Rgveda’  (_Journal of Indo-European Studies_, Vol. 31, No.1-2: pp.107-185, 2003), pp. 152-153
 
 [^61]:
-Stanley Wolpert, ‘_A New History of India_’, Oxford University Press: New York (2000), page 27
+     Stanley Wolpert, ‘_A New History of India_’, Oxford University Press: New York (2000), page 27
 
 [^62]:
-See his recent publication, the title of which itself is quite revealing: Indocentrism: Autochthonous visions of ancient India**.** _In:  The Indo-Aryan controversy : evidence and inference in Indian history / _edited by Edwin F. Bryant and Laurie L. Patton.  London ; New York : Routledge, 2005
+     See his recent publication, the title of which itself is quite revealing: Indocentrism: Autochthonous visions of ancient India**.** _In:  The Indo-Aryan controversy : evidence and inference in Indian history / _edited by Edwin F. Bryant and Laurie L. Patton.  London ; New York : Routledge, 2005
 
 [^63]:
-[http://www.people.fas.harvard.edu/%7Ewitzel/mwcv.htm](http://www.people.fas.harvard.edu/%7Ewitzel/mwcv.htm)
+     [http://www.people.fas.harvard.edu/%7Ewitzel/mwcv.htm](http://www.people.fas.harvard.edu/%7Ewitzel/mwcv.htm) 
 
 [^64]:
-[http://groups.yahoo.com/group/IndianCivilization/message/8585](http://groups.yahoo.com/group/IndianCivilization/message/8585)
+     [http://groups.yahoo.com/group/IndianCivilization/message/8585](http://groups.yahoo.com/group/IndianCivilization/message/8585) 
 
 [^65]:
-[http://groups.yahoo.com/group/IndianCivilization/message/8587](http://groups.yahoo.com/group/IndianCivilization/message/8587)
+     [http://groups.yahoo.com/group/IndianCivilization/message/8587](http://groups.yahoo.com/group/IndianCivilization/message/8587) 
 
 [^66]:
-[http://groups.yahoo.com/group/IndianCivilization/message/8628](http://groups.yahoo.com/group/IndianCivilization/message/8628)
+     [http://groups.yahoo.com/group/IndianCivilization/message/8628](http://groups.yahoo.com/group/IndianCivilization/message/8628) 
 
 [^67]:
-For Hertel, see Frank Neubert, “Innovation Amid Controversy: Indology at Leipzig, 1841-1958”, oo. 173-196 in Douglas T. McGetchin et al (eds.), ‘_Sanskrit and ‘Orientalism’, Indology and Comparative Linguistics in German, 1750-1958’_, Manohar Books: New Delhi (2004)
+     For Hertel, see Frank Neubert, “Innovation Amid Controversy: Indology at Leipzig, 1841-1958”, oo. 173-196 in Douglas T. McGetchin et al (eds.), ‘_Sanskrit and ‘Orientalism’, Indology and Comparative Linguistics in German, 1750-1958’_, Manohar Books: New Delhi (2004)
 
 [^68]:
-A simple google search will reveal Wust’s deep Nazi connections. For general information on the Nazi affiliations of Indologists, the following publication is useful: Pollock, Sheldon.  “Deep Orientalism?: Notes on Sanskrit and Power Beyond the Raj”. In:  _Orientalism and the Postcolonial Predicament:  Perspectives on South Asia,_ eds. Carol A. Breckenridge and Peter van der Veer, 77-133. South Asia Seminar Series. Philadelphia: University of Pennsylvania Press, 1993.
-There are not many publications on this important subject, and when Pollock was writing the above article, only some German Indologists were willing to help him. See [http://groups.yahoo.com/group/INDOLOGY/message/919](http://groups.yahoo.com/group/INDOLOGY/message/919)    for this revelation.
+     A simple google search will reveal Wust’s deep Nazi connections. For general information on the Nazi affiliations of Indologists, the following publication is useful: Pollock, Sheldon.  “Deep Orientalism?: Notes on Sanskrit and Power Beyond the Raj”. In:  _Orientalism and the Postcolonial Predicament:  Perspectives on South Asia,_ eds. Carol A. Breckenridge and Peter van der Veer, 77-133. South Asia Seminar Series. Philadelphia: University of Pennsylvania Press, 1993.
+    There are not many publications on this important subject, and when Pollock was writing the above article, only some German Indologists were willing to help him. See [http://groups.yahoo.com/group/INDOLOGY/message/919](http://groups.yahoo.com/group/INDOLOGY/message/919)    for this revelation. 
 
 [^69]:
-For instance, see page 312 in “Rgvedic history: poets, chieftains and politics**”.** in: Language, Material Culture and Ethnicity. _The Indo-Aryans of Ancient South Asia_, ed. G. Erdosy, (Indian Philology and South Asian Studies, ed. Albrecht Wezler and Michael Witzel, Vol. 1) Berlin/New York (de Gruyter) 1995, 307-352
+     For instance, see page 312 in “Rgvedic history: poets, chieftains and politics**”.** in: Language, Material Culture and Ethnicity. _The Indo-Aryans of Ancient South Asia_, ed. G. Erdosy, (Indian Philology and South Asian Studies, ed. Albrecht Wezler and Michael Witzel, Vol. 1) Berlin/New York (de Gruyter) 1995, 307-352  
 
 [^70]:
-Steigmann-Gall, Richard: The Holy Reich, Nazi conceptions of Christianity, 1919-1945, p. 266
+     Steigmann-Gall, Richard: The Holy Reich, Nazi conceptions of Christianity, 1919-1945, p. 266
 
 [^71]:
-The issue immediately previous to the one in which Witzel/Farmer’s first article appeared, carried a cover story by the communist editor N. Ram, in which he narrated his experiences from a recent trip to Tibet. The story termed the Dalai Lama as ‘obscurantist’, and hailed the Chinese rule in Tibet, which according the magazine, was a sheer blessing to the Tibetan people, and the best thing that could have happened to them. At least on one occasion, N. Ram has been greeted in the US by Tibetan protestors holding placards when he has come to address conferences here in the past.
+     The issue immediately previous to the one in which Witzel/Farmer’s first article appeared, carried a cover story by the communist editor N. Ram, in which he narrated his experiences from a recent trip to Tibet. The story termed the Dalai Lama as ‘obscurantist’, and hailed the Chinese rule in Tibet, which according the magazine, was a sheer blessing to the Tibetan people, and the best thing that could have happened to them. At least on one occasion, N. Ram has been greeted in the US by Tibetan protestors holding placards when he has come to address conferences here in the past. 
 
 [^72]:
-For Frontline’s Marxist and Communist affiliations, refer also Koenraad Elst’s article “_The Politics of the Aryan Invasion Debate_” (2003) available online at [http://koenraadelst.voiceofdharma.com/articles/aid/aryanpolitics.html](http://koenraadelst.voiceofdharma.com/articles/aid/aryanpolitics.html)
+     For Frontline’s Marxist and Communist affiliations, refer also Koenraad Elst’s article “_The Politics of the Aryan Invasion Debate_” (2003) available online at [http://koenraadelst.voiceofdharma.com/articles/aid/aryanpolitics.html](http://koenraadelst.voiceofdharma.com/articles/aid/aryanpolitics.html)  
 
 [^73]:
-With Witzel’s permission of course, as revealed by his collaborator Steve Farmer on the IndianCivilization yahoogroup.
+     With Witzel’s permission of course, as revealed by his collaborator Steve Farmer on the IndianCivilization yahoogroup.
 
 [^74]:
-SAHMAT = Safdar Hashmi Memorial Trust. It is named after a Safdar Hashmi, a young Communist leader of India who was murdered by political opponents several years ago.
+     SAHMAT = Safdar Hashmi Memorial Trust. It is named after a Safdar Hashmi, a young Communist leader of India who was murdered by political opponents several years ago.
 
 [^75]:
-See  the on-line article ‘CPI(M), SAHMAT left Homeless’, in _The Hindu_, 06 February 2002,   [http://www.hinduonnet.com/thehindu/2002/02/06/stories/2002020606000100.htm](http://www.hinduonnet.com/thehindu/2002/02/06/stories/2002020606000100.htm)
+     See  the on-line article ‘CPI(M), SAHMAT left Homeless’, in _The Hindu_, 06 February 2002,   [http://www.hinduonnet.com/thehindu/2002/02/06/stories/2002020606000100.htm](http://www.hinduonnet.com/thehindu/2002/02/06/stories/2002020606000100.htm)
 
 [^76]:
-See for instance the propagandist website  [http://www.dalitstan.org/holocaust/negation/witzel/piltdown.html](http://www.dalitstan.org/holocaust/negation/witzel/piltdown.html) which reproduces a similar article by Witzel in another left-of-center magazine ‘Outlook India’.
+     See for instance the propagandist website  [http://www.dalitstan.org/holocaust/negation/witzel/piltdown.html](http://www.dalitstan.org/holocaust/negation/witzel/piltdown.html) which reproduces a similar article by Witzel in another left-of-center magazine ‘Outlook India’. 
 
 [^77]:
-Thapar, Jha and Sharma are quoted Marxist historians in the entry 'Hinduism' of _'A Dictionary of The Marxist Thought_' (Tom BOTTOMORE et al, 1983, Harvard University Press, p. 204). Ronald INDEN, in his _Imagining India_ [1990:pp. 154-156, 197] clearly refers to Thapar as a Marxist historian. According to Witzel’s characterizations, Inden and Bottomore would also be ‘Right Wing Hindu Fundamentalists’!
+     Thapar, Jha and Sharma are quoted Marxist historians in the entry 'Hinduism' of _'A Dictionary of The Marxist Thought_' (Tom BOTTOMORE et al, 1983, Harvard University Press, p. 204). Ronald INDEN, in his _Imagining India_ [1990:pp. 154-156, 197] clearly refers to Thapar as a Marxist historian. According to Witzel’s characterizations, Inden and Bottomore would also be ‘Right Wing Hindu Fundamentalists’!
 
 [^78]:
-Michael Witzel’s ‘Ein Fremdling im Rgveda’  (_Journal of Indo-European Studies_, Vol. 31, No.1-2: pp.107-185, 2003), page 125, fn. 27
+     Michael Witzel’s ‘Ein Fremdling im Rgveda’  (_Journal of Indo-European Studies_, Vol. 31, No.1-2: pp.107-185, 2003), page 125, fn. 27
 
 [^79]:
-See his interview at [http://www.rediff.com/news/1999/mar/19panik.htm](http://www.rediff.com/news/1999/mar/19panik.htm)
+     See his interview at [http://www.rediff.com/news/1999/mar/19panik.htm](http://www.rediff.com/news/1999/mar/19panik.htm) 
 
 [^80]:
-[http://indiabroad.rediff.com/news/2003/jun/18iype.htm](http://indiabroad.rediff.com/news/2003/jun/18iype.htm)
+     [http://indiabroad.rediff.com/news/2003/jun/18iype.htm](http://indiabroad.rediff.com/news/2003/jun/18iype.htm) 
 
 [^81]:
-“_Holy Cow a Myth? An Indian Finds the Kick is Real_”, by Emily Eakin, in The New York Times, dt. 17 August 2002
+     “_Holy Cow a Myth? An Indian Finds the Kick is Real_”, by Emily Eakin, in The New York Times, dt. 17 August 2002
 
 [^82]:
-See a response to Michael Witzel on the Indo_Iranian yahoogroup, dt. January 5, 2005 at [http://groups.yahoo.com/group/indo_iranian/message/735](http://groups.yahoo.com/group/indo_iranian/message/735)
+     See a response to Michael Witzel on the Indo_Iranian yahoogroup, dt. January 5, 2005 at [http://groups.yahoo.com/group/indo_iranian/message/735](http://groups.yahoo.com/group/indo_iranian/message/735) 
 
 [^83]:
-See p. 77 of Michael Witzel, “Authochthonous Aryans”  (2001) [http://users.primushost.com/~india/ejvs/ejvs0703/ejvs0703article.pdf](http://users.primushost.com/~india/ejvs/ejvs0703/ejvs0703article.pdf)
+     See p. 77 of Michael Witzel, “Authochthonous Aryans”  (2001) [http://users.primushost.com/~india/ejvs/ejvs0703/ejvs0703article.pdf](http://users.primushost.com/~india/ejvs/ejvs0703/ejvs0703article.pdf) 
 
 [^84]:
-In an interview to the New Delhi edition of the _Times of India_ (dt. 16 February 2002), Bipan Chandra, an ‘Eminent Historian’ himself, refers to Jha and R. S. Sharma as Marxist historians.
+     In an interview to the New Delhi edition of the _Times of India_ (dt. 16 February 2002), Bipan Chandra, an ‘Eminent Historian’ himself, refers to Jha and R. S. Sharma as Marxist historians. 
 
 [^85]:
-In a talk at UC Berkeley in November 2002, Thapar said sarcastically that there was no need to teach Sanskrit at JNU because ‘there were so many mutts and peeths around’. She has made similar remarks in taped interviews to scholars such as Yvette Rosser. On August 2, 2002, Rajiv Malhotra left a message on the Sulekha.com forum revealing that a Sanskrit department was finally started at JNU by Dr Kapil Kapoor after several years of opposition from entrenched Marxists on the campus, who regarded Sanskrit as the language of ‘evil Brahmins’, and warned Kapoor of academic marginalization if he persisted with his lobbying for a Sanskrit Dept. at the University. Dr Kapoor was promised rewards such as ‘foreign trips’ if he gave up his support for Sanskrit and restricted himself to teaching of English at JNU.
-It may be noted that JNU has been teaching non-Indian classical languages on the campus for several decades now!
+     In a talk at UC Berkeley in November 2002, Thapar said sarcastically that there was no need to teach Sanskrit at JNU because ‘there were so many mutts and peeths around’. She has made similar remarks in taped interviews to scholars such as Yvette Rosser. On August 2, 2002, Rajiv Malhotra left a message on the Sulekha.com forum revealing that a Sanskrit department was finally started at JNU by Dr Kapil Kapoor after several years of opposition from entrenched Marxists on the campus, who regarded Sanskrit as the language of ‘evil Brahmins’, and warned Kapoor of academic marginalization if he persisted with his lobbying for a Sanskrit Dept. at the University. Dr Kapoor was promised rewards such as ‘foreign trips’ if he gave up his support for Sanskrit and restricted himself to teaching of English at JNU. 
+    It may be noted that JNU has been teaching non-Indian classical languages on the campus for several decades now!
 
 [^86]:
-This word means ‘Revolutionary’ that reminds one of the violence perpetrated by various groups of ‘Maoists’, ‘Leninists’, ‘Naxalites’ and other Leftist groups proliferating India and other countries these days.
+     This word means ‘Revolutionary’ that reminds one of the violence perpetrated by various groups of ‘Maoists’, ‘Leninists’, ‘Naxalites’ and other Leftist groups proliferating India and other countries these days. 
 
 [^87]:
-See the website [http://saag.org/BB/view.asp?msgID=23884](http://saag.org/BB/view.asp?msgID=23884) where a FOIL member is quoted urgeing fellow comrades to support Professor Witzel and Steve Farmer.
+     See the website [http://saag.org/BB/view.asp?msgID=23884](http://saag.org/BB/view.asp?msgID=23884) where a FOIL member is quoted urgeing fellow comrades to support Professor Witzel and Steve Farmer.
 
 [^88]:
-To get an idea of exactly what Witzel and his team were opposing, see the copious extracts from these textbooks available at [http://www.india-forum.com/articles/60/1](http://www.india-forum.com/articles/60/1)
+     To get an idea of exactly what Witzel and his team were opposing, see the copious extracts from these textbooks available at [http://www.india-forum.com/articles/60/1](http://www.india-forum.com/articles/60/1) 
 
 [^89]:
-See “RSS now targets California Textbooks” by Nalini Taneja, on CPI(M) ezine ‘_People’s Democracy_”, Vol. 29, No. 49, dt. 04 December 2005, available online at [http://pd.cpim.org/2005/1204/12042005_nalini.htm](http://pd.cpim.org/2005/1204/12042005_nalini.htm)
+      See “RSS now targets California Textbooks” by Nalini Taneja, on CPI(M) ezine ‘_People’s Democracy_”, Vol. 29, No. 49, dt. 04 December 2005, available online at [http://pd.cpim.org/2005/1204/12042005_nalini.htm](http://pd.cpim.org/2005/1204/12042005_nalini.htm) 
 
 [^90]:
-[http://groups.yahoo.com/group/Indo-Eurasian_research/message/2544](http://groups.yahoo.com/group/Indo-Eurasian_research/message/2544)  by Steve Farmer, dt. 09 December 2005
+     [http://groups.yahoo.com/group/Indo-Eurasian_research/message/2544](http://groups.yahoo.com/group/Indo-Eurasian_research/message/2544)  by Steve Farmer, dt. 09 December 2005
 
 [^91]:
-[http://www.friendsofsouthasia.org/textbook/](http://www.friendsofsouthasia.org/textbook/) See in particular the exhortation at [http://www.friendsofsouthasia.org/textbook/Letter%20Alert.doc](http://www.friendsofsouthasia.org/textbook/Letter%20Alert.doc) repeating verbatim the propaganda by Farmer and Witzel.
+     [http://www.friendsofsouthasia.org/textbook/](http://www.friendsofsouthasia.org/textbook/) See in particular the exhortation at [http://www.friendsofsouthasia.org/textbook/Letter%20Alert.doc](http://www.friendsofsouthasia.org/textbook/Letter%20Alert.doc) repeating verbatim the propaganda by Farmer and Witzel. 
 
 [^92]:
-[http://groups.yahoo.com/group/IndianCivilization/message/810](http://groups.yahoo.com/group/IndianCivilization/message/810)
+     [http://groups.yahoo.com/group/IndianCivilization/message/810](http://groups.yahoo.com/group/IndianCivilization/message/810) 
 
 [^93]:
-Message number 2165 dt. November 01, 2005 available on the Indo-Eurasian Yahoogroup at [http://groups.yahoo.com/group/Indo-Eurasian_research/message/2164](http://groups.yahoo.com/group/Indo-Eurasian_research/message/2164)
+     Message number 2165 dt. November 01, 2005 available on the Indo-Eurasian Yahoogroup at [http://groups.yahoo.com/group/Indo-Eurasian_research/message/2164](http://groups.yahoo.com/group/Indo-Eurasian_research/message/2164) 
 
 [^94]:
-Full uncut text of: "Answer to Nagaswamy, by Michael Witzel (assisted by Richard Meadow): Horses, logic, and evidence" in THE HINDU, OPEN PAGE 3/21/02, available online at  [http://www.people.fas.harvard.edu/~witzel/Har-veda.htm](http://www.people.fas.harvard.edu/~witzel/Har-veda.htm)
+     Full uncut text of: "Answer to Nagaswamy, by Michael Witzel (assisted by Richard Meadow): Horses, logic, and evidence" in THE HINDU, OPEN PAGE 3/21/02, available online at  [http://www.people.fas.harvard.edu/~witzel/Har-veda.htm](http://www.people.fas.harvard.edu/~witzel/Har-veda.htm) 
 
 [^95]:
-See the relevant quote in David Frawley’s article at [http://www.hinduonnet.com/thehindu/op/2002/08/20/stories/2002082000120200.htm](http://www.hinduonnet.com/thehindu/op/2002/08/20/stories/2002082000120200.htm)
+     See the relevant quote in David Frawley’s article at [http://www.hinduonnet.com/thehindu/op/2002/08/20/stories/2002082000120200.htm](http://www.hinduonnet.com/thehindu/op/2002/08/20/stories/2002082000120200.htm) 
 
 [^96]:
-Pag 3 of Michael Witzel’s Review Article titled “_WESTWARD HO! The Incredible Wanderlust of the Rgvedic Tribes Exposed by S. Talageri_” of my book “_The Rigveda – A Historical Analysis_”,  [EJVS, Vol. 7 (2001), Issue 2 (march 31)] [http://northshore.shore.net/%7Eindia/ejvs/ejvs0702/ejvs0702article.pdf](http://northshore.shore.net/%7Eindia/ejvs/ejvs0702/ejvs0702article.pdf)
+     Pag 3 of Michael Witzel’s Review Article titled “_WESTWARD HO! The Incredible Wanderlust of the Rgvedic Tribes Exposed by S. Talageri_” of my book “_The Rigveda – A Historical Analysis_”,  [EJVS, Vol. 7 (2001), Issue 2 (march 31)] [http://northshore.shore.net/%7Eindia/ejvs/ejvs0702/ejvs0702article.pdf](http://northshore.shore.net/%7Eindia/ejvs/ejvs0702/ejvs0702article.pdf) 
 
 [^97]:
-Message dated 15 November 2005 at [http://groups.yahoo.com/group/Indo-Eurasian_research/message/2363](http://groups.yahoo.com/group/Indo-Eurasian_research/message/2363)
+     Message dated 15 November 2005 at [http://groups.yahoo.com/group/Indo-Eurasian_research/message/2363](http://groups.yahoo.com/group/Indo-Eurasian_research/message/2363) 
 
 [^98]:
-_Sanskrit Dept. in Disarray, Students, Officials Say_; Published On Wednesday, June 07, 1995; By Jonathan A. Lewin available online at [http://www.thecrimson.com/article.aspx?ref=500579](http://www.thecrimson.com/article.aspx?ref=500579)
+      _Sanskrit Dept. in Disarray, Students, Officials Say_; Published On Wednesday, June 07, 1995; By Jonathan A. Lewin available online at [http://www.thecrimson.com/article.aspx?ref=500579](http://www.thecrimson.com/article.aspx?ref=500579) 
 
 [^99]:
-[http://en.wikipedia.org/wiki/Michael_Witzel](http://en.wikipedia.org/wiki/Michael_Witzel)
+     [http://en.wikipedia.org/wiki/Michael_Witzel](http://en.wikipedia.org/wiki/Michael_Witzel) 
 
 [^100]:
-See their guidelines at [http://en.wikipedia.org/wiki/Wikipedia:Conflicts_of_interest](http://en.wikipedia.org/wiki/Wikipedia:Conflicts_of_interest)
+     See their guidelines at [http://en.wikipedia.org/wiki/Wikipedia:Conflicts_of_interest](http://en.wikipedia.org/wiki/Wikipedia:Conflicts_of_interest) 
 
 [^101]:
-See the following webpage for a list of his edits: [http://en.wikipedia.org/wiki/Special:Contributions/65.78.20.179](http://en.wikipedia.org/wiki/Special:Contributions/65.78.20.179)
+     See the following webpage for a list of his edits: [http://en.wikipedia.org/wiki/Special:Contributions/65.78.20.179](http://en.wikipedia.org/wiki/Special:Contributions/65.78.20.179) 
 
 [^102]:
-[http://www.sanskritweb.net/fonts/](http://www.sanskritweb.net/fonts/)
+     [http://www.sanskritweb.net/fonts/](http://www.sanskritweb.net/fonts/) 
 
 [^103]:
-_Sanskrit Dept. in Disarray, Students, Officials Say_; Published On Wednesday, June 07, 1995; By Jonathan A. Lewin available online at [http://www.thecrimson.com/article.aspx?ref=500579](http://www.thecrimson.com/article.aspx?ref=500579)
+     _Sanskrit Dept. in Disarray, Students, Officials Say_; Published On Wednesday, June 07, 1995; By Jonathan A. Lewin available online at [http://www.thecrimson.com/article.aspx?ref=500579](http://www.thecrimson.com/article.aspx?ref=500579)
 
 [^104]:
-XXXX
+     XXXX
 
 [^105]:
-One is reminded of the Urdu proverb – “_bekaar ko kaam hazaar_”.
+     One is reminded of the Urdu proverb – “_bekaar ko kaam hazaar_”. 
 
 [^106]:
-This action was quite belated in my opinion, because Witzel and Farmer already had long been shutting out individuals and messages on their list if they sound sympathetic to Hinduism or India. Clearly, bête noires of Witzel and Farmer are greater supporters of freedom of speech.
+     This action was quite belated in my opinion, because Witzel and Farmer already had long been shutting out individuals and messages on their list if they sound sympathetic to Hinduism or India. Clearly, bête noires of Witzel and Farmer are greater supporters of freedom of speech. 
 
 [^107]:
-
+     
 
 [^108]:
-[http://groups.yahoo.com/group/Indo-Eurasian_research/message/5754](http://groups.yahoo.com/group/Indo-Eurasian_research/message/5754)
+     [http://groups.yahoo.com/group/Indo-Eurasian_research/message/5754](http://groups.yahoo.com/group/Indo-Eurasian_research/message/5754) 
 
 [^109]:
-[http://groups.yahoo.com/group/Indo-Eurasian_research/message/5820](http://groups.yahoo.com/group/Indo-Eurasian_research/message/5820)
+     [http://groups.yahoo.com/group/Indo-Eurasian_research/message/5820](http://groups.yahoo.com/group/Indo-Eurasian_research/message/5820) 
 
 [^110]:
-_Sanskrit Dept. in Disarray, Students, Officials Say_; Published On Wednesday, June 07, 1995; By Jonathan A. Lewin available online at [http://www.thecrimson.com/article.aspx?ref=500579](http://www.thecrimson.com/article.aspx?ref=500579)
+     _Sanskrit Dept. in Disarray, Students, Officials Say_; Published On Wednesday, June 07, 1995; By Jonathan A. Lewin available online at [http://www.thecrimson.com/article.aspx?ref=500579](http://www.thecrimson.com/article.aspx?ref=500579) 
 
 [^111]:
-“_End Harvard Association of Hate Groups_” at [http://www.petitiononline.com/stopIER/petition.html](http://www.petitiononline.com/stopIER/petition.html)
+     “_End Harvard Association of Hate Groups_” at [http://www.petitiononline.com/stopIER/petition.html](http://www.petitiononline.com/stopIER/petition.html) 
 
 [^112]:
-“Stop this anti-Hindu tirade”, _Hindustan Times_, Internet edn. dt. 9<sup>th</sup> Dec 05’  
->
+     “Stop this anti-Hindu tirade”, _Hindustan Times_, Internet edn. dt. 9<sup>th</sup> Dec 05’
+
 [^113]:
-Kanchan Gupta, _The Daily Pioneer_, 25<sup>th</sup> Dec 05’, available at [http://www.dailypioneer.com/indexn12.asp?main_variable=front%5Fpage&file_name=story1%2Etxt&counter_img=1](http://www.dailypioneer.com/indexn12.asp?main_variable=front%5Fpage&file_name=story1%2Etxt&counter_img=1)  
->
+     Kanchan Gupta, _The Daily Pioneer_, 25<sup>th</sup> Dec 05’, available at [http://www.dailypioneer.com/indexn12.asp?main_variable=front%5Fpage&file_name=story1%2Etxt&counter_img=1](http://www.dailypioneer.com/indexn12.asp?main_variable=front%5Fpage&file_name=story1%2Etxt&counter_img=1) 
+
 [^114]:
-_India Abroad_: December 16, 2005
+     _India Abroad_: December 16, 2005
 
 [^115]:
-Michael Witzel’s post dated 20 December 2005 available on the internet at [http://groups.yahoo.com/group/Indo-Eurasian_research/message/2629](http://groups.yahoo.com/group/Indo-Eurasian_research/message/2629) 
+     Michael Witzel’s post dated 20 December 2005 available on the internet at [http://groups.yahoo.com/group/Indo-Eurasian_research/message/2629](http://groups.yahoo.com/group/Indo-Eurasian_research/message/2629) 
