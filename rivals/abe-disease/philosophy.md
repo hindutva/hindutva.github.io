@@ -18,6 +18,9 @@ With rare exceptions, all abrahamisms agree on some basic concepts. Abrahamisms 
 ## Counter religious nature
 - Abrahamisms = "Prophetic desert cults with replacement theology, where a later iteration abnegates the previous one. Mo's genius is to seal the possibility by declaring himself to be final."
 
+### Normative inversion
+- Assmann used the term "normative inversion" to suggest that some aspects of Judaism were formulated in direct reaction to Egyptian practices and theology.
+
 ## Restrictions on worship
 See [worship-restrictions](../worship-restrictions/) page.
 
