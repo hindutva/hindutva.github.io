@@ -11,6 +11,13 @@ You can help maintain this resource!
 ## Caution
 - Please protect your identity from violent haters - use pseudonymous git accounts if needed. (Git configuration tips: [SO](https://stackoverflow.com/a/45327500/444644).)
 
+Recommended settings in .git/config and .git/modules/content :
+```
+[user]
+  name = safe_name
+  email = safe_email_id@gmail.com
+```
+
 ## Technical intro
 - This site is produced using the Hugo static website generator.
 - We use the [sanskrit-documentation-theme-hugo](https://sanskrit-coders.github.io/sanskrit-documentation-theme-hugo/) theme.
