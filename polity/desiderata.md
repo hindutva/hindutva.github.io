@@ -13,13 +13,10 @@ We are in favor of the following (subject to change):
         - The system then has a better shot at preventing/ reducing negative effects.  
     - Gambling and prostitution should be legal and regulated.
         - The system then has a better shot at preventing/ reducing negative effects.
-    - Homosexuality is not criminal.
+    - Homosexuality is not criminal. But it, like other sexual activity, should be private, and it should not be "normalized"/ thrust to the mainstream.
         - Some people are born with homosexual tendencies (../More [here](../social-cultivation/deviance/)). Some may choose not to express them.  
     - Weapons.
         - It is against hindu tradition that good people should be unarmed.
-- Broad-based economic development.
-    - Taxation should be based on consumption, rather than earning/ income.
-        - So, no corporate or individual income tax.
 - An engaged (non-apathetic) citizenry.
     - Citizens are not stupid or lazy, but systems which invite participation (at the right level and in the right form) ought to be in place.  
         
@@ -40,6 +37,13 @@ We are in favor of the following (subject to change):
  
  In accordance with what is the deity’s will executed & implemented by the priests and/or management who are both, verily, the deity’s trustees? The Agama-s or relevant tantra-s or paddhati-s known to govern the temple from very inception or simply known as last remembered usage." {[GA18](https://aryanthought.wordpress.com/2018/07/22/a-short-discussion-on-pertinent-issues-presented-by-the-sabarimala-matter/)}
 
-### Limitation
+### Economics
+- Develop deep know-how and manufacturing depth. Such self-sufficiency is important for national security and prosperity. (See svembu's articles.)
+- Good urbanism - discourage cars and highways. Prefer public transport - heavy on trains. See WrathOfGnon and Rjrasva.
+- Broad-based economic development.
+- Taxation should be based on consumption, rather than earning/ income.
+    - So, no corporate or individual income tax.
+
+## Limitation
 
 The views expressed below are subject to change. Our political views are not rigidly formed, but roughly you may say that it is "right of center".
