@@ -30,7 +30,7 @@ See [types](../types/) page.
 - Later verses have precedence over earlier verses in Quran ([vid](https://youtu.be/vKXGcZlMK_k?t=1132)), in traditional Islam. So, the mostly-Meccan peace-verses are abrogated by the Medina intolerance-verses. Eg: "No compulsion in religion" vs verse of the sword.
 - To judge RoP (religion of peace/ Islam) by its holy texts:
     - Muhammad is the ideal muslim. (Anyone blaspheming him is going to be in deep trouble in almost any muslim country.)
-    - Muhammad was a horrible human being - a lecherous person, slaver and a mass murderer. (Look at his life stories, starting with the [banu qurayza](http://en.wikipedia.org/wiki/Banu_Qurayza) massacre.)
+    - Muhammad was a lecherous person, slaver and a mass murderer - making him a horrible human according to some. (Look at his life stories, starting with the [banu qurayza](http://en.wikipedia.org/wiki/Banu_Qurayza) massacre.)
 
 ## Homosexuality
 - Like other Abe's madnesses, classical Islam considers homosexuality a sin.
