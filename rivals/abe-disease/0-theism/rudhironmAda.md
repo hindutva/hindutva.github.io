@@ -10,6 +10,7 @@ title: Oppressive system fetish
 - Focus on "grievance studies". See [J Lindsay 20](https://www.youtube.com/watch?v=DdlNIJB9ZVU). They seek to warp the perception of reality in terms of oppressors and oppressed.
 - The can spin a favored oppression angle in any situation. Example - "White man and Black man walk to a tailor shop. Attend to white person first? Racist. Attend to black person first? Racist because you want to get rid of him."
 - Rooted in marxist concept of "conflict theory" of fundamental conflict between classes. Could be bourgeoisie vs proletariat or white vs black lives, male patriarchy vs women, hetero-normative straight culture vs sexual minorities.
+- "It's now all about having the power to assert that in fact you are powerless, and therefore immune to criticism" - RK.
 
 This, of course, runs counter to hindu ethos:
 
