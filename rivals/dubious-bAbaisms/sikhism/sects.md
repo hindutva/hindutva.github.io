@@ -65,6 +65,7 @@ Certain ‘sects’ attempt to gain control & influence the direction of the san
 - They observe the same birth and death rituals as the Hindu ascetics and have an akhara in Haridwar. Participate in kumbha melA.
 - They often served as one of the mahants in Sikh temples (gurdwaras) during the 18th-century.
 - Nirmalas interpret the Sikh literature in Vedantic terms
+- Some of their texts like आश्रमधरम्रहस्य ([archive](https://archive.org/details/QnAh_ashram-dharma-rahasya-by-uddhav-singh-pages-not-in-sequence-yajneshvar-press-varanasi/page/n1/mode/2up)) are socially quite conservative. 
 
 #### Influence
 - Opposed by Tat Khalsa.
