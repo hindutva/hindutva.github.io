@@ -1,4 +1,0 @@
-+++
-title = "+raja-yoga"
-
-+++

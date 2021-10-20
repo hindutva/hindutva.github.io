@@ -1,3 +1,0 @@
-+++
-title = "+Syed Ahmed"
-+++

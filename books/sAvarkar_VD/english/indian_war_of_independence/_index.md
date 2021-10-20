@@ -1,4 +1,0 @@
-+++
-title = "+INDIAN WAR OF INDEPENDENCE 1857"
-
-+++
