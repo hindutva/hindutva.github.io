@@ -1,0 +1,9 @@
++++
+title = "nAzi-s vs Christ"
++++
+
+> "Nazis smeared excrement on church altars and church doors, desecrated shrines, and threw statues of saints into dung piles; and when synagogues were not available to  attack and loot, churches were often the target with Nazis yelling:  'Down with Christians and Jews!" -  The Nazi War on Christianity by Bruce Walker, p. 49.
+
+> "What Bolshevism is achieving today on the materialist and technical level, Christianity had achieved on the metaphysical level. When the Crown sees the throne totter, it needs the support of the masses. It would be better to speak of Constantine the Traitor and Julian the Loyal than of Constantine the Great and Julian the Apostate.+++(5)+++ What the Christians wrote against the Emperor Julian is approximately of the same calibre as what the Jews have written against us.+++(4 Conceit!)+++ The writings of the Emperor Julian, on the other hand, are products of the highest wisdom.+++(5)+++ If humanity took the trouble to study and understand history, the resulting consequences would have incalculable implications. One day ceremonies of thanksgiving will be sung to Fascism and National Socialism for having preserved Europe from a repetition of the triumph of the underworld." - Adolf Hitler, January 2, 1942.
+
+> "When one thinks of the opinions held concerning Christianity by our best minds a hundred, two hundred years ago, one is ashamed to realise how little we have since evolved. I didn't know that Julian the Apostate had passed judgment with such clear-sightedness on Christianity and Christians.+++(5)+++ You should read what he says on the subject." - Adolf Hitler, October 2, 1941.
