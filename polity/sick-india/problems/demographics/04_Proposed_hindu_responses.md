@@ -42,15 +42,6 @@ How to strategically spread out to ensure Hindu survival.
 - Missionary mentality vs group cohesion tension
     - SP: "What I read from Eric Kaufmann and Michael Blume is that in first world industrialized countries the optimal strategy for growth is what they call "preach and breed" i.e., missions in the early days to form a core group of committed members, followed by erection of some barriers against the outside secular world, and maintenance of a high birth rate. Blume had once shared a research paper which concluded this but I can no longer find it as he took down his old blog posts. Their explanation is that groups like Jehovah's Witnesses that evangelize a lot also tend to lose out a lot because outsiders (as in the new converts) often bring in outside/secular influences consciously or not. These barriers also connect with what Kaufmann calls strong religion and Richard Sosis research on costly signaling. Paradoxically its the most liberal/few rules churches and religious groups that seem to lose the most members to secularization while religious groups that require you to make an effort and invest your time and follow rules have stronger retention rates."
 
-### Jews
-- Ultra Orthodox Jew males simply collect state money, study torah and breed - women may work to provide additional support, and they are socialized to value the best Torah scholar.
-- Modern Orthodox Jews lead successful professional lives, while maintaining an orthodox lifestyle and having large families.
-    - Eg. Robert Aumann the Nobel Laureate economist.
-- Jews very deliberately study and strategize for their survival.
-    - Eg. UK-demography [study](http://www.jpr.org.uk/publications/tag.demography). Considering to the rise of India and China [IS](http://isteve.blogspot.ca/2010/07/china-v-india-which-will-be-good-for.html).
-    - Dr. Shalom Wald \[[bookz](http://bookzz.org/book/2493368/cfbd55)\], who "chose 14 well-known historians, from Thucydides to Gibbon, Spangler, Toynbee and Kennedy, and examined their theories concerning the circumstances in which civilizations flourish or collapse. Then he tried to examine how these theories can be applied to the context of the Jewish people." One major recommendation was that Jews do not concentrate entirely in Israel - it is not the best survival strategy.
-- Modern orthodox jews conduct military-style camps which militarily prepare youth. This has led to the recent ascent of orthodox Jewish officers in the Israeli army.
-
 ### Mormons
 - Mormon families are similar large.
 - Fertility pattern: Summary from [MF_E15](http://mormonfertility.blogspot.com/).

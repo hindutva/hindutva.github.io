@@ -45,3 +45,16 @@ title: Judaism यहूदोन्मादः
 
 ## Limited Hindu-Jewish alliance
 - Just as the jews suddenly started liking the Roman emperor (Julian the hellene/ apostate) - they will make tactical alliances in the presence of a bigger threat from their universalist offshoots.
+
+## Survival strategies
+- Jews very deliberately study and strategize for their survival.
+- Eg. UK-demography [study](http://www.jpr.org.uk/publications/tag.demography).
+- Considering to the rise of India and China [IS](http://isteve.blogspot.ca/2010/07/china-v-india-which-will-be-good-for.html).
+- Dr. Shalom Wald \[[bookz](http://bookzz.org/book/2493368/cfbd55)\], who "chose 14 well-known historians, from Thucydides to Gibbon, Spangler, Toynbee and Kennedy, and examined their theories concerning the circumstances in which civilizations flourish or collapse. Then he tried to examine how these theories can be applied to the context of the Jewish people." One major recommendation was that Jews do not concentrate entirely in Israel - it is not the best survival strategy.
+
+
+## Demographics
+- Ultra Orthodox Jew males simply collect state money, study torah and breed - women may work to provide additional support, and they are socialized to value the best Torah scholar.
+- Modern Orthodox Jews lead successful professional lives, while maintaining an orthodox lifestyle and having large families.
+  - Eg. Robert Aumann the Nobel Laureate economist.
+- Modern orthodox jews conduct military-style camps which militarily prepare youth. This has led to the recent ascent of orthodox Jewish officers in the Israeli army.
