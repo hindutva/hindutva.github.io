@@ -1,26 +1,12 @@
----
-title: Judaism यहूदोन्मादः
----
++++
+title = "Anti-pagan actions"
 
-## "Holy" texts
-- Hebrew Bible: Tanakh is an acronym of the first Hebrew letter of each of the Masoretic Text's three traditional subdivisions: "Written" Torah ('Teaching', also known as the Five Books of Moses), Nevi'im ('Prophets') and Ketuvim ('Writings')—hence TaNaKh.
-- talmūd : primary source of Jewish religious law (halakha) and Jewish theology. This includes:
-  - Mishnah, a written compendium of Rabbinic Judaism's Oral Torah
-  -  Gemara (circa year 500 CE), an elucidation 
-
-## Anti-polytheist philosophy
-- Noah's rules: "Non-Jews do not have to become Jews to become righteous. They only have to embrace the Seven Laws of Noah. According to Torah tradition, God gave Noah and his family seven commandments to observe when he saved them from the flood. These commandments, referred to as the Noachide Commandments or Laws, are learned by tradition but also suggested in Genesis Chapter 9, and are as follows: 1. Not to commit idolatry; 2. Not to commit blasphemy; ... 7. To establish courts of justice to punish violators of the other six laws..." ([YT](https://www.youtube.com/watch?v=5O1ve4Hs4Po))
-- More about fanatic intolerant Judaic acts against European polytheism elsewhere.  
-- Anti-polytheist actions are specified in Avodah Zarah which clearly specifies efficient idol desecration instructions - "cut off the tip of ear or nose or finger, or batter it".
-- Rambam/ Moses Maimonides/ Mūsā bin Maymūn, in his Guide for the Perplexed (dalalat al hai’rin), has a retrospective but telling) explanation for why cows are among the sacrificial animals for yahweh at the temple - it is because cows are venerated by Harrans (dubbed Hindus by some yahUda-s, some deriving Sabian from shiva?), so as to show the yahudas the error of that thought, yahweh has commanded that cows be slaughtered in certain sacrifices at the temple (when it was functioning).
-- Defence of prophetism - "From the Stroumsa’s work one can glean at least 12 Mohammedan authors writing polemics against the barAhima-inspired refutation of Islam introduced into their world by al-Rawandi. This continued long after the death of al-Rawandi and well after the army of Islam had erased the Hindus from the Western expanses of Greater India. Importantly, this fear was not restricted to the Mohammedan – interestingly we find similar reactions from the paleo-Abrahamism to the barAhima, with at least 5 polemical Judaic authors taking up their (brAhmaNa) refutation of prophetism, along similar lines to that of the Sunni and the Shia. Much of this mirrors the earlier attack by the pretAcharin-s on the yavana pagans (e.g. Origen apology for the shavamata and his attack on Celsus). " [MT](https://manasataramgini.wordpress.com/2012/04/01/5030/)
-
-## Anti-pagan actions
-### Proselytism
++++
+## Proselytism
 - "Not only did Jews of this time engage in proselytizing, the very word “proselyte” is thought to have been originally coined (proselythos in Greek) to refer to a convert who had turned away from the polytheistic traditions of the Greeks, Romans, etc, and embraced Judaism. According to A History of the Jewish People, the “roots” of the proselytizing movement among Jews “reached back to the beginnings of the Second Temple Era”, that is, the late 6th century BC, and this movement “reached it’s peak in the first century CE” [p. 276]. " {[EG](https://egregores.wordpress.com/2009/09/12/constantine-a-brief-history-of-revolutionary-monotheism-part-three/)}
 - "For the worst rascals among other peoples,15 renouncing their ancestral religions, always kept sending tribute and contributions to Jerusalem, thereby increasing the wealth of the Jews; again, the Jews are extremely loyal toward one another, and always ready to show compassion, but toward every other people they p183feel only hate and enmity. ... Those who are converted to their ways follow the same practice, and the earliest lesson they receive is to despise the gods, to disown their country, and to regard their parents, children, and brothers as of little account.  However, they take thought to increase their numbers; for they regard it as a crime to kill any late-born child..." - Tacitus \[[T1](http://penelope.uchicago.edu/Thayer/E/Roman/Texts/Tacitus/Histories/5A*.html)\]
 
-### Wars
+## Wars
 - Simon Maccabaeus and his son John Hyrcanus, who reigned as rulers of Judea for almost four decades (142-104 BC)
   - "Gezer was invested according to all the rules of that art and attacked with the sophisticated siege engines that were in use in the hellenistic armies. The population was expelled, pagan cults abolished and the city resettled with Jews faithful to their religion. Simon also built himself a palace in Gezer, which became one of the administrative centres of Judea. John Hyrcanus, Simon’s son, was appointed governor of the city. An even greater impression on contemporaries was made by the conquest of the Acra, for as long as the citadel was inhabited by hellenists and garrisoned by gentiles Judea’s independence could not be assured." [A History of the Jewish People, Ben-Sasson & Malamat, p. 215]
   - "In principle, John’s position was the same as that previously formulated by Simon in his reply to the envoys of Antiochus Sidetes — that the whole of Palestine was the ancestral heritage of the Jewish nation. In that heritage there was no room for foreign cults, as evidenced by the conversion of Idumea and the destruction of the Samaritan temple on Mount Gerizim. Under John Hyrcanus territorial expansion proceeded in various directions — south, north and east — with decisive consequences for the history of the people and the land...  Now they completed the conquest of Galilee and defeated the Itureans, who seem to have ruled over part of the Upper Galilee. Like the Idumeans before them and in line with the policy developed by John Hyrcanus, they were converted …"  [A History of the Jewish People, Ben-Sasson & Malamat, p. 218-9]
@@ -32,29 +18,16 @@ title: Judaism यहूदोन्मादः
 - Bar Kokhba revolt (132–136 CE) triggered by building Aelia Capitolina, over the ruins of Jerusalem and the erection of a temple to Jupiter on the Temple Mount. Simon bar Kokhba, the commander of the revolt, was regarded by many Jews as the Messiah, who would restore their national independence. Result: Suppression of Jewish religious and political autonomy by Hadrian (no circumcision allowed), Large-scale destruction of Judean population by Roman troops.
 - Jewish leaders and population - to this day - regard the Bar Kokhba assault with reverence and fondness.
 
-### Iconoclasm
+## Iconoclasm
 - "Josiah destroyed all the shrines in Judah outside of Jerusalem. Burned the "Asherah" in the temple and scattered the ashes in a graveyard. He also went up to Bethel(an important Israelite temple). Josiah destroyed Bethel, defiled it by killing priests on the altar and burning their corpses on it. Bethel, that means "house of god", that was supposedly founded by Jacob and had its sacred stone pillar set up by him. The rulers and priests aggressively promoted Jerusalem, until they finally decided that it was to have the only temple."
 - Consequences: "From Jeremiah 44. Jews in Egypt blaming the disaster on the king's(Josiah and after) banning of the Queen of Heaven's cult. Times were good until that happened, then it was just misfortune after misfortune. "
 
-### Role in anti-pagan alliances
+## Role in anti-pagan alliances
 - The paleo-Abrahamist system is largely a ethnocentric one, so they their holy wars were mostly limited to suppression of polytheism among their people and within their lands. However, they were open to anti-pagan alliances with their universalist offshoots. ("A rare exception being the conversion of section of the Khazar Turks to their religion. ... this conversion might have played a role in the antagonism between the Khazars and the polytheistic Vikings of the incipient Kha’khanate of the Rus.")
 -  Communism and Sickularism are but newer incarnations of old hebraic plague - it is no wonder who spearheads them. To add to your list, just start writing down and checking the names of the Indologists and you will find something interesting. (more [here](../academia/charges/))
 
-### Anti-hindu actions
+## Anti-hindu actions
 - Opinions expressed during modern Jewish visits to India \[[T1](https://twitter.com/sighbaboo/status/725514089850503168)\].
 
-### Limited Hindu-Jewish alliance
+## Limited Hindu-Jewish alliance
 - Just as the jews suddenly started liking the Roman emperor (Julian the hellene/ apostate) - they will make tactical alliances in the presence of a bigger threat from their universalist offshoots.
-
-## Survival strategies
-- Jews very deliberately study and strategize for their survival.
-- Eg. UK-demography [study](http://www.jpr.org.uk/publications/tag.demography).
-- Considering to the rise of India and China [IS](http://isteve.blogspot.ca/2010/07/china-v-india-which-will-be-good-for.html).
-- Dr. Shalom Wald \[[bookz](http://bookzz.org/book/2493368/cfbd55)\], who "chose 14 well-known historians, from Thucydides to Gibbon, Spangler, Toynbee and Kennedy, and examined their theories concerning the circumstances in which civilizations flourish or collapse. Then he tried to examine how these theories can be applied to the context of the Jewish people." One major recommendation was that Jews do not concentrate entirely in Israel - it is not the best survival strategy.
-
-
-## Demographics
-- Ultra Orthodox Jew males simply collect state money, study torah and breed - women may work to provide additional support, and they are socialized to value the best Torah scholar.
-- Modern Orthodox Jews lead successful professional lives, while maintaining an orthodox lifestyle and having large families.
-  - Eg. Robert Aumann the Nobel Laureate economist.
-- Modern orthodox jews conduct military-style camps which militarily prepare youth. This has led to the recent ascent of orthodox Jewish officers in the Israeli army.
