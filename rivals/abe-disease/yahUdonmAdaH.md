@@ -15,11 +15,7 @@ title: Judaism यहूदोन्मादः
 - Rambam/ Moses Maimonides/ Mūsā bin Maymūn, in his Guide for the Perplexed (dalalat al hai’rin), has a retrospective but telling) explanation for why cows are among the sacrificial animals for yahweh at the temple - it is because cows are venerated by Harrans (dubbed Hindus by some yahUda-s, some deriving Sabian from shiva?), so as to show the yahudas the error of that thought, yahweh has commanded that cows be slaughtered in certain sacrifices at the temple (when it was functioning).
 - Defence of prophetism - "From the Stroumsa’s work one can glean at least 12 Mohammedan authors writing polemics against the barAhima-inspired refutation of Islam introduced into their world by al-Rawandi. This continued long after the death of al-Rawandi and well after the army of Islam had erased the Hindus from the Western expanses of Greater India. Importantly, this fear was not restricted to the Mohammedan – interestingly we find similar reactions from the paleo-Abrahamism to the barAhima, with at least 5 polemical Judaic authors taking up their (brAhmaNa) refutation of prophetism, along similar lines to that of the Sunni and the Shia. Much of this mirrors the earlier attack by the pretAcharin-s on the yavana pagans (e.g. Origen apology for the shavamata and his attack on Celsus). " [MT](https://manasataramgini.wordpress.com/2012/04/01/5030/)
 
-## Role in anti-pagan alliances
-- The paleo-Abrahamist system is largely a ethnocentric one, so they their holy wars were mostly limited to suppression of polytheism among their people and within their lands. However, they were open to anti-pagan alliances with their universalist offshoots. ("A rare exception being the conversion of section of the Khazar Turks to their religion. ... this conversion might have played a role in the antagonism between the Khazars and the polytheistic Vikings of the incipient Kha’khanate of the Rus.")
--  Communism and Sickularism are but newer incarnations of old hebraic plague - it is no wonder who spearheads them. To add to your list, just start writing down and checking the names of the Indologists and you will find something interesting. (more [here](../academia/charges/))
-
-## Specific anti-pagan actions
+## Anti-pagan actions
 ### Proselytism
 - "Not only did Jews of this time engage in proselytizing, the very word “proselyte” is thought to have been originally coined (proselythos in Greek) to refer to a convert who had turned away from the polytheistic traditions of the Greeks, Romans, etc, and embraced Judaism. According to A History of the Jewish People, the “roots” of the proselytizing movement among Jews “reached back to the beginnings of the Second Temple Era”, that is, the late 6th century BC, and this movement “reached it’s peak in the first century CE” [p. 276]. " {[EG](https://egregores.wordpress.com/2009/09/12/constantine-a-brief-history-of-revolutionary-monotheism-part-three/)}
 - "For the worst rascals among other peoples,15 renouncing their ancestral religions, always kept sending tribute and contributions to Jerusalem, thereby increasing the wealth of the Jews; again, the Jews are extremely loyal toward one another, and always ready to show compassion, but toward every other people they p183feel only hate and enmity. ... Those who are converted to their ways follow the same practice, and the earliest lesson they receive is to despise the gods, to disown their country, and to regard their parents, children, and brothers as of little account.  However, they take thought to increase their numbers; for they regard it as a crime to kill any late-born child..." - Tacitus \[[T1](http://penelope.uchicago.edu/Thayer/E/Roman/Texts/Tacitus/Histories/5A*.html)\]
@@ -40,10 +36,14 @@ title: Judaism यहूदोन्मादः
 - "Josiah destroyed all the shrines in Judah outside of Jerusalem. Burned the "Asherah" in the temple and scattered the ashes in a graveyard. He also went up to Bethel(an important Israelite temple). Josiah destroyed Bethel, defiled it by killing priests on the altar and burning their corpses on it. Bethel, that means "house of god", that was supposedly founded by Jacob and had its sacred stone pillar set up by him. The rulers and priests aggressively promoted Jerusalem, until they finally decided that it was to have the only temple."
 - Consequences: "From Jeremiah 44. Jews in Egypt blaming the disaster on the king's(Josiah and after) banning of the Queen of Heaven's cult. Times were good until that happened, then it was just misfortune after misfortune. "
 
-## Specific Anti-hindu actions
+### Role in anti-pagan alliances
+- The paleo-Abrahamist system is largely a ethnocentric one, so they their holy wars were mostly limited to suppression of polytheism among their people and within their lands. However, they were open to anti-pagan alliances with their universalist offshoots. ("A rare exception being the conversion of section of the Khazar Turks to their religion. ... this conversion might have played a role in the antagonism between the Khazars and the polytheistic Vikings of the incipient Kha’khanate of the Rus.")
+-  Communism and Sickularism are but newer incarnations of old hebraic plague - it is no wonder who spearheads them. To add to your list, just start writing down and checking the names of the Indologists and you will find something interesting. (more [here](../academia/charges/))
+
+### Anti-hindu actions
 - Opinions expressed during modern Jewish visits to India \[[T1](https://twitter.com/sighbaboo/status/725514089850503168)\].
 
-## Limited Hindu-Jewish alliance
+### Limited Hindu-Jewish alliance
 - Just as the jews suddenly started liking the Roman emperor (Julian the hellene/ apostate) - they will make tactical alliances in the presence of a bigger threat from their universalist offshoots.
 
 ## Survival strategies
