@@ -10,7 +10,7 @@ title: Christianity प्रेतमतम्
 - See [sphulinga/u2mob](https://sphulinga.wordpress.com/category/twitter/u2mob/) stream
 - See [sphulinga/u2down](https://sphulinga.wordpress.com/category/twitter/u2down/) stream
 
-### Mutations
+### Major Mutations
 
 - Dominant clade: Nicene creed.
 - Rex Mundi is a esoteric figure of Templars and other orders, who created this physical world which is evil.
@@ -41,5 +41,3 @@ title: Christianity प्रेतमतम्
 
 - Televangelists scamming poor and vulnerable people with faith healing and "send me seed money" prosperity promises, while leading rich lives. [LWT15](https://www.youtube.com/watch?v=7y1xJAVZxXg).
 - Church priests raping children.
-
-
