@@ -1,5 +1,5 @@
 +++
-title = "+Hindu Muslim Riots"
+title = "+Hindu Muslim Riots 1947-86"
 
 +++
 
