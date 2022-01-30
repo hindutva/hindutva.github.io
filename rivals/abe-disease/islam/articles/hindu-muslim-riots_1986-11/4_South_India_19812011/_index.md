@@ -1,5 +1,5 @@
 +++
-title = "4 South India 1981–2011"
+title = "+4 South India 1981–2011"
 
 +++
 
@@ -16,42 +16,3 @@ Regarding the deteriorating relationship between Hindus and Muslims reaching the
 News coming from Bombay was not particularly comforting either: there were bomb blasts, new mafia networks, together with the increasing activities of Pakistani agents and the dynamism of those jihadis (Abou-Zahab and Roy 2004), who were now trying to set deep roots in India's southern regions. Anxiety increased as well, because each bomb blast meant enquiries, police action, citizens being treated as suspects, and Muslim youngsters being sent to jail without trial. Fortunately, there were no violent reactions. People knew better.
 
 In Kerala, the Indian Union Muslim League (IUML), still hated in the North, is an extremely positive factor. Rioting is rare in these regions and, when it does occur, it does so only for local reasons, as for example, with rivalries between fishermen (in Marad in 2002–2003). In fact, in those days, besides some places in Karnataka which have become rather sensitive like Bangalore (mentioned earlier) or Mangalore, the only riot which has been extremely serious and was repeated twice was in Coimbatore (Tamil Nadu) in 1997, and again in 1998. L. K. Advani, the BJP leader who was visiting the city at the time, had a narrow escape.
-
-## 1994; August 15: Hubli (Karnataka)
-
-
-69% Hindus, 26% Muslims
-
-Chief Minister of Karnataka: M. Veerappa Moily, Congress Party, November 1992–December 1994
-
-Violence erupted on Independence Day in Hubli (Karnataka). The town had suffered from communal tensions for quite some time over the Idgah Maidan, a piece of open land held by the Anjuman-e-Islam (AEI), a Muslim organization. The Hubli municipality had leased out the area to the AEI in 1921 so that Muslims could have a place to hold prayers twice a year. Troubles cropped up in the 1960s when the AEI built a commercial complex on the land. In 1992, echoing the hoisting of the national flag by BJP President [Murli Manohar Joshi](murli-manohar-joshi.html) in Srinagar (Kashmir), the Hubli's BJP unit attempted to hoist the national flag on the Idgah Maidan, thereby provoking the indignation of the AEI. BJP attempts were successfully countered by the state administration till 1994. On August 15, 1994, two BJP leaders, [Sikander Bakht](sikander-bakht.html)and [Uma Bharti](uma-bharti.html), joined the flag-hoisting campaign in Hubli on the Idgah Maidan. They were arrested by police, angering a crowd of BJP activists. The police resisted and opened fire, killing six people. This riot remains a symbol of the communalization of the South of India.
-
-**(The Pioneer 01/02/1994); **(The Times of India 15/08/1994); **(Sunday, 28/08–03/09/1994); **(Sunday 4–10/09/1994); (***Engineer 1995d)
-
-## 1994; October 6–8: Bangalore (Karnataka)
-
-
-76% Hindus, 16% Muslims
-
-Chief Minister of Karnataka: M. Veerappa Moily, Congress Party, November 1992–December 1994
-
-Violence erupted in the city of Bangalore (Karnataka) after the broadcasting in Urdu of a Doordarshan (television) program on October 2, from 7:45 to 7:55 p.m., just after the Kannada newscast (Karnataka's dominant language). On October 3, a three-hundred-strong mob of pro-Kannada organizations gathered to protest in front of Bangalore's Doordarshan office. Over the following two days, many protest marches were held in the city and inflammatory speeches were delivered. On October 6, the linguistic agitation took a communal turn with the involvement of Hindu communal organizations-such as the ABVP-which damaged buses and official vehicles. On October 7, a Friday, a protest procession passed through a predominantly Muslim area shouting anti-Muslim slogans near a mosque where prayers were being said. Violence spread to the city. Sixty-three Muslim houses were destroyed. People died in the mob violence, shooting by police, and in stabbing incidents. The riot claimed 25 lives according to official sources, while unofficial estimates put the death toll at 40, and, on occasion, as high as 100. On October 8, the Urdu news bulletin was suspended, but the violence continued, leading to the stabbing deaths of seven persons.
-
-***(Engineer 1994); **(Frontline 04/11/1994)
-
-## 1997; November 29–December 1; 1998; February 14: Coimbatore (Tamil Nadu)
-
-
-84% Hindus, 8% Muslims
-
-Chief Minister of Tamil Nadu: K. M. Karunanidhi, Dravida Munnetra Kazhagam (DMK), May 1996–May 2001
-
-Communal violence flared up in the city of Coimbatore (Tamil Nadu). Tensions had increased between the Hindu and Muslim communities over the recent successes of Muslim businessmen in the town. The Hindu Munnani (an organization formed to defend the Hindu religion) leader, Rama Gopalan, had come to Coimbatore several times, asking Hindus to purchase only from Hindu shops. Moreover, relations between the police and the Muslim community had seriously deteriorated after the bombing of the RSS office in Madras in 1993: looking for members of the Al-Umma, an organization formed by S. A. Basha after the demolition of the Babri Masjid and which was suspected of being behind the blasts, the police raided Muslim localities, and they had arrested many Muslim youths in recent years. Several check posts were set up around the Muslim-dominated area of Kottaimedu, angering local residents. Muslim traders were also irritated by the daily collection by the police of a mamool (illegal levy) from each shop. Muslims had become organized through various organizations (Al-Umma; AIUTC–All India Trade Union Congress –, and TMMK - Tamil Nadu Muslim Munnetra Kazhagam), which were involved in a permanent conflict with the police.
-
-In this tense atmosphere, violence erupted on November 29 after the murder of a police constable by three Muslim youths belonging to the Al-Umma. A section of the police, aligned with Hindutva circles, retaliated by setting fire to Muslim shops. They were joined by activists from the Hindu Munnani. Very well-armed and organized, they targeted, with clinical precision, Muslim properties. Violence occurred in different parts of the city, leading to the death of 18 Muslims (eight in police firing) and two Hindus.
-
-On 14 February 1998, a series of bomb blasts occurred in Coimbatore in which around 50 persons were killed and 200 injured according to the Justice P.R. Gokulakrishnan Commission of Inquiry. Engineer reported 60 deaths. The attacks were perpetrated by Al-Umma members in retaliation for the killings of Muslims in shooting by police between November and December of 1997. Three human bombs were set to explode at a meeting delivered by the BJP leader L. K. Advani who had planned to visit the town. But Advani's arrival was delayed and the perpetrators could not penetrate police lines. They left their bombs in other parts of the city. Various explosions took place until February 17. In the hours following the explosions, Hindu activists attacked Muslim shops and properties. The Government had to send in the army.
-
-These events indicate the level of communalization that occurred in the South of India during this period.
-
-**(Frontline 26/12/1997); **(Frontline 07/03/1998); **(Frontline 23/10/1998); ***(Engineer 1998a); **(Frontline 10–23/06/2000); ***(National Integration Council 2007)
