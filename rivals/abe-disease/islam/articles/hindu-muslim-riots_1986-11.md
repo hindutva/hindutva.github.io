@@ -9,13 +9,13 @@ _By Violette Graff, Research Fellow (rtd.), CERI, SciencesPo._
 
 _Written in collaboration with Juliette Galonnier, PhD Student, SciencesPo and Northwestern University (Chicago)._
 
-## INTRODUCTION
+## 0 INTRODUCTION
 
 We are in 1986, almost forty years after Independence and the traumatizing events of Partition: Hindu–Muslim relations in India are fraught with many difficulties. The communal divide, as it is called, is still salient, and religious riots have become a distinctive feature of Indian social life. Starting in 1961, the country has witnessed a number of severe riots: dramatic events occurred in Calcutta, Rourkela, and Jamshedpur following the theft of a relic hair of the Prophet in Kashmir (1964). The country then witnessed a large pogrom against Muslims in Ahmedabad (1969); ghastly riots in Bhiwandi (1970) and Jamshedpur (1979); repeated incidents in Hyderabad; unbridled violence in Moradabad (1980) and Biharsharif (1981); huge massacres in Nellie (1983); and terrible riots in Bombay–Bhiwandi (1984) (for a detailed account of this period, as well as a general introduction to India and its various communities, see «Hindu–Muslim Communal Riots in India I (1947–1986)» by Violette Graff and Juliette Galonnier \[2012\].) Throughout that period, the Muslim minority had growing reasons to be highly disillusioned with the Indian secular ideal, while a growing proportion of the Hindu population tended to subscribe to an ethnicized, Hindu–centric vision of the Indian nation.
 
 In the mid-eighties, as the country was heading toward the ninth general elections, alarming signs were displayed, which didn't bode well for the future. While Muslims were up in arms defending their personal law (for example, in the «Shah Bano case»), the controversy over the Babri Masjid in Ayodhya was gaining strength and was becoming a national matter of concern-a bone of contention between the two communities in each and every Indian city.
 
-## CHAPTER 1
+## 1 Towards the ninth general elections (1986–1989)
 
 _Towards the ninth general elections (1986–1989)_
 
@@ -163,7 +163,7 @@ A belated trial took place in 2007: of the considerable number of persons origin
 
 **(India Today 15/10/1989); **(The Statesman 25/11/1989); ***(Bharti 1989); ***(Saksena 1990: 170–172); ***(Engineer 1990b); ***(A. K. Jha 1991); ***(Engineer 1995b), ***( Rizvi 1997)
 
-## CHAPTER 2
+## 2 From V. P. Singh to P. V. Narasimha Rao
 
 _From V. P. Singh to P. V. Narasimha Rao. Mandal versus Mandir._
 
@@ -538,7 +538,7 @@ In retaliation for the Bombay riots of December 1992 and January 1993, a series 
 
 ***(Srikrishna 1998)
 
-## CHAPTER 3
+## 3 From Congress to NDA
 
 _1994–2004: Congress is forced to bow to composite Fronts until a BJP-led coalition, the National Democratic Alliance (NDA), gains undisputed power._
 
@@ -583,7 +583,7 @@ So far, only a few riot cases have been tried by Indian justice, more or less su
 
 ***(Communalism Combat 03–04/2002); ***(Concerned Citizens Tribunal 2002); ***(Human Rights Watch 2002); **(Outlook 18/03/2002); ***(Engineer 2003b); ***(Jaffrelot 2003a); ***(Mann 2005: 484); **(Tehelka 03/11/2007), ***(Jaffrelot 2011), **(India Today 10/11/2011)
 
-## CHAPTER 4
+## 4 South India 1981–2011
 
 _South India. Old issues. Fresh anxieties (1981–2011)_
 
@@ -638,7 +638,7 @@ These events indicate the level of communalization that occurred in the South of
 
 **(Frontline 26/12/1997); **(Frontline 07/03/1998); **(Frontline 23/10/1998); ***(Engineer 1998a); **(Frontline 10–23/06/2000); ***(National Integration Council 2007)
 
-## CHAPTER 5
+## 5 Congress returns
 
 _Victory of the Congress-led coalition_
 
