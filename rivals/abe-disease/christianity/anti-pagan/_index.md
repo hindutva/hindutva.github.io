@@ -10,6 +10,11 @@ title: Anti-pagan
     - South Korea 2018 [PP](https://www.news24.com/SouthAfrica/Local/Peoples-Post/protest-against-forced-conversions-20180205).
 - Ganging up against pagan states: Japanese pre-WW2 example.
 
+## Normative inversion
+> I shall not speak of the ancient errors common to all races, that bound the whole of humanity fast before the coming of Christ in the flesh. I shall not enumerate the devilish monstrosities [ʻportenta ... diabolica', which Giles’ translation renders as ‘diabolical idols'] of my land, numerous almost as those that plagued Egypt, some of which we can see today, stark as ever, inside and outside deserted city walls: outlines still ugly, faces still grim. I shall not name the mountains and hills and rivers, once so pernicious, now useful for human needs, on which, in those days, a blind people heaped divine honours [*divinus honor ... cumulabatur').   
+> - Gildas a British Christian in 540 CE
+
+
 ## Doctrine of "discovery"
 Doctrine of "discovery" - appropriation of non-christian territory.
 

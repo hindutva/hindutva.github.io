@@ -1,5 +1,5 @@
 ---
-title: Christianity प्रेतमतम्
+title: Christianity
 ---
   
 
