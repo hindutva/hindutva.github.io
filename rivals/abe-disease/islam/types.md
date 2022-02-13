@@ -32,7 +32,18 @@ title: Types
 ### Numbers
 100 million in 1941. One third of the population?
 
-
+### Classes
+- ashraf 
+  - nobles
+  - claim foreign-origin descent.
+  - e.g. Sayyid, Sheikh, Mughal, and Pathans
+  - majority of ulema Syed.
+  - businessmen, landowners, and traders
+- ajlaf (aka Pasmandas)
+  - hindu converts
+  - 85% in India
+  - arzals ("degraded")
+    - untouchable Hindu converts
 
 ### Indian muslim contribution to global ummah
 - Ships loaded with gifts - stampedes in mecca.
