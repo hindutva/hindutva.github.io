@@ -60,6 +60,9 @@ title: Types
 - Since they claim their founder as imAm mahdi, they're rejected by the rest. But then various islamic sects call each other kAfir-s.
 - As fundamentalist as rest of sunni-s since the origin. Eg - paNDit lekhrAm's murderer.
 - Very polemical against kAfirs.
+- Blasphemy law in Pak originates with Brits & Brit elite were lobbied into it by Ahmadiyyas(e. g. Sherlock Holmes author Arthur Conan Doyle signed their petition)
+- They were staunch supporters of Muslim League & Partition. Even today their official website proudly boasts of their contributions for this.
+- They volunteered for jihad in Kashmir in 1947-48 & raised a volunteer jihadi force called Furqan battalion, u will find the retired jihadis sitting in UK suggesting it had Brit backing.
 
 ## Political demography of muslims
 
