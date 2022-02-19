@@ -1,5 +1,5 @@
 ---
-title: Regionalism
+title: +Regionalism
 ---
 
 - Excess diversity in the wrong areas i.e. areas where diversity contributes to loss rather than gain in robustness. \[[MT](https://manasataramgini.wordpress.com/2017/05/16/some-biological-analogies-for-certain-sociopolitical-issues/)\]
