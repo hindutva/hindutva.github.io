@@ -5,6 +5,22 @@ title: Laws
 ## Jurisprudence types
 See [types](../types/) page.
 
+## Bases
+- Qur'an
+- Hadith - narrations of the Muslim prophet [Muhammad]
+  - mutawatir - several people heard it. super strong. around 100 hadith.
+  - ahad - one person heard it from the Prophet, someone heard it from him etc. (all links known).
+  - khabar - one person heard it from the Prophet, someone heard it from him etc. (some links unknown).
+- sunnah - normative custom of Muhammad or the early Muslim community. May or may not have a supporting hadith.
+- ijma - consensus of the Muslim community
+- qiyas - analogical reasoning
+- istihsan - juristic discretion
+- urf / Adat - Local customs
+
+
+## Authority
+- head of the Islamic establishment is wali al-`amr, the ruler. mufti and the Fatwa Board are like advisers to the King. ruler, has the final fatwa, has the bay'a.
+
 ## On the theological support of the jihAdi-s
 - Killing unbelievers: Qur'an 2:191, 4:89, 9:5, 9:29. Beheading: 47:4, 8:12. Violence against non-Muslims: 8:39, 48:29, 9:73. Terror: 3:151, 8:60. Sex slavery of infidel women ("captives of the right hand") 4:3, 4:34, 23:1-6, 33:50, 70:30. 
 - ISIS [justification](http://cnsnews.com/news/article/lauretta-brown/isis-commander-justifies-massacre-we-had-called-upon-yazidis-convert): “The Islamic State does its utmost for the repentance of any infidel – whether Yazidi, Crusader, or Jewish. We have been fighting for no other reason than to extract people from their kufr (unbelief) and to usher them into the fold of Islam.” The commander also had a message for Yazidis who have not converted to Islam: “We advise, or even beseech, the Yazidis to come down from the mountains and convert, first and foremost in order to save their souls from the Hellfire, and secondly, if they remain in the mountains, they will die of hunger and thirst.”

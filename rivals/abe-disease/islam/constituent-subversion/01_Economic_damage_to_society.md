@@ -30,3 +30,7 @@ A summary from @parikramah:
 ### Examples
 - A'zeb slaughters cow in and occupies a big temple built by a rich jain merchant of gujarat, on complaint by the said merchant, who had influence at the court, the emperor orders him to handover the temple back and pay for all the damages.
 - Another case where a rajput under incarceration promises 50,000 payment and other things on release, shahjahan adds condition of conversion. Who opposes it ? Aurangzeb. Why? Because in that case, he won't be able to raise the money (which he was going to do through his Hindu contacts).
+
+## India impact
+- Brits didnt have to 'push india into poverty'- it was like this the entire time in Mughal rule. Bengal, used as proxy for comparisons, show wages that were 1/5th and 1/6th of London right in 1600. The Great Divergence began right ~1500, not 1800.
+
