@@ -11,7 +11,7 @@ disablePathToLower = true
   build_img = "https://github.com/hindutva/hindutva.github.io/actions/workflows/build.yml/badge.svg"
   build_url = "https://github.com/hindutva/hindutva.github.io/actions/workflows/build.yml"
   env = "production"
-  disqusShortcode = "hindu-vichaarah"
+  disqusShortcode = "hindutva"
   background_color_class = "bg-light-red"
   body_classes = "bg-washed-yellow"
 
