@@ -9,12 +9,15 @@ title: Hindu Engagement
     - There are religious institutions, rich circles of connoisseurs form around local experts in the shAstra-s.
 
 ## Examples of foolish engagement
-- Bad funding: Various idiot rich hindu-s funding sanskrit/ hindu chairs and projects which are liable to be under the influence of anti-hindu academics.
-    - Rohan Murthy's funding of [www.murtylibrary.com](http://www.murtylibrary.com/) MCLI .
-    - Various endowed chairs and visiting professorships
-        - Indian ministry of culture Uchicago 2012 ([UC](http://news.uchicago.edu/article/2012/01/24/new-chair-indian-studies-commemorate-hindu-spiritual-leader)).
-        - Ramakrishnan Professorship 2016 [UC](http://news.uchicago.edu/article/2016/01/26/ramakrishnan-professorship-support-study-sanskrit).
 - Acquiescing to sepoy-dom (explained below).
+
+### Bad funding
+- Various idiot rich hindu-s funding sanskrit/ hindu chairs and projects which are liable to be under the influence of anti-hindu academics.
+- Rohan Murthy's funding of [www.murtylibrary.com](http://www.murtylibrary.com/) MCLI .
+- Various endowed chairs and visiting professorships
+  - Indian ministry of culture Uchicago 2012 ([UC](http://news.uchicago.edu/article/2012/01/24/new-chair-indian-studies-commemorate-hindu-spiritual-leader)).
+  - Ramakrishnan Professorship 2016 [UC](http://news.uchicago.edu/article/2016/01/26/ramakrishnan-professorship-support-study-sanskrit).
+  - Reliance Dhirubhai Ambani Chair at Stanford - Thomas Blom Hansen.
 
 ## Possibly better engagement
 - Good funding: Fund deserving pro-hindu scholars directly (in India or abroad).
