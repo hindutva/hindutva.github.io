@@ -2,21 +2,9 @@
 title: War on infiedels
 ---
 
-## Motivating Concepts
+## Fostering the victim mentality.
 
-- Motivating Terrorism
-    - KE: "Thus, when Mohammed Atta, Mohammed Bouyeri and hundreds of other Muslim terrorists declare in their farewell letters/videos that their motive is Islam, we have to believe them. But when they talk about Islam, claiming that their own interpretation is the same as Prophet Mohammed’s, we have to ascertain for ourselves the truth of that claim. And then we find that Prophet Mohammed’s intention was indeed closer to al-Qaeda’s than to that of the Sufis, a movement which invokes Quranic authority but was quite unknown in Mohammed’s day."
-- Pan-Islamic Caliphate
-    - "Choudary’s colleague Abu Baraa explained that Islamic law permits only temporary peace treaties, lasting no longer than a decade. Similarly, accepting any border is anathema, as stated by the Prophet and echoed in the Islamic State’s propaganda videos. If the caliph consents to a longer-term peace or permanent border, he will be in error. Temporary peace treaties are renewable, but may not be applied to all enemies at once: the caliph must wage jihad at least once a year. He may not rest, or he will fall into a state of sin." \[[ISIS1](http://www.theatlantic.com/features/archive/2015/02/what-isis-really-wants/384980/)\]
-    - "The caliph is required to implement Sharia. Any deviation will compel those who have pledged allegiance to inform the caliph in private of his error and, in extreme cases, to excommunicate and replace him if he persists." \[[ISIS1](http://www.theatlantic.com/features/archive/2015/02/what-isis-really-wants/384980/)\]
-- Ushering in the apocalypse
-    - "Now that it has taken Dabiq, the Islamic State awaits the arrival of an enemy army there, whose defeat will initiate the countdown to the apocalypse." \[[ISIS1](http://www.theatlantic.com/features/archive/2015/02/what-isis-really-wants/384980/)\]
-- Extra-territorial loyalty.
-    - Prominent Indian Muslim leaders speak about Hindus and India: [IF15](http://indiafacts.co.in/prominent-indian-muslim-leaders-speak-about-hindus/).
-
-### Fostering the victim mentality.
-
-#### Techniques
+### Techniques
 
 - Omission of the first offense - 
   - Forgetting Godra train burning in case of gurjarat riots.
@@ -55,6 +43,7 @@ title: War on infiedels
 - Early muslim expansion into central Asia offers several gory examples ([M](http://www.indiafacts.co.in/isis-caliphate-lessons-earliest-mohammedan-invasions-central-asia/)).
 - Boko Haram captures schoolgirls of Nigeria (2014) and forces them to Islam + marriage with jihadis ([wiki](https://en.wikipedia.org/wiki/Chibok_schoolgirls_kidnapping)).
 - Islamic State sells captured Yazidi women in Iraq (2014) \[[Guardian](http://www.theguardian.com/world/2014/aug/11/yazidis-tormented-fears-for-women-girls-kidnapped-sinjar-isis-slaves)\].
+- That these Ms target non-M girls as victims is clear from what we see across Assam, WB and Bangladesh. 98% of rape victims in BD are non-M. This is not mere crime of passion.
 
 #### Theological justification
 - Kuwaiti Political Activist Salwa Al Mteiri ([1](https://www.youtube.com/watch?v=x7Sc2uoJ5f8), [2](https://www.youtube.com/watch?v=BoBcFWUTze0))
@@ -79,7 +68,9 @@ title: War on infiedels
 
 ## Barring Hindu spiritual practice
 
-"The wicked mlecchas pollute the religion of the Hindus every day. They break the images of the gods into pieces and throw away the articles of worship. They throw into fire Bhagavata Purana and other holy scriptures. They forcibly take away a conch shell and bell of the brahmanas, and lick the sandal paints of their bodies. They urinate like dogs on the sacred Tulasi plant and deliberately pass faeces in the Hindu temples. They would throw water from their mouths on the Hindus engaged in worship, and harass the Hindu saints as if they were so many lunatics let large." - Isana Nagara, (c. 1564), author of the Advaita-prakasa, describes contemporary condition of the Hindus under 'Ala-ud-din Hussain Shah (1493–1519)
+> "The wicked mlecchas pollute the religion of the Hindus every day. They break the images of the gods into pieces and throw away the articles of worship. They throw into fire Bhagavata Purana and other holy scriptures. They forcibly take away a conch shell and bell of the brahmanas, and lick the sandal paints of their bodies. They urinate like dogs on the sacred Tulasi plant and deliberately pass faeces in the Hindu temples. They would throw water from their mouths on the Hindus engaged in worship, and harass the Hindu saints as if they were so many lunatics let large." 
+> 
+> - Isana Nagara, (c. 1564), author of the Advaita-prakasa, describes contemporary condition of the Hindus under 'Ala-ud-din Hussain Shah (1493–1519)
 
 ## Money can buy some tolerance
 - See tolerance ransom section in [Economic damange] page.

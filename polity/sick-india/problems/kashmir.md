@@ -2,6 +2,9 @@
 title: kAshmIra
 ---
 
+## Summaries
+- Rizwan Ahmed Hindi - [P1](https://www.youtube.com/watch?v=Mp1Mm564jOs)
+
 ## Events
 - "By 1989, with Rajiv Gandhi blundering on several fronts, VP Singh formed a Government. Immediately, Kashmir exploded: The drama of Union Home Minister Mufti Sayeed’s daughter’s kidnapping forced India to free terrorists. A murderous exodus of Kashmiri Hindus followed --- the seventh in a series of genocidal rounds of ethnic cleansing since 1389."
 
