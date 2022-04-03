@@ -8,8 +8,10 @@ title = "halAl"
 
 ## Consequence
 - "The most intolerant minority wins" rule of NN Taleb applies.
-- halAl slaughter requires muslim butcher. So, companies are forced to hire muslims and exclude non-muslims. For efficiency reasons, in the absence of sufficient pressure from non-muslims, it does not make sense for companies to hire two sets of workers for the same product.
+- halAl slaughter requires muslim butcher. So, companies are forced to hire muslims and exclude non-muslims.
+  - For efficiency reasons, in the absence of sufficient pressure from non-muslims, it does not make sense for companies to hire two sets of workers for the same product.
 - In the absence of strong non-muslim reaction, non-halAl meat is then not even available to customers who prefer that. For example, airlines prefer to stock and provide only halAl meat (caterer SkyChef supplies halAl meat only).
+  - - Halal meat is cheaper, and most customers never bother complaining. Theoretically, halAl should be more expensive (peculiar requirement of a minority community). Amazing how the tables are turned due to the "intolerant minority" principle.
 - To access 0.25x of the market, non-muslim companies are forced to go for halAl certificate - even when it makes no sense to do so (eg. non-meat products, Ayurvedic medicine). So, they are forced to pay local muslims for nothing.
 
 ## Reaction
