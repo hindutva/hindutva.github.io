@@ -28,7 +28,7 @@ See [worship-restrictions](../worship-restrictions/) page.
 "God has a plan for everyone. To understand that, history becomes important.". Story vs history ([here](https://www.youtube.com/watch?v=dKqYWvviFPs&index=11&list=PL6DF39CE9DE9554AD)).
     - The contrast between pagan view of history and willingness to accord greater respect for past people, and the Abrahamistic concept of jahiliya ([TW16](https://twitter.com/blog_supplement/status/751837015478562816)).
 
-### creation
+### Creation
 
 - originally thought to have happened exactly as described in the book.
 - reason: unknown, but deduced to be motivated by the desire to have others like himself. Granted various beings "free will" to that they can have this "peaceful garden".
@@ -40,12 +40,22 @@ See [worship-restrictions](../worship-restrictions/) page.
 - In the end of days, messaiah (identified with Jesus) will come back, there will be a big war and he will murder all non-believers.
 - Judgement day: All the dead will be resurrected (with body) for judgement.
     - Non-believers and evil doers will be tortured for ever. (In exceptional cults,  they just wont get a chance at second life - Eg. Jehovah's witnesses. )
-- salvation
+- Salvation
     - salvation is reserved (but not guaranteed) for followers of (say) Christ and denied to other Pagan moral people.
         - Beyond acceptance of the main prophet's teachings, one is dependent on "God's grace" for salvation.
     - true/ false religion  [BG](https://www.youtube.com/watch?v=Tzf8L3C8nZU).
 
-## revelation (in nature AND in the book)
+### Millenarianism/ apocalypse
+- A millennarian apocalyptic cult is a faith-based group in conflict with the world with voluntary membership contingent on personal conversion and a strong sense of chosenness, exclusiveness and ethical austerity. 
+- The main condition for joining was unconditional faith in the imminent and total destruction of the existing order of things, to be accompanied by the bloody revenge of the weak on the strong, with the weak inheriting the world.
+- And it's mostly in the expectation of that war that the hunt for possible traitors begins (Regin of Terror).
+- Essentially three ways of dealing with the postponement of the fulfillment [[1:08:33]] of the prophecy with the nonarrival of the end of the world or the messiah, whatever the prophecy may be.
+  - One is to die while trying to bring it about [[1:08:49]] and that was Trotsky's position.
+  - To claim that he has in fact arrived. This is the official view of the Jehovah's Witnesses and Christianity.
+  - And the third one is to reconcile oneself to the imperfections of human existence and learn how to live in a state of permanent expectation
+- Happen in times of moral panics. 
+
+## Revelation (in nature AND in the book)
 
 - "nature reveals the handiwork of a single author".
 - Revelation in the book says \*how\* God should be worshiped. 

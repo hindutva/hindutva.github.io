@@ -26,12 +26,18 @@ This, of course, runs counter to hindu ethos:
 
 ### Behavioral demands
 - In contemporary America, you have to keep confessing "I am a racist" to prove that you are not a racist. That's the essence of Critical Race Theory.
-- Eg. Kneeling in solidarity with BLM protestors.
+  - Eg. Kneeling in solidarity with BLM protestors.
 - Language changes:  "they", "ze" pronouns
+
+#### Lack of traditional guidance
+- the peculiarity of Marxism - Basically, what to do when children are born? Or when their parents die? Or when they would get married? Classics of Marxism and Leninism including the latter day ones, had nothing to say about every day human morality.
 
 ### Restructuring society 
 - Egalitarianism, anti-elitism, opposition to heredity influence (even in descriptive scientific research on phenotypes important in social functions). 
 - Opposition to "both the traditional elite & the real science which can easily call out their imperial nakedness". In west, traditional elite/ "System" is often identified with capitalist, western, scientific civilization.
+
+#### Millennarianism/ apocalyptic cults
+- Early Bolsheviks were a millenarian apocalyptic sect. As in most such sects, the core members were young men who had abandoned their family and past lives in order to join the charismatic leader who served as the sect's sacred center. Lenin's nickname was the Old Man. (Children of the Revolution [talk on UCTV by Yuri Slezkine](https://www.youtube.com/watch?v=HfH18hsrEPU)) Most of them expected for the world as they knew it, to end within their lifetimes. The key word in their correspondence was faith- faith in communism. They also expected and certainly, Stalin did, an apocalyptic war. And it's mostly in the expectation of that war that the hunt for possible traitors began (Reign of Terror).
 
 
 #### Iconoclasm
