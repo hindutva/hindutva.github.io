@@ -39,7 +39,7 @@ title: Types
   - e.g. Sayyid, Sheikh, Mughal, and Pathans
   - majority of ulema Syed.
   - businessmen, landowners, and traders
-- ajlaf (aka Pasmandas)
+- ajlaf (aka Pasmandas, Pasamanda)
   - hindu converts
   - 85% in India
   - arzals ("degraded")
