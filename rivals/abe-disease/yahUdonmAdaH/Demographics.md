@@ -44,6 +44,7 @@ title = "Demographics"
 - From the founding of political Zionism in the 1890s, Haredi Jewish leaders voiced objections to its secular orientation, and before the establishment of the State of Israel, the vast majority of Haredi Jews were opposed to Zionism.
   - This was chiefly due to the concern that secular nationalism would replace the Jewish faith and the observance of religion, and the view that it was forbidden for the Jews to re-constitute Jewish rule in the Land of Israel before the arrival of the Messiah.
 - There are a number of Haredi groups which not only oppose Zionism, but also do not recognize the State of Israel. 
+  - The Haredi view Zionism as blasphemous sacrilege that is trying to establish a Jewish state without the sanction of Yahweh. Haredi believe the Jews have been cursed by Yahweh to be a stateless people until the  Messiah comes.
 - Around 80% of European Haredim perished in the Holocaust.
 - Many Haredi males simply collect state money, study torah and breed - women may work to provide additional support, and they are socialized to value the best Torah scholar.
 
