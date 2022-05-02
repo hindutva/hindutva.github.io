@@ -12,6 +12,8 @@ Although the Prophet said all were equal before Allah, founders of 3/4 sunni mad
 
 Only Maliki school doesn't preach Arab superiority. 
 
+In his Iqtiḍāʾ, Ibn Taymiyyah declared, “Any who would adhere to ahl al-sunnah wa-l-jamāʿah [i.e., be an orthodox Sunni] must believe that the Arab race is superior to the non-Arab races, be they Hebrews, Aramaens, Romans, Persians, etc.”
+
 ## Marriage restrictions
 "Ibn Hanbal, the founder of the Hanbali school said that mawla (non Arabs) men are unsuitable to marry Arab women. Non-Quraysh men can't marry Quaraysh women, non Arab men can't marry Arab women." [PL_TW](https://twitter.com/porbotialora/status/1219881991434395648)
 
