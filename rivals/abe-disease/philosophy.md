@@ -15,6 +15,9 @@ With rare exceptions, all abrahamisms agree on some basic concepts. Abrahamisms 
   - BG [here](https://www.youtube.com/watch?v=MDNTP53TCxA), [here](https://www.youtube.com/watch?v=MDNTP53TCxA).
   - Hegel's excellent observation [IMG](http://i.imgur.com/TLjScks.jpg), [prospects_folk](https://www.marxists.org/reference/archive/hegel/works/pc/tubingen.htm).
 
+### Pagan criticisms
+> The "God" of the Abrahamists is not even real - it is but a psychotic demonic memetic construct, a part of a widespread mental disease. Abe's monotheists are actually mentally ill atheists, for whom the Abrahamist God is a coping mechanism to compensate for the dissatisfactoriness of their atheism. Or, they may be viewed as mentally ill polytheists, who have (in their heads) turned ALL Gods into demons - including their - now psychotic - "One True God".
+
 ## Counter religious nature
 - Abrahamisms = "Prophetic desert cults with replacement theology, where a later iteration abnegates the previous one. Mo's genius is to seal the possibility by declaring himself to be final."
 

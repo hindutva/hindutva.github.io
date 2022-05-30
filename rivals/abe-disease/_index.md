@@ -11,7 +11,10 @@ title: +Abrahamisms
 ## Cure
 > "Even if one is truly cured of an abrahma-ruj one can have a lifelong chronic inflammatory condition — this is seen among some mleccha atheists and neo-heathens. That inflammatory condition can be seen in the form of destructive dur-vāsana-s persisting among them." See Neo-pagan part of [compatibility page](../../../polity/external-affairs/population-compatibility/).
 
-## Effects on biological fitness
+## Fitness
+How to reconcile with the fact that the Abes have been civilizationally and geographically way more successful ? The disease is highly contagious - a (still sizable) minority has mounted successful resistance.
+
+### Effects on biological fitness
 
 - Case of Islam [here](../islam/intro/).
 
