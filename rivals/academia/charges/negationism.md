@@ -26,7 +26,7 @@ As for the count of 80 - he doesnâ€™t even argue about estimated number - thatâ€
 
 ### Hindu iconoclasm technique
 - Claim: Hindu and other pagan kings did it to their temples too! 
-    - See [here](../../../polity/external-affairs/tolerance/).
+    - See [here](/polity/external-affairs/tolerance/).
 - Claim: "The reverse happened too."
     - Lots of old mosques are now Gurdwaras in Punjab".
 - "Lots of old mosques are now Gurdwaras in Punjab".

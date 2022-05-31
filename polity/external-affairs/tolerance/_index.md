@@ -55,8 +55,12 @@ Anything intolerant to our tolerant hindu structure should not be tolerated, if 
 
 ### Intolerance and suppression
 - Terms and conditions imposed on the pArsI refugees (Qissa-i Sanjan) by king jadi rANa ensured that the majority way of life is not threatened - adopt local language, garments, no weapons, marriage only in evening.
-- If you want to talk about where dharmashAstra stands, examine the actions of one of its greatest lights, hemAdri vis-a-vis the treacherous mahAnubhAva sect. This the peshva-s (who were dharmashAstra based[PDF](https://archive.org/stream/judicialsystemof029313mbp#page/n7/mode/2up)) also later suppressed ([pdf](http://hermes-ir.lib.hit-u.ac.jp/rs/bitstream/10086/8053/24/HJeco0090100320.pdf)[img](../../../../../images/snippets/mahAnubhAva-iconoclasm-1782.png)).  -[MT1](https://manasataramgini.wordpress.com/2005/11/13/the-cracks-in-the-edifice/). (Their recent record here -[IMG](http://i.imgur.com/ehUmNb9.png).)
+- If you want to talk about where dharmashAstra stands, examine the actions of one of its greatest lights, hemAdri vis-a-vis the treacherous mahAnubhAva sect. This the peshva-s (who were dharmashAstra based[PDF](https://archive.org/stream/judicialsystemof029313mbp#page/n7/mode/2up)) also later suppressed ([pdf](http://hermes-ir.lib.hit-u.ac.jp/rs/bitstream/10086/8053/24/HJeco0090100320.pdf).  -[MT1](https://manasataramgini.wordpress.com/2005/11/13/the-cracks-in-the-edifice/).
+  
+
+
 - There are umpteen examples such as the following: "Sometime later, another Nirgrantha follower in Pataliputra drew a similar picture. Ashoka burnt him and his entire family alive in their house. He also announced an award of one dinara (silver coin) to anyone who brought him the head of a Nirgrantha heretic. " from the ashokavadana. Though the tales are almost certainly exaggerated, they indicate that such suppression was certainly not unimaginable.
+
 
 ## External lessons
 ### Lessons on tolerance
