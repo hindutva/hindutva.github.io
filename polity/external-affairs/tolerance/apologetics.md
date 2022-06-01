@@ -27,19 +27,21 @@ title: Apologetics
 - Certain erstwhile jaina temples were taken over by vIrashaiva-s.
 - The literary output of the period shows continued poetic works from both sides.
 
+> ಎಪಿಗ್ರಾಫಿಯಾ ಇಂಡಿಯಾದ ಇಪ್ಪತ್ತನಾಲ್ಕನೆಯ ಸಂಪುಟದ 141-144 ಪುಟಗಳಲ್ಲಿ ದಾಖಲಾಗಿರುವ ಸಂಗತಿಯಿದು- ’ದಕ್ಷಿಣ ಭಾರತದ ರಾಜ ವೀರ ಗೊಗ್ಗಿದೇವ ತನ್ನನ್ನು ತಾನು ಜೈನ ಶಾಸನಗಳ ಪಾಲಿನ ಬೆಂಕಿ ಎಂದೂ, ಜಿನ ಅನುಯಾಯಿಗಳೆಂಬ ವನ್ಯಮೃಗಗಳ ಬೇಟೆಗಾರನೆಂದೂ, ಬೌದ್ಧ ಕಟ್ಟಳೆಗಳ ನೆಲಸಮಗಾರನೆಂದೂ’ ಬಣ್ಣಿಸಿಕೊಂಡಿದ್ದಾನೆ.
+
 ### Takeovers
 - "Doddappa Temple at Adargunchi, Karnataka. Built sometime between 10th and 11th centuries, the temple today is fronted by a stone sculpture of the bull Nandi (Shiva’s vehicle) and houses a massive black stone statue of a Jina, placed alongside a Shiva linga" \[[DO17](http://www.dailyo.in/politics/ayodhya-myth-conflict-babri-masjid-hindu-muslim-architecture/story/1/17009.html) \- linked for the data not the narrative\]
 - "Megudi temple was reused as a Virashaiva shrine sometime in the 12th century. Here the Jina idol was uprooted from garbagriha, smeared with sacred Virashaiva ash, and placed in the central aisle that now leads to the sanctum sanctorum housing the Shiva linga."\[[DO17](http://www.dailyo.in/politics/ayodhya-myth-conflict-babri-masjid-hindu-muslim-architecture/story/1/17009.html)\]
 - Mitigated
    - "Veerashaiva officer stamped Linga mark on the pillars of Vijaya Parshvanatha temple of Jains. A complaint was lodged with the Mandaleshwara who engaged his minister Krishnapayya to mitigate. A mediation held & it was resolved that Jainas will offer Vibhuti & betel-leafs to Veerashaivas & thus the Jainas can carry out their worship." (Epi Carnatica Vol 5 Part 1 (Hasan dist) Pg 128)
 
-#### Plausibility of hostile takeovers:
+#### Plausibility of hostile takeovers
 - Adayya, hero of the kannaDa somanAtha-chAritra by rAghavAnka (nephew and protege of the famous vIrashaiva poet harihara), vows to destroy a jaina structure before ever breakfast. (RG) "Somanatha charitra, a propagandist work which describes the life of saint Somayya (or Adaiah) of Puligere, his humiliation after being lured by the charms of a Jain girl, and his achievement of successfully converting a Jain temple into a Shiva temple."
 - "Basava Purana, a long hagiography dedicated to Basava narrates that not only did he successfully plot a regicide, but also sanctified violence against Jains, in rather gruesome ways such as putting “a sharp spear on the skulls of Jains"."\[[DO17](http://www.dailyo.in/politics/ayodhya-myth-conflict-babri-masjid-hindu-muslim-architecture/story/1/17009.html)\]
 - Discussions: [FB](https://www.facebook.com/trippingovercurry/posts/1111768322171064?ref=notif&notif_t=notify_me_page).
    - There is some plausible speculation of Hindu-s taking over and re-purposing Jain temples. If temples were converted, I'd think that it's probably because the original patrons abandoned it or became extinct in the area. That's about as good as anything to account for the facts in most cases. That one prefers the "shoot kill destroy" narrative points to an unfortunate difference in perspective.
 
-### Shared use in some places:
+### Shared use in some places
 - "Several syncretic examples exist such as the temple at Kagvad, Karnataka, where both the Virashaivas and the Jains worship side by side. When the Virashaivas appropriated the temple of Kagvad they took the ground floor and lined up all the Jina statues on a stepped pedestal at the centre of the temple. The Jina statues were consecrated to Virashaivism this time by dabbing sandalwood paste on to the statues. Unlike the other two examples, no Shiva linga or Nandi sculpture was constructed at the Kagvad temple. Instead, the Jina idols are framed in tiny metal trishula (trident, weapon of Shiva) symbolising Shiva. Thus, the ground floor is today full of Virashaiva worshippers venerating Jina idols encased in trident frames, while the first and second floors houses Jain worshippers." \[[DO17](http://www.dailyo.in/politics/ayodhya-myth-conflict-babri-masjid-hindu-muslim-architecture/story/1/17009.html)\]
 
 ## jaina-vaiShNava-rivalry
