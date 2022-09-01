@@ -14,6 +14,9 @@ The Hindu identity provides some resistance from pressure to convert to Abrahami
 - Yet, some acceptance of abrahamist form and norm might have been a part of the non-military response ([see here](../../../rivals/abe-disease/abe-disease/). )  
 - Also see [secularism here](../../../../rivals/0-theism/secularism/).
 
+## Islam as Indian ally
+> The last major war the H fought on their own behalf was the 1st war of independence in 1857 CE. At the same time, a Jihad was also being fought against the English. This thoroughly confused the H & those confusions persisted over the last ~165 years. - MT
+
 ## Against south-Asia
 > South Asia term basically clubs India/Indians w/ Pakistan/Bdesh & their people & culture (which is different from India). So each bad thing of Pak & Bdesh is imposed on India's characterisation too while each good thing from India is shared by Pak/BD too under this term.
 
