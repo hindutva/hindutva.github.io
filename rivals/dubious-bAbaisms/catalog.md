@@ -16,6 +16,8 @@ title: Error catalog
 - Sanskrit etymology mistakes
   - Confusing: ‘kala’ (‘kāla’, “time” or “dark”), ‘kali’ (‘kālī’, the goddess), and ‘khali’ (khālī/ख़ाली/خالي, “empty”) - [NM](https://twitter.com/MisraNityanand/status/992992709320339456), [YT](https://www.youtube.com/watch?v=qkN8gYXiXdI).
   -  "Shiva 'literally' means 'that which is not'". [JM_FB](https://www.facebook.com/jraman.mdevan/posts/1249476238420846), [IMG](https://i.imgur.com/qUfglm6.jpg).
+- "“When a woman delivers twins, one male and one female, one breast will produce one type of milk and the other breast will produce another type of milk."  [TW](https://twitter.com/jonathanstea/status/1575200002091393024)
+
 
 ## Kanchi periyava
 Kanchi MahasvamI produced foolishness that claimed crazy stuff such as "all religions are the same", "ramses and rama are related", "aztec is probably a corrpution of Astika" etc.. ([1](http://www.kamakoti.org/kamakoti/articles/Jagadguru%20Divya%20Chareitram%20Hindu%20Culture%20from%20Egypt%20to%20Java%20English.html)).
