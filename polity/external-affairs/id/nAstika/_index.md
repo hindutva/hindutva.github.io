@@ -4,7 +4,7 @@ title: +nAstika rejection
 
 ## Intro
 
-- See veda section in holy books [page](../../../../bases/books/).
+- See veda section in holy books page.
 - "श्रुतिस्तु वेदो विज्ञेयो धर्मशास्त्रं तु वै स्मृतिः । ते सर्वार्थेष्वमीमांस्ये ताभ्यां धर्मो हि निर्बभौ ॥ योऽवमन्येत ते मूले हेतुशास्त्राश्रयाद् द्विजः । स साधुभिर्बहिष्कार्यो नास्तिको वेदनिन्दकः ॥" इति मनुः। तत्र मेधातिथिर् [अत्र](https://www.wisdomlib.org/hinduism/book/manusmriti-with-the-commentary-of-medhatithi/d/doc145584.html)।
 
 ## Dealing with commonalities

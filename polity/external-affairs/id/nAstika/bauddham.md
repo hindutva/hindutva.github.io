@@ -1,6 +1,5 @@
 +++
 title = "bauddham"
-unicode_script = "devanagari"
 +++
 
 ## buddha (an avatAra or a veda-nindaka?)
