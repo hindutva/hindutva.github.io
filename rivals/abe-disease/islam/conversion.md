@@ -4,6 +4,9 @@ title: Conversion
 
 Counter-conversion considered elsewhere.
 
+## Framing
+Replace 'Conversion' with 'ethnocide', the erasure of indigenous diversity.
+
 ## Classical Conversion causes
 - Inducement and threats
 - Egalitarianism/ "freedom from caste" theory doesn't hold water.
