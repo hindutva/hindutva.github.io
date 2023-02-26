@@ -29,9 +29,14 @@ During the Shivala temple bombing on February 29 1984, 3 people were kiIIed and 
 Khalistani radicals bombed Shivala Hindu temple and a market, killing 28 and injuring 100. This was the second attack on the temple in 4 years.
 
 ## Santhoshi Mata
-The Santhoshi Mata temple had been a recently constructed temple of Punjab. A recently constructed Hindu temple was seen by radicals as an affront to them.
+The Santhoshi Mata temple had been a recently constructed temple of Punjab. A recently constructed Hindu temple was seen by radicals as an affront to them. In the worldview of these radicals, a Hindu temple cannot be constructed in Punjab.
 
 April 8 1984: Bomb exploded in the courtyard of Santoshi Mata temple, kiIIing the home guard and chowkidar.
 
 ## Other attacks
 April 16 1990 Bomb Near Hindu Temple Kills 5 in Northern India (Published [1990](https://www.nytimes.com/1990/04/16/world/bomb-near-hindu-temple-kills-5-in-northern-india.html))
+
+## Desecrations 2023
+- February 2023: Ram Mandir vandalized by Khalistanis in Mississauga, Canada
+- Jan 2023: Hindu temple in Brampton, Canada vandalized by Khalistani graffiti and Bhindranwale art
+- Jan  2023: Hindu temple vandalized in Australia by 'Khalistan supporters'
