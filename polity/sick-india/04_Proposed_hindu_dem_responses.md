@@ -1,11 +1,11 @@
 +++
-title = "04 Proposed hindu responses"
+title = "04 Proposed hindu Dem responses"
 
 +++
 
 Discussions - [WP](https://agnimaan.wordpress.com/2015/08/26/proposed-hindu-responses-to-demographic-projections/?fb_action_ids=10153199594647989&fb_action_types=news.publishes).
 
-## **Potential weaknesses**
+## Potential weaknesses
 - Racial admixture in our population makes it harder for us to be ruthless, since the inimical population and their backers look like us.
     - Motivating studies: 
         - Empathy constrained: Prejudice predicts reduced mental simulation of actions during observation of outgroups. \[[pdf](http://www.researchgate.net/publictopics.PublicPostFileLoader.html?id=512385f4e24a465848000000&key=9fcfd512385f426ae9)\]
@@ -14,7 +14,7 @@ Discussions - [WP](https://agnimaan.wordpress.com/2015/08/26/proposed-hindu-resp
 - Multiple front battle, dealing with: economically powerful Islamic states, western christian/ post-christian christian and Han imperialist powers.
 - We are more divided (eg. by jAti-s competing for reservation) than they are.
 
-## Ideas for **strengthening the position of hindus in the Indian** homeland
+## Ideas for strengthening the position of hindus in the Indian homeland
 - Resettle Hindus from hindu-majority states like Himachal Pradesh in precarious states like Kashmir and Assam. 
 - Stem or reverse the influx of muslim migrants from Bangladesh and Burma.
 - Increase Hindu birthrate - through conscience, education and incentives.
@@ -25,7 +25,7 @@ Discussions - [WP](https://agnimaan.wordpress.com/2015/08/26/proposed-hindu-resp
     - Small scale and half hearted "ghar vApasi-s" and polemics cannot keep up with Muslim fertility.
     - Hinduize our critical institutions, especially the military.
 
-## **Have a plan B if India falls**
+## Have a plan B if India falls
 How to strategically spread out to ensure Hindu survival.
 - This is not to deny that we should do our best to improve Hindu position in India, but it is not a wise survival strategy to entirely concentrate there.
 - **Desiderata** about the "destination".
@@ -38,7 +38,6 @@ How to strategically spread out to ensure Hindu survival.
 - **Proposed destinations**
     - South and central america. (Racial admixture, extant hindu foothold in the north, large pagan undercurrent.)
 
-## **Lessons from other populations**.
+## Lessons from other populations.
 - Missionary mentality vs group cohesion tension
-    - SP: "What I read from Eric Kaufmann and Michael Blume is that in first world industrialized countries the optimal strategy for growth is what they call "preach and breed" i.e., missions in the early days to form a core group of committed members, followed by erection of some barriers against the outside secular world, and maintenance of a high birth rate. Blume had once shared a research paper which concluded this but I can no longer find it as he took down his old blog posts. Their explanation is that groups like Jehovah's Witnesses that evangelize a lot also tend to lose out a lot because outsiders (as in the new converts) often bring in outside/secular influences consciously or not. These barriers also connect with what Kaufmann calls strong religion and Richard Sosis research on costly signaling. Paradoxically its the most liberal/few rules churches and religious groups that seem to lose the most members to secularization while religious groups that require you to make an effort and invest your time and follow rules have stronger retention rates."
 - See Jewish and Mormon examples elsewhere.
