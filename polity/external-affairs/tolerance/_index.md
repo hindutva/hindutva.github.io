@@ -10,10 +10,10 @@ Anything intolerant to our tolerant hindu structure should not be tolerated, if 
 - **Polytheism especially cannot afford secularism.** See [here](../../../rivals/abe-disease/0-theism/secularism/).
 
 ### Freedom of speech and its limitations
-- I'd defend the **right of expression of intolerance against ideas or ideologies that are intolerant** (and by extension, people who follow or advocate such ideologies). This means, books discussing how one might kill and maim the "Caliph" are OK, not those discussing how one might do the same for Narendra Modi.
+- One might defend the **right of expression of intolerance against ideas or ideologies that are intolerant** (and by extension, people who follow or advocate such ideologies). This means, books discussing how one might kill and maim an intolerant "Caliph" are OK, not those discussing how one might do the same for Narendra Modi.
     - This is in line with limits of traditional hindu tolerance.
 - **Limitations on forced exposure**: A significant population that objects to some expression is not exposed to it by force.  
-    - The government should not allow indiscriminate loudspeaker use - because: those jokers are \*\*forcing\*\* a significant number of people to listen to things that are obnoxious to them. 
+    - The government should not allow indiscriminate loudspeaker use - because: they are **forcing** a significant number of people to listen to things that are obnoxious to them. 
         - This is why both the muezzin's "Allah Hu Akbar" noise should not be allowed, just like temples blasting off stotra-s well beyond their premises. 
         - Exceptions should be granted to occasional public festivals/ processions.
     - Objectionable paintings should be in galleries, not in billboards.
