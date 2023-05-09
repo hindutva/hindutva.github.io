@@ -15,5 +15,6 @@ title = "Exclamations"
 
 
 ## Fighting cries
-- (nArA e takbIr) Allah hu akbar - Allah is great.
+- (nArA e takbIr) Allah hu akbar - "Allah is greater" (Comparative Degree).
+- lA ilAha il allah, muhammad ul rasUl allaH - "there is no God but Allah, and mohammed is Allah's prophet"...as per Shahada
 - Gustakh e Rasool/nabi Ki Aik Hi Saza Sar Tan Se Juda - Only punishment for insulting the prophet - separating head from body.
