@@ -1,5 +1,5 @@
 +++
-title = Fitness summary
+title = "Fitness summary"
 +++
 
 Sources:
