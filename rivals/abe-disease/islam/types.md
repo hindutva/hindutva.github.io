@@ -73,9 +73,9 @@ title: Types
         - Jihadi kid in kAshmIra [1](https://www.youtube.com/watch?v=kgFPt1FqulE).
     - "Salafis are not jihadists, and most adhere to sects that reject the Islamic State. They are, as Haykel notes, committed to expanding Dar al-Islam, the land of Islam, even, perhaps, with the implementation of monstrous practices such as slavery and amputation—but at some future point. Their first priority is personal purification and religious observance, and they believe anything that thwarts those goals—such as causing war or unrest that would disrupt lives and prayer and scholarship—is forbidden." \[[ISIS_A](http://www.theatlantic.com/features/archive/2015/02/what-isis-really-wants/384980/)\]
 - Estimates of the percentage of people with radical beliefs in muslim population is at 15-25%, even if the fraction of people who work outside the system to act on them (by terrorizing others) is smaller.
-    - UK muslims survey [here](https://www.youtube.com/watch?v=xQcSvBsU-FM).
-    - Brigitte Gabriel response [here](http://ozziesaffa.blogspot.com/2014/06/i-bet-she-regrets-asking-her-question.html).
-    - Sam Harris's just clarification of the "criticizing Islam/ muslims is over-generalization" trope - [debate video](https://www.youtube.com/watch?v=lAob0bCWpv4#t=13).
+    - UK muslims survey [YT](https://www.youtube.com/watch?v=xQcSvBsU-FM).
+    - Brigitte Gabriel response [YT](https://www.youtube.com/watch?v=Ry3NzkAOo3s).
+    - Sam Harris and Bill Maher just clarification of the "criticizing Islam/ muslims is over-generalization" trope - [debate video vs Ben Affleck 2014](https://www.youtube.com/watch?v=vln9D81eO60).
 
 ## Sufi-s
 See the [sufi page](../sufi/).
