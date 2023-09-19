@@ -2,7 +2,7 @@
 title = "Hadith of Gabriel"
 
 +++
- Gabriel came and asked, "What is faith?" Allah's Messenger replied, 'Faith is to believe in Allah, His angels, (the) meeting with Him, His Apostles, and to believe in Resurrection." 
+Gabriel came and asked, "What is faith?" Allah's Messenger replied, 'Faith is to believe in Allah, His angels, (the) meeting with Him, His Apostles, and to believe in Resurrection." 
  
 Then he further asked, "What is Islam?" Allah's Messenger replied, "To worship Allah Alone and none else, to offer prayers perfectly, to pay the compulsory charity (Zakat) and to observe fasts during the month of Ramadan." 
 
