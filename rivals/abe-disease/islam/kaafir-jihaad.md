@@ -78,3 +78,6 @@ title: War on infiedels
 
 ## Money can buy some tolerance
 - See tolerance ransom section in [Economic damange] page.
+
+### Dhimmihood
+Hanafis allow Jizya dhimmihood to idol worshippers as well. In addition to Hanafi, Maliki also allowed the Dhimmi status for Hindus. Dhimmi but not “ahl al-kitab”. Later, Hanbali (as in modern Saudi) too accepted the same, as reflected in their laws. Maulana Maududi spent time on reopening the topic!
