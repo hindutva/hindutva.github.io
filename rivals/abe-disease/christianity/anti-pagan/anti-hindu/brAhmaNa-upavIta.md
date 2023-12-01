@@ -1,0 +1,9 @@
++++
+title = "brAhmaNa upavIta"
++++
+
+In 1623 the vexed subject of Hindu questions was finally disposed of by Pope Gregory XV, who issued a Constitution, according to which Brahmans were, after their conversion to Christianity, allowed to retain their sacred thread, the use of ablutions and of Sandal, on the condition however that the thread should not be given to such Brahmans by their own priests in their temples, with their prayers, rites, or sacrifices, but simply by a Catholic priest; that the string composed of three threads should be worn by converted Brahmans in honour of the Christian Trinity and as a sign of their nobility, and that at the same time the converted Hindus of noble descent, should not despise those who are born of low estate. 
+
+This document of the Pope is of singular importance by the knowledge displayed in it of the minute ceremonies of the Brahmans when they are invested with the sacred thread, a knowledge which had reached Rome assuredly through the Jesuit missionaries and perhaps through Padre Nobili himself; wherefore the publication of the Constitution in India, gave rise to new and more lively remonstrances sent by the Franciscans to Rome. Not merely Nobili, but also other missionaries who had gone to India for the purpose of converting the Hindus, ended by being themselves converted to the disciplinary practices of the Brahmans as to dress, food, drink, and other usages. Thus they became farther removed from Roman Catholicism than many heretic Christian sects of Europe which had been condemned and fiercely persecuted by the tribunal of the Holy Inquisition.*
+
+[The Calcutta Review, No. CLXIII, 1886. Article by E. Rehatsek.]
