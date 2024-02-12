@@ -1,6 +1,6 @@
 +++
 title = "Anti-pagan actions"
-
+  
 +++
 ## Proselytism
 - "Not only did Jews of this time engage in proselytizing, the very word “proselyte” is thought to have been originally coined (proselythos in Greek) to refer to a convert who had turned away from the polytheistic traditions of the Greeks, Romans, etc, and embraced Judaism. According to A History of the Jewish People, the “roots” of the proselytizing movement among Jews “reached back to the beginnings of the Second Temple Era”, that is, the late 6th century BC, and this movement “reached it’s peak in the first century CE” [p. 276]. " {[EG](https://egregores.wordpress.com/2009/09/12/constantine-a-brief-history-of-revolutionary-monotheism-part-three/)}
