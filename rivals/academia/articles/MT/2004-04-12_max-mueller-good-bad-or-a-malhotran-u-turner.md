@@ -27,7 +27,7 @@ If we look at the early stage of MMs career, then we see that he was sympathetic
 
 > “If I live for any purpose it is for this, that I will preach the union of Eastern and Western Theism, the reconciliation of Europe and Asia. The idea may seem absurd to many in the present age. It may provoke ridicule and angry reviling. But posterity will prove a better judge.”
 
-The synthetic phase, where he started becoming obsessed with his own ideas, set in soon there after. This gradually completed the U-turn as he started placing things in his own occidental categories. 
+The synthetic phase, where he started becoming obsessed with his own ideas, set in soon thereafter. This gradually completed the U-turn as he started placing things in his own occidental categories. 
 
 ## Continued sympathy
 Yet, he did not completely give up his attachment to India and perhaps to the end of his life he even returned to it: It showed up in works like Ramakrishna (which he wrote in his later life; compare with Kripal’s lurid depiction of RK as a homoerotic tormented soul) and “*Six systems of Indian philosophy*” that he wrote just before his death. So I think we have to look elsewhere to find the real subversionists of Indian identity and +++(??)+++
