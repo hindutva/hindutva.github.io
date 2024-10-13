@@ -1,0 +1,17 @@
++++
+title = "Augustine on digestion"
++++
+
+Source: [TW](https://x.com/maa_bhaishiiH/status/1827749592550768951)
+
+St Augustine on Christians appropriating Greco-Roman philosophy while abandoning their gods. He be like: "It is perfectly OK - when the Israelites left Egypt, they took the gold from Egypt but not the idols. Similarly, we can take the philosophy and abandon the idols. Actually, it is we Christians who deserve to be in possession of these valuable knowledge - these pagans are having unlawful possession of the knowledge that they don't deserve anyways as they are using it to worship devils.
+
+In his own words:
+
+"Moreover, if those who are called philosophers, and especially the Platonists, have said anything that is true and in harmony with our faith, we are not only not to shrink from it, but to claim it for our own use from those who have unlawful possession of it.+++(5)+++ For, as the Egyptians had not only the idols and heavy burdens which the people of Israel hated and fled from, but also vessels and ornaments of gold and silver, and garments, which the same people when going out of Egypt appropriated to themselves, designing them for a better use, not doing this on their own authority, but by the command of God, the Egyptians themselves, in their ignorance, providing them with things which they themselves were not making a good use of; in the same way all branches of heathen learning have not only false and superstitious fancies and heavy burdens of unnecessary toil, which every one of us, when going out under the leadership of Christ from the fellowship of the heathen, ought to abhor and avoid; but they contain also liberal instruction which is better adapted to the use of the truth, and some most excellent precepts of morality; and some truths in regard even to the worship of the One God are found among them.+++(5)+++ Now these are, so to speak, their gold and silver, which they did not create themselves, but dug out of the mines of God's providence which are everywhere scattered abroad, and (the pagans) are perversely and unlawfully prostituting to the worship of devils. Therefore, the Christian, when he separates himself in spirit from the miserable fellowship of these men, ought to take away from them, and to devote to their proper use in preaching the gospel. Their garments, also — that is, human institutions such as are adapted to that intercourse with men which is indispensable in this life — we must take and turn to a Christian use".
+
+“On Christian Doctrine, Book II, Chapter 40
+
+Continuation on Ch 42:
+
+But just as poor as the store of gold and silver and garments which the people of Israel brought with them out of Egypt was in comparison with the riches which they afterwards attained at  Jerusalem, and which reached their height in the reign of King Solomon,  so poor is all the useful knowledge which is gathered from the books of the heathen when compared with the knowledge of Holy Scripture.  For whatever man may have learned from other sources, if it is hurtful,  it is there condemned; if it is useful, it is therein contained. And  while every man may find there all that he has learned of useful  elsewhere, he will find there in much greater abundance things that are  to be found nowhere else, but can be learned only in the wonderful  sublimity and wonderful simplicity of the Scriptures.
