@@ -10,7 +10,8 @@ While Hindus get all excited (and rightly so) about foreigners taking to their r
 
 - Malhotran U-turn: The convert learns some Hindu tattva or technique, faces some social pressure to return to original bearings, repackages the H tattva or technique in Christian/ Jewish terms.
 - The foreign convert comes with his/ her own cultural baggage which might even include "vishvaguru" attitude (eg. western liberals). They may then try to foist these attitudes on native Hindu sacred spaces and populations (eg. opposition to temple elephant tradition, shabarimala restrictions etc..). In doing so, they may well selectively (mis)use their acquired knowledge and status as apparently sincere practitioners. 
-- Treachery and activism against the interests of the native population: Prominent examples involve western converts to shinto ("my green shinto rejects jingoist state shinto") or hinduism (yogis against hindutva).
+- Treachery and activism against the interests of the native population: Prominent examples involve western converts to shinto ("my green shinto rejects jingoist state shinto") or hinduism ("yogis against hindutva").
+  - Crypto-abrahamist sympathies, coming from one's background, play a part here.
 
 ## History
 - \[Some Aspects of Ancient Indian Culture, by DR Bhandarkar, Rev. JM Anthos, Asian Educational Services, 1989. pp 68.\] quotes an incident in 1398-99 CE during the Vijayanagara era, in which 2,000 Brahmin girls of a village were rescued from the armies of Firoz Shah Bahmani and accepted after purification rites \[1\].

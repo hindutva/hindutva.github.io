@@ -35,3 +35,4 @@ I mean – The muslims can eat all of the same chicken Tikka masala and the Viet
   - Anti-nationalism
   - Normalization of sexual deviance.
 - Jealousy and peevishness about having an inferior survival track-record.
+
