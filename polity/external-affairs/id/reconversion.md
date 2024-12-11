@@ -13,6 +13,8 @@ While Hindus get all excited (and rightly so) about foreigners taking to their r
 - Treachery and activism against the interests of the native population: Prominent examples involve western converts to shinto ("my green shinto rejects jingoist state shinto") or hinduism ("yogis against hindutva").
   - Crypto-abrahamist sympathies, coming from one's background, play a part here.
 
+Also related - [neo-]pagan population compatibility [notes](/polity/external-affairs/population-compatibility).
+
 ## History
 - \[Some Aspects of Ancient Indian Culture, by DR Bhandarkar, Rev. JM Anthos, Asian Educational Services, 1989. pp 68.\] quotes an incident in 1398-99 CE during the Vijayanagara era, in which 2,000 Brahmin girls of a village were rescued from the armies of Firoz Shah Bahmani and accepted after purification rites \[1\].
 - "The Shuddhi movement of Arya Samaj, carried to many parts of the north in the early decades of 1900s by Swami Shraddhananda, is nothing but a continuation of this long-time Hindu practice."
