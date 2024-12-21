@@ -5,7 +5,15 @@ title = "Counter-religions"
 ## Definition in opposition
 A counter religion is defined in _opposition_ to another, pre-existing natural religion (though they may falsely claim to be the "original"). This opposition is a core part of a counter religion, and not incidental. 
 
-So, we have the first two of the 10 commandments - "You shall have no other gods before Me. You shall not make for yourself a carved image."; implying the existance of "False Gods". Similarly, in a later evolute we have - "Mohammed is the last prophet, and he supersedes all predecessors". Hence, such religions are said to be _defined_ in opposition to others.
+So, we have the first two of the 10 commandments, combined with universalism - "You shall have no other gods before Me. You shall not make for yourself a carved image."; implying the existance of "False Gods". Similarly, in a later evolute we have - "Mohammed is the last prophet, and he supersedes all predecessors". Hence, such religions are said to be _defined_ in opposition to others.
+
+<details><summary>विस्तारः (द्रष्टुं नोद्यम्)</summary>
+
+Kenite Yhwist aniconic monolatry was not necessarily a counter religion, even if it had these 2 commandments - since it admitted validity of other ways for others.  
+Later Judaism, it's mutant, which strongly based itself on invalidating surrounding natural religions (eg. proseletysim, iconoclasm, religious wars, Noachide Commandments, Rambam on cow slaughter), was one.  
+Modern Judaism appears to have reverted to the ancestral state?
+</details>
+
 
 Other religions might oppose each other - but not as a core definitional aspect. Further, they (objectively) claim to be a continuation or refinement of a prior natural religion. For example, a dvaitin vaiShNava can and does _define_ his religious view without any reference to advaita; though he may reject the latter as a delusion.
 

@@ -19,11 +19,18 @@ title = "Anti-pagan actions"
 - Jewish leaders and population - to this day - regard the Bar Kokhba assault with reverence and fondness.
 
 ## Iconoclasm
-- "Josiah destroyed all the shrines in Judah outside of Jerusalem. Burned the "Asherah" in the temple and scattered the ashes in a graveyard. He also went up to Bethel(an important Israelite temple). Josiah destroyed Bethel, defiled it by killing priests on the altar and burning their corpses on it. Bethel, that means "house of god", that was supposedly founded by Jacob and had its sacred stone pillar set up by him. The rulers and priests aggressively promoted Jerusalem, until they finally decided that it was to have the only temple."
-- Consequences: "From Jeremiah 44. Jews in Egypt blaming the disaster on the king's(Josiah and after) banning of the Queen of Heaven's cult. Times were good until that happened, then it was just misfortune after misfortune. "
+> "Josiah destroyed all the shrines in Judah outside of Jerusalem. Burned the "Asherah" in the temple and scattered the ashes in a graveyard. He also went up to Bethel(an important Israelite temple). Josiah destroyed Bethel, defiled it by killing priests on the altar and burning their corpses on it. Bethel, that means "house of god", that was supposedly founded by Jacob and had its sacred stone pillar set up by him. The rulers and priests aggressively promoted Jerusalem, until they finally decided that it was to have the only temple."
+
+- Consequences: 
+  
+> "From Jeremiah 44. Jews in Egypt blaming the disaster on the king's(Josiah and after) banning of the Queen of Heaven's cult. Times were good until that happened, then it was just misfortune after misfortune. "
 
 ## Role in anti-pagan alliances
-- The paleo-Abrahamist system is largely a ethnocentric one, so they their holy wars were mostly limited to suppression of polytheism among their people and within their lands. However, they were open to anti-pagan alliances with their universalist offshoots. ("A rare exception being the conversion of section of the Khazar Turks to their religion. ... this conversion might have played a role in the antagonism between the Khazars and the polytheistic Vikings of the incipient Kha’khanate of the Rus.")
+- The paleo-Abrahamist system is largely a ethnocentric one, so they their holy wars were mostly limited to suppression of polytheism among their people and within their lands. However, they were open to anti-pagan alliances with their universalist offshoots. 
+  
+> ("A rare exception being the conversion of section of the Khazar Turks to their religion. ... this conversion might have played a role in the antagonism between the Khazars and the polytheistic Vikings of the incipient Kha’khanate of the Rus.")
+
+
 -  Communism and Sickularism are but newer incarnations of old hebraic plague - it is no wonder who spearheads them. To add to your list, just start writing down and checking the names of the Indologists and you will find something interesting. (more [here](../academia/charges/))
 
 ## Anti-hindu actions
