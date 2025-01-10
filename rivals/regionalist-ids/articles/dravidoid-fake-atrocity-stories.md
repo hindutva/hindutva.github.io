@@ -35,3 +35,31 @@ Jotiba Phule was a rich contractor and owned 80 acres of land. He was from a rea
 
 He is supposed to have turned against caste after he attended a Brahmin friend's wedding, where he was stopped from joining in the wedding procession.
 
+## Other lies
+Some easily falsified stories
+
+1. Rajaji closed 300 schools
+2. Sanskrit was required to get into medical school
+3. Palani had non-Brahmin priests whe were replaced by Dalavai Ramappa Iyer
+4. Dr Natesa Mudaliar built a hostel for NB boys since they couldn't rent in Madras
+5. Collector Ashe was assassinated because he took a woman in labour through the agraharam
+6. EVR was awarded Socrates of South East Asia by UNESCO Mandram
+
+Like Fatima Sheikh, here's a list of incidents that fail the 'smell test'
+
+1. Breast Tax
+2. Carrying brooms on the back
+3. Agitation for blouses
+4. Vavar
+5. Women forced into sati
+6. EVR's trip to Kashi
+7. Throwing muck at Savitribai
+
+
+Some unverifiable stories
+
+1) Gandhi thrown out of the train at Pietermaritzburg
+2) Ambedkar's mother forced to rub dust on her new sarees
+3) EVR denied food at Kashi
+4) Dravidoids claiming their teachers rubbed their backs looking for janeu
+5) Francis Whyte Ellis had a butler Kandappan who gave him the manuscripts of Tirukkural. Said butler was grand dad of Iyothee Das.
