@@ -36,7 +36,14 @@ Jotiba Phule was a rich contractor and owned 80 acres of land. He was from a rea
 He is supposed to have turned against caste after he attended a Brahmin friend's wedding, where he was stopped from joining in the wedding procession.
 
 ## Other lies
-Some easily falsified stories
+
+> I had created a myth or a fabricated character and named her Fatima Sheikh.
+>
+> Please forgive me. The truth is that “Fatima Sheikh” never existed; she is not a historical figure. Not a real person.
+>
+> Some easily falsified stories
+> 
+> - Dilip Mondal
 
 1. Rajaji closed 300 schools
 2. Sanskrit was required to get into medical school
@@ -58,8 +65,12 @@ Like Fatima Sheikh, here's a list of incidents that fail the 'smell test'
 
 Some unverifiable stories
 
-1) Gandhi thrown out of the train at Pietermaritzburg
-2) Ambedkar's mother forced to rub dust on her new sarees
-3) EVR denied food at Kashi
-4) Dravidoids claiming their teachers rubbed their backs looking for janeu
-5) Francis Whyte Ellis had a butler Kandappan who gave him the manuscripts of Tirukkural. Said butler was grand dad of Iyothee Das.
+- Ambedkar's mother forced to rub dust on her new sarees
+- EVR denied food at Kashi
+- Dravidoids claiming their teachers rubbed their backs looking for janeu
+- Francis Whyte Ellis had a butler Kandappan who gave him the manuscripts of Tirukkural. Said butler was grand dad of Iyothee Das.
+
+Others -
+
+- Dr. Muthulakshmi asked B women to perform at the temple to Sathyamurthy during the Devadasi debate
+- Veluthachan (Christian friend of Ayyappa)
