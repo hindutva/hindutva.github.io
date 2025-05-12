@@ -85,6 +85,8 @@ See the [sufi page](../sufi/).
 - The [muta'zila movement](http://en.wikipedia.org/wiki/Mu%27tazila), which tried to get to the position that the Quran is man-made and argued for rationality, was vanquished 10 centuries ago, and has not really resurged. Though, there are very small hopeful signs. 
     - Jihad Turk denies that the biographies of muhammad are reliable since they were written 200 years after his death, so he was not such a horrible person \[[Y](https://www.youtube.com/watch?v=9oLjMaIR0-k)\]. But, his grounds are shaky elsewhere \[eg: [rebuttal](http://www.familysecuritymatters.org/publications/detail/exclusive-local-imam-misleads-interfaith-groups)\].
 - Ahmadiyya-s are about as bad for pagans, despite their rejection by other muslims. Furqan Force ([wiki](https://en.wikipedia.org/wiki/Furqan_Force)) fought India in 1949.
+- Bohras are ok, but/ because they're too tiny to be influencial. Considered elsewhere. They did fund and support Jinnah's muslim league.
+  - Similarly the Aga khanis.
 
 ## Mutual recognition
 - Odd day: Alevis are Rafidas+++(=refusers)+++. Even day: Alevis are Muslims
