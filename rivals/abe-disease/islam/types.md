@@ -3,7 +3,8 @@ title: Types
 ---
 
 ## Legal divisions
-{{< figure src="../images/Maddhab_Map2.png" title="Maddhab map" >}}
+![](../images/Maddhab_Map2.png)
+{title="Maddhab map"}
 
 - Current Islamic jurisprudence largely affirms the purported intolerant attitudes.
 
