@@ -2,7 +2,7 @@
 title = "जिहाद्"
 +++
 
-nile 
+Source: [TW](https://ia800502.us.archive.org/20/items/JIHAD_20161022/JIHAD%20-%20Arya%20Musafir%20Pandit%20Lekhram.pdf) 
 
 जहाद  
 कुरान व इस्लामी खूंख्वारी ।  
