@@ -1,7 +1,7 @@
 +++
 title = "Human culpability in jesus killing"
 +++
-Source: [TW](https://x.com/notifications)
+Source: [TW](??)
 
 They do not accept that Christianity is an apocalyptic Jewish sect whose founder was killed by the Romans for rebellion and was only later reworked into a separate religion by Peter and Paul. That is the "secular" interpretation.
 
