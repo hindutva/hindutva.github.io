@@ -67,6 +67,13 @@ You hate religion in state more than you hate (say) RoP. So, you're a net plus f
 
 > " there are inevitably nay-sayers, non-theists, secular-pagans and the like who pounce in proudly with “but there were non-polytheists in the ancient world too.” They will bring up pantheism, monism, atheism and the like as though this somehow strengthens their attempts to dismantle our traditions. ... I think the time has come to address some of this ideological undercutting because while what they say is technically accurate, it is presented without context and that context is important. We live in a very different world from our polytheistic ancestors. We are an occupied people. Our world is doggedly, demonstrably, and sometimes violently monotheistic. ..." \[[krasskova16](https://krasskova.wordpress.com/2016/03/13/the-battle-for-polytheisms-soul/)\]
 
+### Culture without religion
+Culture minus religion is like hindI (or tamiL) without sanskrit words. What's left is unrecognizably mangled. It's not for nothing that Indian institutions retained mottos like "शन्नो वरुणः".
+
+When seculars say "we treat all religions the same", they're including culture there. That's why they overwhelmingly support burka, loudspeakers, beef eating, blasphemy-banning and so on.
+
+Culture without religion gives you lemurian subnationalist movements like "no hindi in TN / MH/ KA", "panDits for kAshmIriyat" etc..
+
 ### De-sacralization
 - Destruction of the national (and cultural) spirit by de-(spi)ritualization of government is a consequence of secularism. State and group rituals, however, are an essential part of pagan expression. Secularism forces this pagan cultural expression out of the public space.
     - Examples: saxony \[[T1](https://twitter.com/Rjrasva/status/582162695127994370)\], shinTo, hindus (rAjasUya etc..).
