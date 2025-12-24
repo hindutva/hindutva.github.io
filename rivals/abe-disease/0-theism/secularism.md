@@ -94,6 +94,10 @@ Culture without religion gives you lemurian subnationalist movements like "no hi
 ### Sapping national strength
 A nation imbued with a strong national spirit and cult is a strong nation, one which can effectively solve internal conflicts and face external threats. For example, a strongly hindu India can better face jihAds from the neighboring Muslim states, land-lust of China, divide-and-rule attempts of Anglosphere while tackling domestic problems of similar communist, Islamic or missionary nature.
 
+### Net impact
+
+One will have to come up with something better than being butchered by sullas to establish the net positive impact of sickulars on the rest of society 😀
+
 ## Origins
 - The notion of secularism emerged from conflicts and compromise involving strains of Abrahamist monotheism either on both sides (as in the case of Europe) or one one side (as in the case of some strains of sikh thought).
 - This is then a universalization of a phenomenon of limited local relevance - "Were secularism to be seen as not only a product of the West, but also having characteristics that link it to the ongoing religious traditions of the Christian West, then its universal applicability would be questionable." \[[Mohr13](https://www.academia.edu/1549528/2_The_Christian_origins_of_secularism_and_the_rule_of_law)\]
