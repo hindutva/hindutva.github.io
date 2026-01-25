@@ -11,3 +11,15 @@ I don't have a religion that has arbitrary damnation based on belief. I have no 
 
 You can accuse the gods of being cruel or unfair but they've never done anything like that. Even Christians don't accuse them of putting infants in hell.
 
+## yahweh vs babies
+Source: [TW](https://x.com/GraniRau/status/2014914803853082816)
+
+The context doesn't matter. The point is Yahweh doesn't give a shit about babies or human life as an abstract thing free of context. He kills the children of those Israelites who dont obey him too. Children are extensions of parents in biblical thought, not valuable alone.
+
+Human life doesnt have inherent worth, only obedience protects you. If you arent on Yahwehs good list he doesnt value your life or anyone around you. And this can be quite arbitrary. 
+
+Yahweh has a man's whole family killed along with him merely for keeping loot rather than offering it as sacrifice to Yahweh. 
+
+He kills David's infant son for David's adultery. 
+
+He threatens to make parents eat their children if they anger him.
