@@ -21,7 +21,7 @@ To recall the words of the lord of vRShNis -
 - One may be attracted by miracle stories or experiences (I had this disease/ personal problem, someone said pray to jeebus, and it went away).
 
 ## Equality fallacy
-- See "equality fallacy" section of [nAstika ID page](../../polity/external-affairs/id/nAstika/) for background.
+- See "equality fallacy" section of [nAstika ID page](../../../../../vishvAsa/notes/content/sapiens/branches/Aryan/satem/indo-iranian/indo-aryan/india/politics/problems/demographics/external-affairs/id/nAstika/) for background.
 - Criticism
     - Swami Aksharananda (Guyana) [here](https://www.youtube.com/watch?v=AFJKQdhXzvo).
 
