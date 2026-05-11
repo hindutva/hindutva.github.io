@@ -9,8 +9,12 @@ title = "Muhammad"
 > They attribute to him superhuman or fabulous gifts during his life on earth. For instance, a cloud or shadow always rested above his head; that his body cast no shadow; that flies never settled on it; that a long journey was shortened for him, and the road contracted; and that no one ever saw his excrement, which the earth opened and absorbed. - Pelsaert
 
 ## Wedding and bedding
-Zaynab bint Jahsh - First cousin, widowed → daughter in law → wife
+Muhammad's 7th wife was Zaynab his first cousin, his daughters Fatimah & Zainab also married first cousins.  
+Zaynab bint Jahsh - First cousin, widowed → daughter in law → 7th wife
 
+> If Muhammad who is the role model for all of humanity forever did it, why is science questioning it? Do you think Allah is wrong? So goes the logic. -SP
+
+Akbar when he became an apostate also banned cousin marriage because "such marriages are destructive of mutual love" (source: Badayuni)
 
 ### Aisha and Fatima
 
