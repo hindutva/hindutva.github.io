@@ -16,7 +16,7 @@ A classical vaidika hindu view would be:
 
 A few Hindu-s did understand and produce some very high-quality critiques of Abrahamistic thought. For example, we have a 9th century apostate of Islam, Ahmad ibn Yahya ibn Ishak al-Rawandi, quoting barAhima (or brAhmaNa-s) of al-hind:  
 
-“_If prophets are sent to preach adherence to things that can be established by the use of intellect then the prophets are just like ordinary people. If, of the other hand, they come to preach what contradicts those things – god has made those things to be perceived as proofs; they will not suit anything else except through the altering/perversion of the intellect itself._”  
+> “_If prophets are sent to preach adherence to things that can be established by the use of intellect then the prophets are just like ordinary people. If, of the other hand, they come to preach what contradicts those things – god has made those things to be perceived as proofs; they will not suit anything else except through the altering/perversion of the intellect itself._”  
 
 Other reports:
 
@@ -25,9 +25,15 @@ Other reports:
 
 In the 19th century, we see excellent critiques by dayananda sarasvatI and [arumuka nalavAr](http://en.wikipedia.org/wiki/Arumuka_Navalar) \- and to some extant by vivekAnanda.
 
+> My grandfather had a book duhbad-ul-Hindu, a rebuttal to an earlier polemical work by one indrāmana from our paksha. There definitely was a polemical tradition. In general the H-M interactions were via swords than pens. The book was so filthy, I threw it away. I was a teenager and didn't know better. From what I could remember it is a 3rd or 5th in chain - polemics - rebuttal - counter-rebuttal... The was was an H convert and had very good knowledge of H practices and puranas. - kastUri
+
 ### Muted inquiry into the Abrahamisms
 
-In classical Indian literature "the Muslims, who were not only present in India for many centuries, but were its actual rulers, appear only in vague and marginal references" (HALBFASS 1988: 182); "the Sanskrit tradition has never taken official notice of the existence of Islam" (ERNST 1992: 30); "I would lay stress on this - the religious identity of the Central Asians \[who invaded India\] is not once thematized in Sanskrit sources" (POLLOCK 1993: 286). 
+In classical Indian literature 
+
+> "the Muslims, who were not only present in India for many centuries, but were its actual rulers, appear only in vague and marginal references" (HALBFASS 1988: 182); "the Sanskrit tradition has never taken official notice of the existence of Islam" (ERNST 1992: 30);
+
+> "I would lay stress on this - the religious identity of the Central Asians \[who invaded India\] is not once thematized in Sanskrit sources" (POLLOCK 1993: 286). 
 
 ### Kalachakra Tantra
 
