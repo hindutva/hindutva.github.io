@@ -5,6 +5,26 @@ title = "Indian history"
 ## Pre-Nicene romances
 Prior to the 5th century, we basically have pseudo-historical romance (Acts of Thomas), hearsay from Eusebius' (Hebrew copy of Gospel of Matthew discovered by Pantaneus) and the Chronicle of Seert (a 9th-11th century text claiming that David of Basra evangelized India in the 4th century).
 
+## Thomas in India myth
+Source: [TW](https://x.com/Saatvata/status/2075647011844464739)
+
+The "Thomas in India" myth ultimately comes from a Syriac-speaking Encratite Christian "heretic" living in Nisibis or Edessa.
+
+The India of the "Acts of Thomas" is neither Kerala/Tamil Nadu nor Pakistan. It's a strange eclectic desert region where people bear Greek, Latin, Syriac and Pahlavi names and no one bears Indian (Sanskrit, Tamil, etc.) names. 
+
+Mazdeus' wife was named Tertia, which means "third" in Latin. The reason she is named Tertia is because she is the third person in Mazdeus' family to embrace the Encratite celibacy. She converts to Encratism in Mygdonia's private quarters, just before the dungeon pajama party.
+
+Mygdonia is "Prima" (first) and Iuzanes is "Secundus" (second), though they are not explicitly given those names.
+
+Thomas is killed because the king Mazdeus is upset that everyone in his family is practicing celibacy. If no one is sleeping with anyone, Mazdeus won't be able to continue his royal lineage.
+
+Thomas is not killed because of any theological disputes about the Trinity or monotheism. Moreover, Thomas is killed by being marched up the mountain and pierced with spears. 
+
+The Encratite author clearly looked to the Gospel of John for inspiration. The reason Thomas is said to have been pierced with spears is because Jesus was pierced in the side by a Roman soldier's lance to confirm he was truly dead. 
+
+Thomas later doubts that Jesus was risen and demands to feel the wounds, so Jesus miraculously appears before Thomas and tells Thomas to touch and put his hand into His side and feel the wounds. Both these details aren't mentioned in the Synoptics and first appear in the Gospel of John.
+
+
 ## Post-Nicene
 All Indian Christian churches hold post-Nicene theological views which derive from an earlier church in Ctesiphon or Nisibis which in turn derives from an earlier church in Edessa/Osrhoene. Indian Christian liturgy is post 4th century and Indian Christians first show up in the historical record around the 6th century AD (Cosmas Indicopluestes).
 
