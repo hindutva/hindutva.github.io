@@ -36,3 +36,9 @@ Thoughts on this are [here](../../../self-cultivation/rituals/).
 > they will pick up serpents with their hands; and if they drink any deadly poison, it will not hurt them; they will lay their hands on the sick, and they will recover. - Mark 16:18
 
 [YT](https://youtu.be/7OcoUyXiuU0?t=611) Cody Coots from Kentucky gets bitten by a rattle snake while trying to follow Mark 16:18, his father James Coots died of same
+
+## Holy water
+In 2012, a statue of Jesus in India mysteriously began dripping water from its toes. Worshippers started collecting it and drinking it believing it was holy. The source of the water was later found to be a clogged toilet near the statue. This was famous in Mumbai. Wooden cross reached into the basement where it touched water from the toilet.  Due to capillary action the water came up through the wood and into the statue. 
+
+Rationalist Sanal Edamaruku publicly explained the plumbing cause on TV, leading to blasphemy complaints, death threats, and his flight to Finland, where he has lived in exile since 2012.
+
