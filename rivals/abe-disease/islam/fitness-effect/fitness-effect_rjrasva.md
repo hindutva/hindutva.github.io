@@ -20,3 +20,11 @@ Of course they may also be inspired to acts of ghazawat like the London fellow, 
 
 ## Pyramid-scheme transfer of benefits
 - There is also the **pyramid scheme element**, those who enter earlier (e.g. Arabs) get greater benefits. Thus a /7   recent Black African convert will enter as a lowly foot soldier, he won't be getting a train full of bibi's like the arab sheikhs. Recent /8   e.g. is IS using subcontinental recruits for toilet cleaning or tricking them into suicide bombings while giving > status to Arabs. /end
+
+## Inbreeding
+Source: [TW](https://x.com/Rjrasva/status/2107702625760375262)
+
+Common pre industrial practice that convergently evolved in many places. Naoto Kan the Japanese PM in 2010 is married to 1st cousin & cousin marriage was much more common in pre 45 Japan vs now
+
+Mohammedanism encourages it as Muhammad practiced it & he is the perfect role model for Mohammedans. To imply that he didn't know harms of cousin marriage (even though the sickly offspring thing was known even in ancient times through observation) indicts him + Allah, & well u can't have that.
+

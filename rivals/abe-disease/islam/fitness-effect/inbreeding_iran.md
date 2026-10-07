@@ -17,3 +17,10 @@ A 2013 paper by a team of Iranian researchers, "Effects of Chlamydia trachomatis
 > The molecular prevalence of C. trachomatis was 12.6% in woman in Tehran, the capital of Iran, and in another study it was 21.25% in women attending Shahid Beheshti Hospital in Isfahan, Iran. Considering the different prevalence rates of C. trachomatis infection in Iran, it is vitally essential to assess the impact of C. trachomatis on the reproductive health of women. 
 
 21.25%. 1 in 5 women. World avg is 4.3%
+
+## Socotra
+Source: [TW](https://x.com/lefineder/status/1820906682421006807)
+
+Source: [TW](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC11009077/)
+
+Modern Soqotra has rates of 35-40% cousin marriage but looking at the rate of inbreeding from ancient DNA in medieval Soqotra, there was no first cousin marriage, "ROH data also provide evidence for an absence of close kin unions, defined here as first cousins or closer".
